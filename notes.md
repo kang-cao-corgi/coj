@@ -1,3 +1,192 @@
-# Logos USA 10
-## 3/30/2019
- This is first line.
+
+# Lec 2
+## The bible distinguishes the natural revelation and higher revelation
+
+| natural revelation  | highrt revelation  |
+|---|---|
+| the creator  | the savior  |
+| through the creation| through the son|
+| to all| to believers|
+|Ge1:1; Rm 1:19-20| Jn1:1-3,14,18; He1:1-2|
+
+- higher revelation can only be received after natural revelation.
+  eg. knowledge believe
+
+## The natural revelation
+- two major theories on the beginning of life
+  1. evolution
+  2. creation
+## eveolution
+Everything formed w/o direction.
+the naturalistic ciew
+- progressive creation: burst
+- theistic evolution: god: let there be creatures, let it happen and evolve
+- atheistic evolution: plain evolution learned in school
+    #### cosmic evolution
+     - the bigbang theory, the universe started with a small singularity, then inflated over the next 13.8 billion years to the cosmos of today.
+     - but where did that singularity come from?
+    #### geological evolution
+     - the nebular hypothesis
+     - the solar system formed from a swirling cloud of gas and dust 4.6 billion years ago.
+     - but stardust particles do not form into planets and planetesimals rather they bounce ooff or collide to explide
+     - also the sun should be spinning much faster
+     - the solar-nebular model sats eath was formed about 4.5 billion years ago
+     - but its strong magnetic field too little sodium in the sea, intact DNA in fossils etc all indicate a YOUNG earth
+    #### earth iniqely designed to be out home
+    Isia 45:18
+    - its strong magnetci field protects us from harmful solar radiation
+    - its atmosphere gives us air to breathe
+    - our sun is perfectly located within our galaxy; our planet is perfectly located within our solar system
+    - its water cycle protects and provides
+    #### moon
+    - its distance from earth allows its gravity to rise tides for earth
+    - its distance and szez allows for eclipses
+    - evolution cannot explain its origin, geological activity or its recession for "billions of years"
+    #### a total solar eclipse
+    - possible becaise the sun is 4 times larger than the moon and 400 times further away
+    - because of this configuration ecluoses can be best viewed in earth
+    - this configuration also allows for life to exist on earth
+ ---
+## The bibilical creation
+- The 6 day creation
+- The garden of Eden
+- Adam and Eve
+- The global flood etc
+  - ---
+- Ge 1:1 " In the beginning God created the heavens and the earth."
+- "Day" = YOM (Hebrew)  = A Solar day Ex20:11
+### The theory of evolution
+over a long period of time a species evolves to a new one in order to adapt to the environment
+### fossiles
+- evidence that Charles Darwin used for his theory in *On The Origins Of Species (1859)*
+- Q: Adam and Eve on 6th Day?
+- Missing Links? ***trasitional fossils***
+- The Archaeopteryx: a dinosaur or a bird
+### Life from non-life?
+- the formation of the first living thing that comes ...
+### information of life
+- the information that is required to run all the physical parts of life cannot be explained
+- the vast amount of the instructions stored in DNA had to come from preexisting information
+### what is information?
+- the basic ingredient producing anything functional in the world
+- the key to functionality is organization
+- the fundamental building block of the created universe
+### irreducible complexity
+Q: 99% human DNA being alike proves nothing of God's Design
+- it challenges the notion of evolutionary process that requires every complex component of life arising step-by-step
+- *Michael Behe* quote
+- species that disapprove evolutionism
+    - acid beattle
+    - giraffe
+    - leaf-cut ant
+- is evolution science?
+- Scientific approach
+    - objective observation
+    - experiment: causal relationship criteria analysis
+    - evidence
+    - demostration: theories and laws
+### Evolution and Ceation commons
+- both theories make claims about the unobservable and unrepeatable past
+- both have the same evidence
+- both interpret base on a set of starting assumptions, different paradigms
+-  both required ***faith***
+
+### ***Creation acceptes the bible as providing the answer to how, when and why all things came into existence***
+---
+## The higher revelation
+- Jn1:1-3,14,18
+- He1:1-2
+- 1Jn1:1
+- Jn1:16
+
+
+# Lec 3
+## Culture
+the human world illustated in the bible is about the mutual and exclusive relationship between culture and faith
+
+culture = the environment where humans can be humans (live as)
+
+- Ge 1: 28
+- Mt 4: 4
+- Mt 6: 31,33
+
+Prioritize? faith all the time.
+Following lord's prayer
+
+---
+
+## The causal relationship between culture and faith
+When men is tempted by culture, faith is cursed(corrupted), vice versa.
+- Ps1:3
+- Eze47:12
+1. ### challenging god because of food
+    - Ge3:1-14
+2. ### hardship in life because of the coruption of faith
+    - Ge3:15-21
+3. ### the invisible flaming sword
+    - Ge3:22-24
+    - Dt28:30-34
+
+    there is no earthly paradise
+
+4. ### when your faith reaches to god you will lose the world
+    - Ge4:1-8
+5. ### the judgement of God brings out the fear among men
+    - Ge4:9-14
+6. ### the protection of god stops the tribulation of culture
+    - Ge4:15
+7. ### seeing the daughters of men, the sons of god became corrupted
+    - Ge6:1-2
+
+---
+
+## Heaven
+### The bible differentiates three heavens that are distinct in level and describes the events that develop in them
+- 2Ch2:5
+
+### three different heavens
+
+- 2Ch2:5-6, 6:18
+- Ps148:4
+
+|  First heaven |  second |  third |
+|---|---|---|
+| the heaven within the atmosphere  | the heaven of the firmament, the expanse  | the heaven where ***gods*** are|
+| the sky Ge1:28| the space, the universe Ge1:1-2, 6-8| tthe spiritual heaven 2Co12:2|\
+
+### the universe is finite
+- Act 1:11
+- Jn3:13
+
+### where is god
+- 2Ch2:6
+
+### who governs where
+
+| the heaven where gods are  | the heaven of the universe  | the heaven under the clouds|
+|---|---|---|
+| God  | the ruler of the air (Eph2:2, Job1:7)  | men (Ge1:28)|
+
+### "paradise" or "the father's house"
+
+|  paradise | father's house  |
+|---|---|
+|  a portion of the third heaven | the third heaven  |
+| the souls of believers(Lk23:43)| in resurrected body (Jn14:2-3, 20:17)|
+
+## Hell
+prepared mechanism of punishment for devils
+
+### When wil anyone be thrown into hell
+- Mt 25:31-41
+- Jude1:6
+- Rev20:15
+
+### where is hell
+- Is14:15
+- Rev20:14
+- Rev21:1
+
+## "Thy will be done on earth as it is in heaven"
+- Mt6:10
+- Rev12:7-9

@@ -190,3 +190,116 @@ prepared mechanism of punishment for devils
 ## "Thy will be done on earth as it is in heaven"
 - Mt6:10
 - Rev12:7-9
+
+
+# Lec 4
+## Religion, albeit unclearly, demonstrations the common organization and deeds of faith
+
+### Christianity is ***not*** a religion
+
+religion = giving reference to the super natural or transcendent
+
+Christian faith exists without the text
+
+| religion  | christianity  |
+|---|---|
+| general , natural faith  | faith by revelation, faith by grace  |
+| through doctrines, rituals and organization| though the revealed Word of God|
+| Upward| Downward|
+| man seeking God| God reveals|
+
+### Religiosity vs. Faith
+- 1Co15:13-19
+- Ac2:32
+
+### you cannot know God through philosophy
+Philosophy is the basis?
+Could you know god through philosophy?
+
+### Two approaches in philosophy to under stand deity though reason
+
+1. The ontological approach
+
+    (ontological: the state of being)
+    - understand god through the external
+    - god as the ground of being , the nature of being
+    - man cannot be separated to objectify god
+    - "Since I exist, god must exist"
+
+
+    god = "emptyness"
+    the immanence throty = god is inseparable from
+
+2. The idealistic approach
+
+    (the mind is the requirement of existence)
+    - understand god through the internal
+    - god as the origin of the mind
+    - the eye cannot see itself
+    - the consciousness of man is the consciousness of god
+
+    the divine = nothingness emptiness
+    nihilism buddhism reality = nothing
+
+Conclusion: neither philosophy nor religion can know the divine
+
+Mt11:25-27
+
+### Christianity is responding to the divine call
+
+| action  |  confession | acknowledgement|
+|---|---|---|
+| worship  |  revealing my faith| god's omnipresence|
+|repentance| confessing my sins| god's righeousness, omniscience|
+|prayer| confessing my inabilites| god's omnipotence|
+| praise| confessing my lowliness| god's worthiness|
+|tithing| revealing my income| god's ownership of all thins|
+|thanksgiving| revealing my life | god's grace and help|
+
+
+Rm10:10
+Jn1:9
+### 1. god gave them not religion but his son
+
+#### regarding repentance
+
+| repent Mt3:2  |  repent Mt4:17 | repent Ac2:18|
+|---|---|---|
+| John the baptist  |  Jesus christ | Apostles|
+| correct your knowledge of the deity and righteousness | turn from your direction towards the deity and turn to me|fix your thoughts towrds the deity|
+
+Yeshua is the christ
+- Mt16:16
+- Ac17:3
+
+"Christ" "Messiah" = the anointed (king)
+
+|  Christ | Yeshua  |
+|---|---|
+|King   | The name  |
+| The son of Man| the son of god|
+| the mission of coming in the flesh| to whosoever believes through the Holy Spirit|
+|Death, ressurection, ascension, the throne, return| Immanuel (Gos with us)|
+
+#### regarding love
+- Mt20:28
+- Rm5:6-8
+- 1Jn4:10
+
+only in christianity there is the redemption of god
+
+### 2. god gave men not doctrine but fact
+- men killed JX but god raised him
+- the son of man sent the HS and the HS testifies
+
+- Ac2:3
+- Ac5:30-32
+
+### the lord's prayer is not a catechism
+#### the content of prayer
+- the receiver of prayer
+- the purpose of prayer
+- the content of prayer
+
+### for his events god calls men and lets them do his work
+- Ps23:1

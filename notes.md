@@ -99,7 +99,7 @@ Q: 99% human DNA being alike proves nothing of God's Design
 - 1Jn1:1
 - Jn1:16
 
-
+---
 # Lec 3
 ## Culture
 the human world illustated in the bible is about the mutual and exclusive relationship between culture and faith
@@ -190,7 +190,7 @@ prepared mechanism of punishment for devils
 ## "Thy will be done on earth as it is in heaven"
 - Mt6:10
 - Rev12:7-9
-
+---
 
 # Lec 4
 ## Religion, albeit unclearly, demonstrations the common organization and deeds of faith
@@ -303,3 +303,80 @@ only in christianity there is the redemption of god
 
 ### for his events god calls men and lets them do his work
 - Ps23:1
+
+---
+# Lec 5
+## 3. The christian mission is not a  religious method, it is declaring the gospel
+
+preach
+    - Mt4:10
+
+- to bring good news
+- to proclaim/declare
+
+### christianity does ***NOT*** challenge
+god is just god, god is not socially just god
+- Jn18:36
+
+christian does not discuss or debate but declare
+
+religious pluralism/unity
+
+-Co6:14:18
+
+## 4. Worship is ***NOT*** a religious ritual
+
+the apostle's creed
+
+### worship is seeing the face of the lord
+worship - to fall at another's feet
+
+dead sacrifice(old testment)
+/ living sacrifice(new testment)???
+
+- Mt18:10
+- Jn4:20-26
+- 1Ki12:18-24, 27-33
+
+| Jeroboam  | Rehoboam  |
+|---|---|
+| 10 tirbes of Isareal  | Judah and Benjamin  |
+|Northern Kingdom| Southen kingdom|
+| High place in Bethel| Temple of Jerusalem|
+| In spirit| In Truth|
+
+## V. The bible and faith
+
+***? ? ? ? ? ? ? ? ? ? ? ? ?***
+
+faith is warranted by the bible
+
+the bible is testified by the faith
+
+***? ? ? ? ? ? ? ? ? ? ? ? ?***
+
+- Jn1:1-3
+
+The Word = the self-manifestation = The face of god != The entirety of  god
+
+- Mt11:12-13
+- Jn1:14
+- 1Co1:18-25
+
+## 1. the bible acknoweldges the works of god through faith
+
+faith
+- acknowledging that god has done and possessing it
+- trusting the Word of god to be fullfilled
+
+### the treasure of god is in the bible
+
+need to have experience of Word
+
+### the bible illusttrates that the works of god continue without breaks
+
+| Genesis 1  | Hebrews 11  |
+|---|---|
+| A chapter on god's faith  | A chapter on men's faith  |
+| all creations obeyed| men obeyed|
+| "And it was so" | "According to your faith"|

@@ -380,3 +380,113 @@ need to have experience of Word
 | A chapter on god's faith  | A chapter on men's faith  |
 | all creations obeyed| men obeyed|
 | "And it was so" | "According to your faith"|
+
+---
+
+# Lec6
+
+## 2. the bible emphasizes obedience by faith
+
+### what is faith?
+- self-confidence (believe in the self)
+    - the "faith" of the natural people
+    - self-assurance
+    - subjective
+    - based on one's own experience and knowledge
+    - probability of success
+
+- ***faith***
+    - the faith of god
+    - the assurance of god
+    - objective
+    - base on the word of god
+    - 100% of god's guarantee for success
+
+### having faith in god: possessing the faith of god, continually obeying the word of god - Mk11:22
+- Mal3:6
+- Ps89:34
+- Nu23:19
+- Nu20:8-12
+
+### ***faith*** is surrendering your experience even if risky and holding on to the Word
+
+### Now faith is ***the substance*** of things hoped for and ***the evidence*** of things not seen - He11:1, NKJV
+
+## 3. Those who absolutely trust the bible as the Word of god have godly authority - In5:29
+
+### the authority of the son of man
+- the authority to judge sins (Jn5:27) and forgive sins (Mt9:6)
+- the authority to die and the authority to live (Jn10:18)
+
+the target of his judgement = the origin os sin = the devil
+
+the subject of his forgiveness = men, because they were deceived
+
+### the authority of preachers
+- Jn20:23
+- Jn1:12
+- Eze33:1-9
+
+### the right to drive out demons
+- Mt10:1
+- Mk3:13-15
+
+## 4. not even a part of the bible can be abolished because it is all about Jesus
+
+old testment: a robe divided into pieces
+new testment: a robe assembled and put on by Jesus
+
+## 5. the bible can be verified through faith
+
+Jesus is testified by
+1. the bible (Jn5:29)
+1. the prophets (Jn1:34)
+1. the Father (Jn8:18)
+1. Jesus himself (Jn8:18)
+1. the holy spirit (Jn15:26)
+1. the disciples (Jn15:27)
+
+- Unbelievers - testify the death of Jesus
+- disciples - testify the resurrection of Jesus (1Co15:3-8)
+- the holy spirit - testifies that the son of man is on the throne (Ac2:33, 5:31)
+
+## the incarnation of Jesus Christ (Jn1:1, 14)
+
+- Mt20:28
+- Jn10:17-18
+- Jn6:63
+
+### why did Word become ***flesh***?
+- to die: for redemption (Mt20:28)
+- to shed blood: to cleanse, forgive sins and give life (Lev17:11, Jn6:63, He9:22)
+
+    his death = to pay the price of sin
+
+### Jesus is the Christ, the son of the living God - Mt16:16
+"Christ" = his duty/mission as man
+(the "anointed")
+"the son of God" = his essence
+
+### those who deny the death of Jesus are satanic
+- 1Jn4:2-3
+### god testifies in heaven that Jesus is the son of god
+- Mt3:17
+### the woman testifies on earth that Jesus is the offspring of the woman
+- Ge3:15
+
+## 6. Jesus fulfilled what is written in the bible
+### jesus's view of the bible
+- LIVE by the WORD OF GOD
+- do not put the Lord Your God to test
+- serve only god
+### Jesus fulfulled according to the written word
+- Mt26:24
+- Lk18:31
+- Lk22:27
+- Jn12:14-15
+### revelations
+- Mt11:27
+three level of god's revelation
+1. Jesus
+2. the Bible
+3. sermons and testimonies

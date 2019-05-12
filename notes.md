@@ -490,3 +490,100 @@ three level of god's revelation
 1. Jesus
 2. the Bible
 3. sermons and testimonies
+
+---
+# Lec 7
+## 7. the bible was written by the inspiration of holy spirit
+- 2Ti3:16
+- 2Pe1:21
+- Jn14:26
+
+## 8. the bible is a mirror
+- 1Co10:11
+
+the bible is a mirror that reflects invisible spiritual beings
+
+if you read the bible correctly, you will find Jesus
+- Jn5:39
+
+the bible is a till that reflaects the real image and lets you correct yourself
+- Jas1:23-25
+- Tit3:5
+- 1Col13:12
+- Eph5:26-27
+
+## 9. the bible says that god created the heavens and the earth and that he will also make them extinct
+
+- 2Pe3:5, 7-13
+
+the only "new thing" is Yeshua the truth
+- He1:2
+- 1Pe1:5, 20
+
+the holy spirit lets us know that the prince of this world has been judged
+- Jn16:11
+- Rev22:13
+
+the world is made ***for*** Jesus and by Jesus???
+
+- Mt24:3, 40
+- Lk17:34-35
+
+## 10. the old testment is a prophecy of the coming of the messiah, while the new testment is a prophecy of the coming of the kingdom of christ
+- Ge18:10
+- Mt3:2
+
+| Old Testment  | New Testment  |
+|---|---|
+| Genesis - Luke  | John - Revelation  |
+| the king who will come according to the prophecy| the king who will return according to the prophecy|
+|"the coming messiah"| "Christ who came",  "Christ who will return"|
+
+### prophets are the servants who prepared the way for the messiah
+
+- Mt11:11-14
+
+Moses 1500 B.C. the Pentatuch
+
+last book of old testment Nakachi 400 B.C.
+
+400 B.C. - 0 A.D.the dark age of isareal, the intertestamental period
+
+| Faction  |Pharisees   | Scribes| Sadducees|
+|---|---|---|---|
+|***Social class***   | middle  | lower| Priests, aristocrats|
+| ***emphasis***| the law| the law| Priestly obligations|
+|***rigteousness***| deeds| knowledge| Charity ("good" works)|
+|***afterlife***| yes| [yes] | no|
+
+the pharistic law + 613 commandments of Moses
+30 regarding sabbath
+- Mt11:28
+- Mt10:28
+- Mt6:3
+
+- 1Th4:16
+
+## 11. the object of ***god's interest*** is in the bible
+
+### regarding Judas Iscariot
+- Jn13:26-27
+- Mk14:21
+
+## The purpose of the coming of the son of god
+1. to ***glorify*** the father - the ***purpose*** of god Php2:6-11
+1. to destory rhe devil - the mission of god 1Jn3:8
+1. to ***save*** men - the ***will*** of god Jn3:16
+
+## god's interst is in the blood of Jesus rather than in sin
+- 1Co15:55-57
+
+Vietnam and Iraq for glory of America??? bad example
+
+## 12. read the bible knowing the purpose of god
+- unbelievers: deny the existance of god
+- the antichrist: denies the fact that Jesus came in flesh
+- cults: insist on salvation other than Jesus
+
+### the bible cannot be interpreted without the works of the holy spirit
+- Ac2:44-47

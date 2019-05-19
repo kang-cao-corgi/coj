@@ -585,5 +585,103 @@ Vietnam and Iraq for glory of America??? bad example
 - the antichrist: denies the fact that Jesus came in flesh
 - cults: insist on salvation other than Jesus
 
-### the bible cannot be interpreted without the works of the holy spirit
+---
+# Lec 8
+
+## #The bible cannot be interpreted without the works of the holy spirit
 - Ac2:44-47
+
+Is communism/socialism a perfect world???
+
+### The bilble acknowledges differences (inequalities)
+- Ge25:23
+- Ge49:8
+- Mt25:29
+- Mt1:21
+- Jn5:21
+- Jn17:12
+
+### the order of things
+- 1Co3:21-23
+- TODO
+
+god -> christ -> men -> all things
+
+| men  | Jesus  |
+| --- | --- |
+| Exist for Jesus  |came in flesh for men   |
+|from the point of the plan of God| from the point of salvation|
+|the attribute of God| the chracter of God|
+
+God the potter???
+
+- 2Ti2:20
+- Rm9:20-21
+- Col1:16
+
+Be fearless before world, be fearful before god
+
+### the bible is the Word of the Holy Spirit
+
+## 13. the bible must be read only through the lens of the ***blood of Jesus***
+
+from Genesis to Revelation , it is all about the history and the story of the ***blood***
+
+god's interest is solely in the blood
+- Ex12:13, 21-23
+
+god made covenant with blood
+- Ex24:8
+- He10:1-4, 14
+
+### experience the event of the blood of Jesus
+
+| Old Testment  | New Testment  |
+|---|---|
+| a story written with the blood of lamb  |  a story written with the blood of god |
+| the coming of the one who will shed his blood| his return to collect the shed blood|
+
+### why is the blood of Jesus important?
+1. if there is blood, eternal life; if not, destruction (Jn3:16)
+1. children in his blood (Jn1:12)
+1. souls with his blood receive the Holy Spirit (Jn14:16)
+1. god uses only the vessels sprinkled with his blood (He9:22)
+1. relationship made by his blood (Ex4:25)
+1. by his blood, we enter the sanctuary (He10:19)
+1. he paid the price of his blood (Ac20:28)
+1. prayer is the word that his blood speaks (He12:24)
+
+## 14. when the bilble is read through the lens of ***the law***, it is god's power to ***remember*** sin; through the lens of ***the gospel***, it is his power to ***forget*** sin
+
+general conscience is relative
+
+the ***law*** is the conscience of god, the rightousness of god
+
+### the law
+1. DEFINITION: no one is righteous (Rm3:10)
+1. PURPOSE: to condemn (Rm3:19)
+1. RESULT: the price of sin is **death** (Rm6:23)
+
+- Rm3:20
+- Jas2:10-11
+- Rm7:7, 9, 12-24
+
+### the ***gospel*** is the freedom from the conscience
+- Jn8:32
+- Gal3:24
+ ### the gospel
+ 1. DEFINITION: the righteous will live by faith (Rm1:17)
+ 1. PURPOSE: to reveal the righteousness of god (Rm1:17)
+ 1. RESULT: ***eternal life*** (Rm5:20-21)
+
+| the law  |Jesus   | faith|
+|---|---|---|
+| by obedience, one is righteous  |   fulfilled the law| justified|
+| the righteous| the righteousness of god| called "righteous"|
+
+- Rm8:1-2
+
+## 15. the bible is a story about the gardener
+- Jn15:1-2
+- Mt21:33-46
+- Lk13:6-9

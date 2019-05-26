@@ -685,3 +685,150 @@ the ***law*** is the conscience of god, the rightousness of god
 - Jn15:1-2
 - Mt21:33-46
 - Lk13:6-9
+
+---
+# Lec 9
+## 16. the bible views revelation as light
+ first day he creadted light
+
+ ***the natural light***: the beginning of the natural revelation
+ - Ge1:5
+
+***the origin of light*** : the higher revelation
+- Jn1:4, 9-10. 14
+
+the intertestamental period: the "middle ages" of Israel
+
+### John the Baptist was a lamp
+- Jn5:35
+- Mal4:2-6
+- Mt11:12-14
+
+the role of a prophet is to introduce
+
+- If you see John as Christ -> Jesus is just a man
+- If you see John as Elijah -> Jesus is Christ
+- If you see Jesus as a prophet -> must wait for messiah
+
+### Jesus is the light of life
+- Jn8:12
+- Jn9:1-7
+
+spit to ground as ground is sinned/cursed where flesh came from
+(but why put mud on the blind's eye)
+
+## 17. the definition of sin in the bible leans towards as a code of conduct rather than morals
+
+### iniquity
+- against god: sin
+- againts men: transgression
+
+### the structure of the ten commandments
+|  ethics of faith | ethics of faith life  |
+|---|---|
+| Commandaments 1-4  | Commandments 5-10  |
+| RE relationship with god| RE relationships among men|
+| ethics RE god| ethics RE men|
+
+- Lk9:59-60
+- Mt10:37-38
+
+## 18. the bible is the father's inheritance
+- Eze44:28
+### god's greatest inheritance to his children is his name
+- He1:4-5
+
+### the names of god revealed in the Old testment
+1. ***ELOHIM*** (Ge1): a deity, a transcendent being
+1. ***YAHWEH ELOHIM*** (Ge2): the god to be revered - after man received commandment
+1. ***YAHWEH*** (ge4): the god to be feared - after man sinned - cannot recklessly call it
+
+- Ge32:26-28
+- Dt26:19
+- Ex3:13-14
+
+***YHWH***, ***Yahweh***, ***Jehovah*** "I AM"
+
+***Jehovah/Yahweh*** ["Lord"]
+
+-> ***YHWH*** [Tetragrammaton]
+
+-> ***ELOHIM*** ["God"]
+
+-> ***Adonai*** (lord), ***Hasehm*** (the name)
+
+-> ***YeHoVaH***: the name deliverd and made known by angel
+
+- Ex3:2-4, 14, 6:3; Ho12:3-5
+
+### the name of the lord is ***Yeshua***
+- Jn17:26
+- Mt28:19
+- Jn5:43
+- Jn10:25
+
+the name of the god is name of the father which is name of the son which is the name of the holy spirit
+which is Yeshua
+
+- Jn14:26
+- Jn17:11
+- Ac2:28
+- Ac19:5
+
+### the name of salvation
+- Mt1:21
+- Ac3:12
+- Rm10:13
+- He5:9
+
+### Yeshua Immanuel
+- Mt1:21-23
+- Jn1:1
+
+in the name of Yeshua
+- repent (Lk24:47)
+- baptized (Mt28:19, Ac19:5)
+- forgiven (Ac10:43)
+- saved (Ac2:12, Rm10:9, 13)
+- children of god (Jn1:12)
+- ask and receive (Jn14:14)
+- drive out demons and heal (mk16:17-18)
+
+
+## 19. the bible says men are worth existing only as god's fellow workers
+
+## 20. the bible is the road that follows not men but Yeshua
+- Mt1:1-16
+
+## 21. there are three *climaxes* in the bible
+1. the event of the Exodus of Israel
+    1. the kong of the world surrendered
+    1. deliverd from the death by the blood of lamb (Ex12:13)
+    1. after the red sea, their identity changed from the pharaoh's sercants
+
+    1.
+    1. the birth of a people with no land (Eze44:28)
+    1. guided by the pillar of fire and the pillar of clouds
+    1. manna, quails and water from the rock were their food
+    1. do not look back to Egypt (coomand)
+    1. entered the land of cannan
+1. the event of Jesus on the cross and the pentecost
+    1. the spiritual king of the world surrendered
+    1. saved from sin and death by the blood of Jesus
+    1. from servants from the devil to servants of Christ as free slaves (Ex21:2-6, 1Col2:3)
+    1. demons submitted and angels attended
+    1. citizens of heaven (Php3:20)
+    1. the HS guides
+    1. eat the flesh and drink the blood of JX (Jn6:53-58)
+    1. lay down wife, children, ad fields (Mk10:29)
+    1. entered the Father's house
+1. the return of Christ and resurrection of saints
+    1. the destruction of death (1Col5:26)
+    1. salvation from the universe
+    1. eternally free
+    1. all creation submits (1Col5:28)
+    1. royal priests
+    1. the groom Christ guides
+    1. eat of the tree of life (Rev22:2)
+     a loud command to rise (1Th4:16)
+    1. enter from earth to eternity

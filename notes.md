@@ -832,3 +832,76 @@ in the name of Yeshua
     1. eat of the tree of life (Rev22:2)
      a loud command to rise (1Th4:16)
     1. enter from earth to eternity
+ ---
+
+# Lec 10
+
+## 22. the bible demonstates the absolutism of god
+- Ge1:1
+
+the perfection of god is his oneness and absolutism
+
+|ETERNAL   | OMNISCIENT, ALMIGHTY  | OMNIPRESENT| GOOD|
+|---|---|---|---|
+| existence  | power  | spatiality| character|
+
+- Ps103:13-14
+- 1Jn2:6
+- Ps138:8
+
+## 23. Hebrews chapter 11 shows the ***faith*** that God demands
+- Ac22:23-24
+- He11:32-35
+
+### what is faith?
+- judged by one's offerings
+- pleasing to God
+- fearing the Word of God
+- seeking homeland
+- believing that god gives life to the dead and calls into existence the things that do not exist
+- giving the blessed name as inheritance
+- does not fear the power of the world
+- produces immortal masterpieces
+
+## 24. the bible has a strong sense of ***belonging***
+- Ps24:1
+- Ps100:3
+- Ps23:1
+- Jn15:5-7
+- 1Jn4:5-6
+- Jn8:31, 44
+- Jn15:19
+- 1Co15:22-23
+
+the lord O kupios = master, owner, lord, king, head
+
+## 25. the bible says men are god's partakers(partners)
+
+- Eph1:4-5, 9
+- He2:13
+
+schedule,
+predestination,
+providence
+
+- Jn15:16
+- Rm8:17
+
+|schedule   | predestination  | providence|
+|---|---|---|
+|  divine decision, god's timetable | establishing parts  | pre-video ("see ahead")|
+| before creation, unilateral| before creation| becomes "casting" when god's will meets man|
+
+god's schedule: "the time is near" etc
+- Jer23:5, 30:3; Eze7:7
+- Mt26:18; Jn12:23, 17:1
+- Ac7:17; 1Co4:5
+- Gal4:4; 1Pe4:17; Rev14:15
+
+### providence
+- Ge22:17-18
+- Ge27:12-13
+- Lk1:31, 38
+- Ac4:13
+
+The track is the will of god, the train is the schedule, and providence is the individual piece of sleeper, which involves risk. If carry it out, there is blessing, if not, there is curse.

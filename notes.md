@@ -1,4 +1,36 @@
 
+# Lec 1
+## Intro
+## Scripture cannot be broken
+- Jn10:35
+refering to old testment, bible cannot be destroyed
+The Word Jn1:1
+
+"In the beginning" also in Genesis1:1
+Ge1:1 beginning of creation
+Jn1:1 eternal time where there is no time, when the Word was before creation
+What is WORD? the self-manifestation of God, everything else was created by God,The plan of human is already there.
+The Word is spirit.
+Bible is the way we can know God, only through the Bible, we can know the whle logos.
+Those who have the Word of God are called ***gods***
+What does Logos bible institute teach?
+It teaches how to view the bible. A tool to approach
+
+Do not re-interpret
+
+
+## Ch1
+how to look at the bible: "the lens" on way to see, on line in dial
+The purpose to
+
+
+
+
+
+
+
+
+
 # Lec 2
 ## The bible distinguishes the natural revelation and higher revelation
 
@@ -905,3 +937,674 @@ god's schedule: "the time is near" etc
 - Ac4:13
 
 The track is the will of god, the train is the schedule, and providence is the individual piece of sleeper, which involves risk. If carry it out, there is blessing, if not, there is curse.
+
+---
+# Lec 11
+## 26 the bible says to not miss spiritual opportunity
+
+- Rev2:10-12
+- Rev3:11-12
+- php3:12
+- 2Co6:2
+
+prayer is training
+
+## 27. there is a common thread in the bible
+the blood orange example: take sample from each book, you will find the image of Jesus
+every book has a common topic: Jesus,
+while Apocrypha does not
+the gospel book: first 4 books of new testment, look in Jesus from different perspective
+
+-Jn5:39
+
+### All books in the bible testify about Jesus
+- Rev19:9-10
+
+### jesus is testified by:
+1. the Father (Jn5:39)
+1. the Holy Spirit (Jn15:26)
+1. the disciples (Jn15;27)
+1. the Bible (Jn5:39)
+
+### from Genesis to Revelation are all about Jesus
+1. Genesis: JX is the offspring of the woman
+1. Exodus: JX the pass over lamb
+1. Leviticus: JX the sacrifice
+1. Numbers: JX the rock
+1. Deuteronomy: JX the prophet
+1. Joshua: JX the commander in chief
+1. Judges: JX the savior
+1. Ruth : JX the relative of the kingdom of heaven
+1. Samuel, King, Chronicles: JX the restorer of the kingdom
+1. Job: JX the redeemer
+1. Psalms: JX my lord
+1. Provers:: JX the model of life
+1. Ecclesiastes: JX the goal of life
+1. Song of songs: JX my satisfaction
+1. The prophetic books: JX who will com as the Prince of Peace
+
+1. Matthew: JX the King
+1. Mark: JX the Servant
+1. Luke: JX the Son of Man
+1. John: JX the Son of God
+1. Acts: JX the Risen
+1. The Epistles: JX who sits at the right hand of God
+1. Revelation: JX who is coming back
+
+
+- Rev22:20
+- Rev11:15-16
+
+## VI - The Bible contains the ***truth***
+## 1. the truth
+- Jn8:32
+- Ps119:142
+- Jn17:17
+### the truth is the law that surpasses the law of Moses
+- Jn1:17
+- Rm5:12-14
+- Gal4:4-5
+
+the law of sin and death defines what is sin and death: if you break the law, you are sinned
+
+Jesus came to make the law perfect
+
+- Rm7:24
+- Rm8:1-4
+- Rm6:23
+
+## 1. the truth is the law that surpasses the natural principles
+truth:
+- the words of the Father (Jn17:17)
+- the words of Jesus (Jn14:6)
+- Jesus himself (Jn14:24)
+---
+# Lec 12 Signs
+- 2Co12:12
+- Jn1:3
+- Jn21:25
+
+|"Miracles"   |"Signs"   |
+|---|---|
+|   Mysterious events occurred by chance|Manifested by God's revelation   |
+|Easy to fall into mysticism| super natural law, the truth|
+
+## 1.How do we believe the "mythical" parts of the Bible
+### 1.1 God the Father lets us know
+- Mt16:16-17
+### 1.2 How can we understand them?
+- Jn14:26
+### 1. the HS speaks what He heard from the Father (Jn16:13)
+
+Moses looks in the past, the Prophet looks in the future, foresees
+
+### the stages by which the perfect God manifests himself
+- Path 1: God spoke to the Son (Jn8:26, 10:18, 12:49, 15:15) -> Jesus spoke to the disciples (Mt5:2; Jn8:26, 12:50; Ac1:2) -> the disciples preached to all nations (Mt28:19-20; Jn15:27, Ac1:8)
+- Path 2: God spoke to the HS (Jn16:13) -> HS speaks to saints (Mt10:20, Lk12:12, Jn14:26, 2Pe1:21) -> saints preach to all people (Ac4:31, Gal1:11-12, 1Th2:13)
+
+which route has the accurate word of Father? ***Both***
+
+### 2. the bible is weiten by the inspiration of the HS (2Pe1:20-21)
+### 3. the prophets also read the Scriptures under the instruction of the HS (1Pe1:10-11)
+
+## 2. Can we believe the signs in "Myth"?
+### 2.1 JX saw the Father
+- Jn1:18
+-
+### 2.2 Jx is before Abaham
+- Jn8:58
+- Jn1:1-2, 14
+### 2.3 all things are ruled by him
+- Mk1:25-27, 4:35-41
+- Mt11:13-14, 20-21
+
+## 3. signs regarding Judgement
+### 3.1 the judgement by flood
+- Ge7:22-23
+### 3.2 the Tower of Babel
+- Ge11:3-4
+### 3.3 the judgement on Sodom and Gomorrah
+- Ge19:24-25
+
+## 4. signs regarding the Exodus
+- Ex3:5
+### 4.1 the signs to separate Israel from Egypt
+- Ex11:7
+
+### 4.2 God let them continually testify that He is living
+1. God struck Egypt (Ex3:20, 10:1-2)
+1. God spared from disaster those who followed Him (Ex12:13-14)
+1. God Himself fought ...
+
+### 4.3 the eternal signs of God nurturing Israel
+1. the Lord healed them (Ex15:26)
+1. fed them manna (Ex16:13-36)
+1. gave them drink from the rock (Ex17:1-6, 1Co10:4)
+
+### 4.4 the warning signs that let them overcome tests and temptations
+1. the destruction of idolaters (Ex21:1-29)
+1. the sexually immoral with gentiles killed (Nu25:1-9)
+1. the venomous snakes (Nu21:4-9)
+1. all who grumbled died in the desert (Nu14:26-38)
+
+### 4.5 signs that say that God is with them
+1. crossing the Jordan (Jos3:15-17, 4:1-7)
+1. the fall of Jericho (Jos6:12-21)
+1. the sun held in place (Jos10:12-14)
+1. the march of the ark (1Sa5-6)
+
+### the content of signs: ***God with us = Immanuel***
+- Mk16:20
+- 1Ki18:26
+
+## 5. the super natural ...
+- man walking on water (Mt14:26-29)
+- the jar of flour and the jug of oil (1Ki17:14-16)
+- the sign of the four men with leprosy (2Ki7)
+- JX healed prople woth different sicknesses (Lk4:40)
+- JX drove out demons (Mk1:23-28)
+- Peter caught fish by His word (lk5:4-7)
+- the two fish and five loaves of bread (Jn2:1-11)
+- water tuened into wine (Jn2:1-11)
+- Temple tax from a fish (Mt17:27)
+- the dead rose (Jn11:1-44)
+
+- Mk9:23
+- Mk16:17
+- Php4:13
+
+---
+# Lec 13 Chapter 2 the plan of God
+## I. the will of God
+## 1. the revelation of God
+### 1.1 those under nature
+- Rm1:20
+### 1.2 those under the Law
+- Jn14:26
+### 1.3 those under the Gospel
+
+- 1Jn1:1-2
+- Jn5:22-23, 30
+- Jn12:47-48
+
+## 2. who is God?
+### 2.1 the only God
+- 1Ti1:7
+### 2.2 the self-existent (the un-created)
+### 2.3 the everlasting,
+- Neh9:5
+- Jn1:1
+### 2.4 God loves Himself
+- He expresses His love through the Son (Mt3:16-17)
+- He acknowledges only the things in the Son (Jn14:21)
+
+## 3. the heaven that God created for the Son
+### 3.1 the kingdom of God, the kingdom of heaven: the created spiritual heaven
+- Col1:16
+### 3.2 the expression of God's absolute love for the Son
+- He1:2
+### 3.3 the spiritual heaven is at the right hand of God
+- Mk16:19
+- 1Pe3:22
+### 3.4 God placed the throne in heaven
+- He1:3
+
+## 4. the three-day death of Jesus
+- Jn10:18
+- Is35:1-2
+
+## II. God is the only true God
+- Jn17:3
+- 1Jn3:8
+## 1. God has no need for space
+## 2. God has His own glory
+- Jn17:5
+- Ps133:3
+- Mt5:3
+- Jn15:11
+
+## 3. God has His own will
+- Jn12:49
+- Jn14:10
+## III. what did God put in heaven?
+- Col1:13-20
+1. the throne for the Son
+1. the name of God
+1. the glory of God
+- He1:4-5
+
+What is glory?
+
+## IV. the only begotten Son
+- Jn1:1, 14
+NIV: "the one and only son"
+NKJV: "the only begotten of the Father"
+ESV: "the only son"
+
+"the only of its kind"
+
+## 1. the death and the resurrection of Jesus
+- Jn10:18
+
+## 2. Jesus entered heaven
+- Php2:6-11
+### 2.1 Jesus did not consider equality with God something to be grasped
+- Jn17:5
+- Pr8:22-31
+
+### 2.2 Jesus resurrected and sat on the throne
+- He8:1-3
+
+
+## summary
+- In the spiritual heaven, god placed his throne, his name and his glory
+- For that glory to be glorious he made angels
+- As expected lucifer rebelled the way for JX to come as Christ
+- The very nature God who was in the bosom of the Father became flesh and appeared on earth and died on a cross
+- JX resurrected, ascended to heaven and sat on the throne
+- As the most glorious one in the heavenly sanctuary he serves the Father forever.
+
+---
+# Lec 14
+## V. God placed angels
+the order of thing God created:
+1. the spiritual heaven
+1. the angels - "host", "the cherubim"
+1. the universe / world
+
+## 1. the archangels
+the hebrew (enoch) apocrypha
+
+## 2. "the angel of the lord"
+- Ge18:1-2, 22
+
+    "three men" -> angels
+
+    who is "the lord" -> angel (in OT)
+- Ge19:1
+- Ge16:7, 13
+- Ex3:2, 4-5
+- Ac7:35, 53
+
+## 3. Lucifer
+- Is14:12-15
+
+    lucifer: lux/lucis + ferre -> "light-bringer"
+
+    person is made of intelligence, emotion and free will
+
+- Jn1:1, 4
+- Jn12:50
+- Eze28:12-17
+
+    the perfection of the created
+- Is14:11
+
+    angels fell
+
+## 4. the universe
+- 2Pe2:4 "gloomy dungeons", "chains of darkness", "Greek Tartarus"
+- Jude1:6 "in darkness"
+- Is14:15
+- Ge1:1-2 the spirit of God hovering over the "outer" surface of water
+
+### the universe is finite
+- Ge1:2
+- Ge1:7-10
+- 2Pe3:5
+
+### the content of Lucifer's rebellion
+1. the Denial of the only true God
+1. deification of the created
+1. challenged God
+1. disrupted the rest of God ???
+
+### the stages of Eve's fall
+1. denied the only true God: "you will be like God"
+1. deified the created: "you will be like God"
+1. blasphemed the name of God: "you will not surely die"
+1. destroyed the order of the Garden of Eden
+
+### the devil's challenged to Jesus
+1. denied the Son of God by tempting with food and strsesing His humanity
+1. tested the Word of God and blasphemed
+1. tempted Him to worship the devil
+1. a creation tested the Son of God and destroyed the order
+
+### the Ten Commandments and the ethics of faith
+1. ehics regarding deity
+1. ehics regarding image
+1. ehics regarding honor
+1. ehics regarding separation
+
+|Lucifer's rebellion   | Eve's fall  | the devil's temptation| Ten Commandments|
+|---|---|---|---|
+|   |   |   |   |
+<!-- TODO -->
+
+### sheol (hades)
+1. Sheol
+
+    = the universe
+
+    = "the first heaven and the first earth" (Rev21:1)
+
+    = the world that will become hell (Is14:15)
+
+1. Sheol = the lowest place for the Son of God
+
+---
+# Lec 15
+- 2Pe3:7-13
+- Mt25:34, 41
+- Rev21:1
+- Jn3:13
+- Ge1:6-8
+
+### eschatology
+
+## the univers was created by the Triune God
+onr God n three persons, in agreement of each other: the Father, the Son, the Holy Spirit
+- Ge1:26 "in our image"
+
+the man was made in the image of the Son
+- Ge3:22
+- 1Jn3:8
+- Jn1:1, 14, 18
+
+the Son has already had an image when He was with the Word
+
+## the Trinity
+| Father  | Son  | HS |
+|---|---|---|
+|   Creator| Redeemer  | Helper|
+| Ideological| Visible| experiential|
+|outside the universe| within the universe| inside the soul, inside the church|
+before the creation of the heavens and the earth| 2000 years ago| after the Pentecost|
+
+## the Satan and the devil are the same person
+
+| Satan  | the Devil  |
+|---|---|
+|  unlawful | legitimately unlawful  |
+| rebelled against God| against men|
+traitor, rebel, betrayer| seperator, divider|
+
+### God's method of punishment
+- Jas1:13
+- Jn12:48
+- He2:14
+
+### devil
+-> diablo "to separate, to destroy"
+- Rm13:1
+- Jude1:6
+
+### the Son was decided to be the rightousness in the begninning
+
+### the devil sinned from the beginning
+|the origin of sin   |   the father of lies|the first murderer|
+|---|---|---|
+|   in heaven| in the Garden  |outside the Garden|
+|opposed/rebelled against God (Ls14:12-15, 1Jn3:8)| lied to Eve (Jn8:14)| Cain's murder (1Jn3:12)|
+
+
+## redemption, salvation & eternal life
+|  redemption |salvation   | eternal life|
+|---|---|---|
+| past   |   present| future|
+JX paid the price of sin through His death| those who believe in the redemption of JX are forgiven| begins at the time of the resurrection to life|
+| "believe this historical fact"| "come out of the wicked world"| "live with the hope of resurrection"|
+
+- Rm10:10
+-
+-
+
+|"you have been saved"   |"be saved"   | "you will be saved"|
+|---|---|---|
+|from the past (Eph2:38)   | present (ac2:40)  | future (Rm8:23)|
+| by believing the blood of Jesus| by sustaining salvation with the word| by becoming the firstfruits of the Holy Spirit|
+
+---
+# Lec 16
+- 1Jn3:8
+- Ge1:26-27
+
+## Christ is the image of God
+- Jn14:8-9
+- 2Co4:4 "the image of God"
+- Col1:15 "the form of God"
+- Php2:6 "the very nature God"
+- He1:3 "the exact representation of His being"
+- Jn8:56-58
+- Php2:6-8
+
+## the creation of man
+- Eph1:4
+- Mt1:21, 23
+- Col1:15-
+
+### the purpose of the son of God coming in the flesh
+1. to glorify the Father (Php2:6-11)
+1. to destroy the devil (1Jn3:8)
+1. to save men (Jn3:16)
+
+### different title of the devil
+1. Luciel: the bright star, angel
+1. Satan: rebel who left his proper domain
+1. Lucifer: Son of the dawn, the evil king (Is14:12)
+1. the ruler of darkness, the prince of the air: Hades, the universe (Eph2:2)
+1. the devil: the separator (Ge3:4-6), the father of lies (Jn8:44; Rev12:9)
+1. the ruler of death: after Adam sinned (he2:15)
+
+- Mk1:1-3
+
+Adam prepared ***flesh***, the condition for death and ***sin***, the attribute of death
+
+the flesh of Jesus ->
+the Word that became flesh,
+the God that became flesh,
+the spirit that became flesh.
+
+## God decided the Word to be the righteousness
+- Jn16:9 sin because people do not believe???
+- 2Co5:21
+
+| the law  | the devil   | the righteous God|
+|---|---|---|
+|the law of condemnation   | the one who brings false charges  | the One who judges  |
+|the criminal| the prosecutor| the judge|
+
+
+## the plan of God
+1. decided in eternity to appoint the Son as the Heir of all things(He1:2)
+1. created the spiritual heavenL put His name, the throne and glory
+1. placed angels in heaven to glorify Him - Satan rebelled
+1. created Hades (the first heaven and the first earth) - contained the fallen angels until judgement
+1. created man in the image of God - Adam's sin - death
+1. the Son of God - the offspring of the woman - appeared like man , in the form of servant
+1. obedient to the point of death - finished all
+1. gave the name Yeshua to the Son - every knee bows down before Him and every tongue confesses that He is Lord, to the glory of the Father
+
+###  Men were made to receive ***grace***
+- 2Co6:2
+
+### the human flesh is a garment of suffering
+- Ge3:19
+- Jude1:9
+- Rm8:31-34
+
+---
+# Lec 17
+## VIII. the relationship between God and man
+- He2:5-9
+- Jas1:13 to tempt: to test, to challenge
+- 1Jn4:9
+
+the only begotten son is the measure of God's love
+
+### men are the object of God's love
+- He1:7, 14
+
+### men are created a little less than the angels
+- He2:7
+
+### the origin of sin is the devil
+- He2:9,11,14
+- 1Jn3:8
+- 1Co15:45
+
+### Jesus and men were born for the same purpose
+- Mt3:16-17
+
+### the duty and the right to be loved
+- the Father God is who made my flesh
+- the Son is the Father who gave birth to my soul
+- the Holy Spirit is the Father who nurtures my soul
+
+---
+# Lec 18
+## IX. the offspring of the woman
+- Ge3:14-21
+- 1Ti2:13-14
+### 1. The woman - was deceived
+### 2. The first Ad - ate the fruit - sin and death
+### 3. The last Ad - theoffsrping of the woman - nailed sin and death to the cross - saved man, condemned the devil, glorified God
+- 1Pe5:8
+
+### the result of Adam's sin
+1. hardship in finding the plants of the field
+1. pains in childbearing for the woman
+
+- Ps51:5
+- Mt10:28-31
+- Is53:5
+- 2Co8:9
+
+### the suffering of Jesus
+1. pierced - transgressions
+1. crushed - iniquities
+1. punished - peace
+1. wounded- healing
+1. poor - rich
+
+### 4. The serpant - animal - no legs after his corruption
+
+### 5.man - used by the devil and sinned - the offspring of Satan
+- Jn13:18
+- Mt25:31-33
+- Mt25:41
+- Rev12:11, 17
+
+## X. the garden of Eden
+- Ge2:10-17
+- Ge3:22-24
+- the first Ad = the living spirit = the branch
+- the last Ad = the life-giving spirit = the river
+- Jn6:63
+
+### the garden of Eden is an appropriate place for the living being
+1. the Pishon: wealth
+    - 3Jn1:2
+    - Dt8:16, 18
+1. the Gihon: grace
+    - Jn1:16
+    - Eph2:8-9
+
+    | the grace of Christ  | the love of the Father  | the fellowship of the HS|
+    |---|---|---|
+    |   his redemption - the forgiveness of sin|nurtures children   | guides and works|
+    | past| present| future|
+    |must sustain|
+    <!-- TODO must sustain in middle -->
+
+1. the Tigris: fruit
+    - Mt7:7
+    - Ps126:5
+    - Mk10:29-30
+    - Mal3:10-12
+    - Hag1:9-11
+1. the Euphrates: power
+    - Ac10:38
+    - Ac4:29-30
+
+---
+# Lec 19
+## XI. God's plan for man (the function of man and Adam)
+## 1. the plan for the form of man
+- Ge1:26-31
+
+### 1.1 creating man from the dust of the ground
+- Ge2:7
+
+### 1.2 creating man and woman
+- Ge1:27-28
+
+### 1.3 making man a living being
+- Ge2:7
+
+    Adam
+    - ***NOT*** the first man
+    - given the work of ***guarding*** the Garden
+    - God gave ***the Word*** as his food
+
+## the sons of God, the daughters of men, and the nephilim
+
+spiritual being * non-spiritual being = non-spiritual being
+
+the Nephilim: offspring of mixed,
+"the fallen out", "the fallen", "giants" (Ez32:27)
+- Ge6:1-4, 9
+- Ge2:18
+
+## man's work and the spirit's work
+- the nazca line's Peru
+- the stonehenge, England
+- the pyramids of Giza, Egypt
+- the pyramid of the sun, Mexico
+
+## the flesh, the soul and the spirit
+- animal = flesh + primitive person (the "soul")
+- man = flesh + person (the "soul")
+- the living being = flesh + person (the "soul") ***+ spirit*** = ***flesh + soul***
+
+the person(a)
+
+= intelligence + emotion + free will
+
+!= a being
+
+= a function
+
+Watchman Nees' the trichotomy theoty of the constitution of human being (***wrong***)
+
+a living being has:
+- 2 beings: flesh + spirit
+- 3 functions: flesh, spirit, person
+
+the true me = spirit
+
+<br>
+
+### the great judgement
+- Noah's time: judgement bu water - on the flesh formed out of water (2Pe3:5-6)
+- The last day: judgement by the Word(spirit) - on the spirit, Adam's descendants (2Pe3:7)
+
+## XII. the righteousness of God
+### righteousness (law)
+
+### different interpretations of sin
+- religious (doctrine): greed -> deny the self
+- ethical (social): destruction of order -> coexistence
+- moral (individual): corruption of the heart -> correct oneself
+
+<br>
+
+- the Greek thinking: the separation from the self (humanist)
+- the Hebrew thinking: the separation from God (theistic)
+
+the origin of sin is devil
+|the first to commit sin   |the father of lies   | the first murderer|
+|---|---|---|
+|  in the spiritual heaven |in the Garden of Eden   |out of the Garden|
+|Satan / dragon (1Jn3:8; Rev12:9)|the devil, the ancient serpent (Jn8:44; Rev12:9)| leading th whole world astray (Jn8:44; 1Jn3:12)|

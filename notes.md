@@ -31,6 +31,8 @@ The purpose to
 
 
 
+
+
 # Lec 2
 ## The bible distinguishes the natural revelation and higher revelation
 
@@ -311,7 +313,7 @@ Yeshua is the christ
 |King   | The name  |
 | The son of Man| the son of god|
 | the mission of coming in the flesh| to whosoever believes through the Holy Spirit|
-|Death, ressurection, ascension, the throne, return| Immanuel (Gos with us)|
+|Death, resurrection, ascension, the throne, return| Immanuel (Gos with us)|
 
 #### regarding love
 - Mt20:28
@@ -1608,3 +1610,371 @@ the origin of sin is devil
 |---|---|---|
 |  in the spiritual heaven |in the Garden of Eden   |out of the Garden|
 |Satan / dragon (1Jn3:8; Rev12:9)|the devil, the ancient serpent (Jn8:44; Rev12:9)| leading th whole world astray (Jn8:44; 1Jn3:12)|
+
+---
+# Lec 20
+## XIV. the fig leaves and the garments of skin (human civilization and spiritual grace)
+
+- Fig leaves: man's method
+- Garments of skin: God's method
+
+knowing "good and evil" = understanding the problem of life and death
+
+Apple:
+1. good for food (Da1:8)
+1. pleasing to the eye (Ge6:2)
+1. desirable for gaining wisdom (Rev13:15-18)
+
+### ***How it applies to the modern life***
+1. keeping the ethics and the lineage of the family (Ge3:16???)
+1. the order of materials (Ge3:17)
+1. the life that lives by the grace of God
+
+## XV. the day God made holy
+- Ge2:1-3
+
+### two types of God's ***blessings*** at creation
+1. material (cultural): to multiply - proliferation - ends
+1. spiritual (holy): be holy - holiness - no end
+
+what happend?
+1. 1st: light, till today
+1. 2nd: the expanse, till today
+1. 3rd: plants and lands, till today
+1. 4th: sun, moon and star, till today
+1. 5th: fish and birds, till today
+1. 6th: animals, men, till today
+1. 7th: be blessed: holy - God's rest
+
+Holiness = God's resting environment = to be set apart (different)
+there is end to X but no end to holiness
+
+### The sabbath and the holy day
+***the Sabbath***: the day in which God rested
+
+***the holy day***: the day God made holy
+
+The essence of the Sabbath is holiness
+- He10:3-14
+- He9:11-12
+- He10:19-20
+- Mt5:8
+- He12:14
+- Jn17:17
+
+***the Truth*** = the Father's words (Jn17:11) = the wods of Jesus (Jn14:24) -> ***holy***
+
+The souls ***sanctified*** by the blood of Jesus -> sanctified by ***the truth*** -> eternal rest
+
+Yeshua is the Lord of
+- Mt12:8
+- Lk6:5
+- Mt11:28
+
+### the Sabbath and the Lord's day
+| the Sabbath  |the Lord's Day   |
+|---|---|
+|  the day when the Creator God finishd His work and entered rest |   the day when the Redeemer God Jesus finished his work and entered rest, the day He resurrected|
+| the 7th day| ***the 8th day, "another day" (He4:8)***|
+
+- Rm5:18
+- Lk12:49
+
+the day He made holy
+### the resurrection of Jesus
+the completion of His work, thebeginning of His ***eternal rest***
+
+### Saints
+the souls, sanctified by the blood of JX, who put effort to resurrect with Him and go to the Father's house for eternal rest
+- Ex20:8-11
+
+### The importance of the holy day
+1. without the day, men would forget to make it holy
+1. to possess the hope to enter God's environment
+
+### Remembrance
+1. God created all things  -- the Creator
+1. He finished His work -- rested -- became the Owner of all things
+
+### Why we need to keep the Lord's day
+- Ac20:3
+
+### How do we keep it holy?
+- Is58:13-14
+- He4:6-11
+
+
+# Lec21
+## XVI. the sons of God and the daughters of men
+- Ge6:1-3
+
+### three origins of men
+|offspring of Adam (offspring of Seth)   |   living being| "Sons of God"|
+|---|---|---|
+|Nephilim / mixed offspring (of the teo groups)   | no spirit  | "daughters of men"|
+
+
+### the descendants of Seth
+1. Adam - Noah (Ge4:26; 1Pe3:19-20)
+(the original sin) no Command Rev Cov.
+1. Noah - Moses (Ge9:4 given command) yes * 3
+1. Moses - Jesus (Ex24:6-8; Lev17:11-13) yes * 3
+1. Jesus - the second coming  (Mt26:27-28) yes * 3
+
+resurrection starts from Noah
+
+### the life after death
+1. Adam - Noah (1Pe4:6) spiritual prison
+
+Paradise locates across over second and third heaven, which contains Father's house. The part of which lies in second heaven is called spiritual prison, but not hell. The part which lies in third heaven is called Abraham's bason or side
+
+the people who went to spiritual prison became angels???
+
+1. Noah - Jesus (Lk16:23)
+who died in this period is only qualified for second resurrection, going to paradise, as servants
+
+1. after Jesus (Lk23:43)
+qualified for first resurrection, going to paradise, as heirs children of God
+
+### the world in the life afte death
+- 1Pe4:7
+- 1Co15:21-24, 41-44
+
+3 orders of resurrection: 1. Jesus, 2. children of God, 3. after millennium
+- Rm8:17
+
+### unbelievers after death
+in Hades up to 120 years -> to the Abyss (within Hades)(spiritual space in the universe) after
+- Lk8:26-31
+
+### saints after death
+- Rev8:3-4
+
+|saints   |believers   |
+|:---:|:---:|
+|  use their flesh as God's tools |use their flesh as man   |
+| 1st resurrection| 2nd resurrection|
+
+- Rev4:6-10
+
+## XVII. the death of the first Adam and the resurrection of the last Adam
+- 1Co15:45-47
+
+he important connection between the first Adam and the last Adam
+|first Adam (all men)   |last Adam   |
+|---|---|
+|   living spirit|life-giving spirit   |
+| has flesh| spiritual|
+| born on earth| born in heaven|
+| of the dust of earth| of heaven|
+
+### 1. the death of Jesus
+- 1Jn4:2-3
+- Jn10:17-18
+
+|||
+|---|---|
+|***The universe***   |the place for (the death of Jesus)  |
+| Man  |the condition for (the flesh and sin)   |
+| The law| the context of|
+| ***Miracles***| the power of|
+
+- Jn3:14-15
+- Nu21:6-9
+- Col2:14-15
+
+The outcomes of the death of Jesus on the cross
+1. redemption
+1. salvation
+1. healing
+
+### 2. the resurrection of Jesus
+- 1Co15:12-19
+
+The power of the resurrection of Jesus
+1. the resurrection of saints
+1. children of God
+1. eternal life
+
+- 1Co15:20-24, 50-52
+- Rev20:4-6
+
+### the first Adam and the last Adam
+### the body of Jesus and the spirit of man are on the same level
+### redemption and the forgeveness of sin
+
+---
+### Lec 23
+## XVIII. The Holy Spirit in the time of grace
+- Rm5:12-21
+
+### major biblical eras
+|   |   |
+|---|---|
+|adam - Noah   |  era of Deity-Consciousness |
+|Noash - Moses|era of Sacrifice|
+|Moses - John the Baptist|era of the Law|
+|Jesus - the Second Coming|era of Grace|
+|the Second Coming - Judgement|era of the Millenium, the kingdom on earth|
+
+### the millennium
+- Rev20:2-8
+
+|   |   |
+|---|---|
+|Premillennium   | the Second Coming of Jesus - the Millennium - the Great Judgement  |
+|Amillennium|No Millennium|
+|PostMillennium|the Millennium - the Second Coming of Jesus - the Great Judgement|
+
+
+|E DC   | E S  |E L|E G|E M|
+|---|---|---|---|---|
+|Blood: no covenant, no revelation, no commandment   |   |||||
+
+### the death of Jesus
+- Ac4:12
+### the Holy Spirit of Grace
+- He11:13, 39-40
+
+|OT Men   |NT Men   |
+|---|---|
+| had faith, had sin  | the death of Jesus  |
+|testified by blood|the death of Jesus|
+|died in sin|sins taken away|
+|sin of disobedience|sin of unbelief|
+
+the NT men
+- Jn3:18
+- Jn16:9
+- Jn11:25-26
+
+the OT men
+- Rm2:12-16
+
+### the sign of Jonah
+- Mt12:39-41
+- Mt3:10
+- Mt12:43-45
+
+the condemnation under the Gospel is seven times weightier than the condemnation under the Law
+
+- Ge4:5
+- Mt12:29
+- Lk10:23
+
+### Christians in the era of Grace
+- Lk7:28
+OT men < John < NT men
+
+|   |OT men   |NT men|
+|---|---|---|
+|   Spirit|the spirit of servant   |the spirit of the Son|
+|blood|blood of animals|blood of JX|
+|promies|None|HS|
+|life-after-death|Abraham's side|Paradise|
+|resurrection|second|first|
+
+- 2Co1:21-22
+- Ac2:38
+
+| the works of JX  |the HS   |
+|---|---|
+|  in sin |the saved souls   |
+|by grace| by grace; requirement not for redemption but for salvation|
+
+|IS   |Christians   |
+|---|---|
+|  nurtured by the prophets | nurtured by the HS  |
+|under suffering, curse|under grace and truth|
+|fear|peace, joy, happiness|
+
+- Rm8:32
+
+### the new commandment
+- 1Co9:16
+
+the law: if obey -> righteous. if not -> cursed
+the Gospel: if not preach -> woe
+
+the four men with leprosy in samaria
+- 2Ki6:7
+- Eze33:1-9
+- 2Co6:2
+
+|OT Men   |NT Men   |
+|---|---|
+| coworkers for the death of JX  |   coworkers for the ministry of the grace of JX|
+|under curse|in suffering|
+
+grace received
+1. forgiven
+1. inspired by the HS
+1. received the commandment to save souls
+---
+# Lec24
+## XIX. the dispensation of God
+God's schedule for his plan and purpose
+### the timetable of God
+the Bible  = the schedule of God's schedule = OT + NT ("testament" = will, prophecy)
+- He9:16-17
+
+|the death of Jesus   |   the resurrection of Jesus|
+|---|---|
+|  redemption, salvation, healing |resurection, children of God, eternal life   |
+|prophecies of the prophets|prophecies of Jesus|
+
+<br>
+
+|the law and the prophets   | Jesus  |the HS|
+|---|---|---|
+|the death of JX   |His resurrectoinm the HS and His Scound Coming   |be witnesses of JX|
+
+### testimonies
+|   |   |
+|---|---|
+|the death of JX   |unbelievers (the world)   |
+|the resurrection of JX|the disciples (1Col15:4-5)|
+|the ascension of JX|the disciples, 500 followers (1Co15:6)|
+|Jx ont he throne|the HS (Ac2:32, 5:30-31)|
+
+<br>
+
+|the Son of Man   |the HS   |
+|---|---|
+|   advocate for saints|advocate for JX   |
+|defends saints before the Father|defends JX in saints|
+
+- 1Jn2:1
+- Mt10:32-33
+- Rev12-11
+- Jn17:17
+- Mt10:19-20
+
+## the second coming of JX and its signs (the apocalypse)
+- Mt24:33-36
+### 1. the beginning of tribulation (wars, famines, earthquakes etc.m)
+- Mk13:10
+### 2. the Son of Man comes before we finish going through the cities of Isarael
+- Mt10:23, 26-27
+### 3. when the number of those sealed among Israel reaches 144,100
+- Rev7:4-8
+- Rev14:3-5
+- Rm8:17-25
+- Rm11:25-31
+
+144,000 != the total number of the sealed(Jewish)
+
+"the first fruit of the spirit"
+ = "the redemption of our bodies"
+ = first resurrection
+
+ ### 4. the lesson from the fig tree and the second coming of the Son of man
+ - Mt24:32
+ - Lk21:20-24
+
+ ### 5. when people are saying "peace and safety"
+- 1Th5:1-3
+- Rev13:1-4
+- Rev17:13, 17
+- Rev6:5-6
+- Rev13:15-18

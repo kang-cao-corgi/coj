@@ -36,10 +36,106 @@ Do not re-interpret.
 on way to see, on line in dial.
 zoom in and zoom out at different scope.
 
-the purpose of reading the bible - eternal life <br> Jn5:39
+- the purpose of reading the bible - eternal life <br> Jn5:39
 > You study the Scriptures diligently because you think that in them you have eternal life. These are the very Scriptures that testify about me.
 
-eternal(no time involved, timeless) life is living like God. We must meet **Jesus** in the Bible.
+eternal(no time involved, timeless) life is living like God. We must meet **Jesus** in the Bible. Bible is not an object of research. Theology, "theo" means study of God by human. We need approach the God through the Bible.
+
+- The Bible hegins with a story of **3 types of spiritual beings** that are entirely different in their essence.
+
+|God|Angels|Men|
+|--|--|--|
+|transcendant|intermediary|limited|
+the creator, the beginning and the end(Rev22:13)|ministers, servants(He1:7, 14)|partners, heirs(Rm8:17; 1Co3:9)|
+
+Rev22:13
+> I am the Alpha and the Omega, the First and the Last, the Beginning and the End.
+
+He1:7, 14
+> In speaking of the angels he says,
+“He makes his angels spirits,
+    and his servants flames of fire.
+
+> Are not all angels ministering spirits sent to serve those who will inherit salvation?
+
+Rm8:17
+> Now if we are children, then we are heirs—heirs of God and co-heirs with Christ, if indeed we share in his sufferings in order that we may also share in his glory.
+
+1Co3:9
+> For we are co-workers in God’s service; you are God’s field, God’s building.
+
+- the main character in the Bible is **Jesus**
+
+Jn8:56-58
+> Your father Abraham rejoiced at the thought of seeing my day; he saw it and was glad.” “You are not yet fifty years old,” they said to him, “and you have seen Abraham!” “Very truly I tell you,” Jesus answered, “before Abraham was born, I am!”
+
+- the purpose of the Bible is for man to know God
+
+1Jn2:12-13
+> I am writing to you, dear children,
+    because your sins have been forgiven on account of his name. I am writing to you, fathers,
+    because you know him who is from the beginning.
+I am writing to you, young men,
+    because you have overcome the evil one.
+
+- 2 approaches to read the Bible
+
+|Greek approach| Hebrew approach|
+|---|---|
+|"how?"|"why"|
+|method-driven|purpose-driven|
+|man-centered (anthropocentrism)| God-centered (throcentricism)|
+
+"Is God for man?" vs
+"Is man for God?"
+
+- **Eternal life** is knowing God who sent **Jesus** as the Son
+
+Jn 17:3
+> Now this is eternal life: that they know you, the only true God, and Jesus Christ, whom you have sent.
+
+to know = to experience
+- you will konw when you receive the HS
+
+Jn14:17
+> the Spirit of truth. The world cannot accept him, because it neither sees him nor knows him. But you know him, for he lives with you and will be in you.
+
+1Co2:10-11
+> these are the things God has revealed to us by his Spirit. The Spirit searches all things, even the deep things of God. For who knows a person’s thoughts except their own spirit within them? In the same way no one knows the thoughts of God except the Spirit of God.
+
+John's role was to introduce Jesus, after that he is finished (died).
+
+1. we must hear the words of Jesus
+1. men are destroyed for not knowing God
+
+Hos4:6
+> my people are destroyed from lack of knowledge.
+“Because you have rejected knowledge,
+    I also reject you as my priests;
+because you have ignored the law of your God,
+    I also will ignore your children.
+
+Hos6:6
+> For I desire mercy, not sacrifice,
+    and acknowledgment of God rather than burnt offerings.
+
+Jn16:2-3
+> They will put you out of the synagogue; in fact, the time is coming when anyone who kills you will think they are offering a service to God. They will do such things because they have not known the Father or me.
+
+3. you will know the Lord
+
+Hos2:19-20
+> I will betroth you to me forever;
+    I will betroth you in righteousness and justice,
+    in love and compassion.
+20 I will betroth you in faithfulness,
+    and you will acknowledge the Lord.
+
+1Co13:12
+> For now we see only a reflection as in a mirror; then we shall see face to face. Now I know in part; then I shall know fully, even as I am fully known.
+
+Rev3:20
+> Here I am! I stand at the door and knock. If anyone hears my voice and opens the door, I will come in and eat with that person, and they with me.
 
 ## Lec 2
 

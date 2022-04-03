@@ -139,125 +139,137 @@ Rev3:20
 
 ## Lec 2
 
-## The bible distinguishes the natural revelation and higher revelation
+### The bible distinguishes the natural revelation and higher revelation
 
 | natural revelation   | higher revelation      |
 | -------------------- | ---------------------- |
-| the creator          | the savior             |
-| through the creation | through the son        |
+| the Creator          | the Savior             |
+| through the creation | through the Son        |
 | to all               | to believers           |
-| Ge1:1; Rm 1:19-20    | Jn1:1-3,14,18; He1:1-2 |
+| Ge1:1; Rm 1:19-20;    | Jn1:1-3,14,18; He1:1-2 |
 
 - higher revelation can only be received after natural revelation.
   eg. knowledge believe
 
-## The natural revelation
+### The natural revelation - Rm1:19-20
 
-- two major theories on the beginning of life
-  1. evolution
-  2. creation
+- two different views on the origin of life
+  1. evolution - everything created w/o creator
+  1. creation
 
-     ## eveolution
+---
+### evolution
 
-     Everything formed w/o direction.
-     the naturalistic ciew
+Everything formed w/o direction.
+the naturalistic view
 - progressive creation: burst
-- theistic evolution: god: let there be creatures, let it happen and evolve
+- theistic evolution: god: let there be creatures, let it happen and evolve - directed evolution
 - atheistic evolution: plain evolution learned in school
 
   #### cosmic evolution
-  - the bigbang theory, the universe started with a small singularity, then inflated over the next 13.8 billion years to the cosmos of today.
-  - but where did that singularity come from?
-
-    #### geological evolution
-  - the nebular hypothesis
+  - the bigbang theory, the universe started with a small **singularity**, then inflated over the next 13.8 billion years to the cosmos of today.
+  - but where did that singularity come from? multi-verse theory, Steve Hawkin - shrink boundary proposal
+  #### geological evolution: the nebular hypothesis
   - the solar system formed from a swirling cloud of gas and dust 4.6 billion years ago.
-  - but stardust particles do not form into planets and planetesimals rather they bounce ooff or collide to explide
+  - but stardust particles do not form into planets and planetesimals rather they bounce off or collide to explide
+  - the Earth: the solar-nebular model says the Earth was formed about 4.5 billions years ago. But its strong magnetic field, too little sodium in the sea, intact DNA in fossils etc. all indicate a young Earth
   - also the sun should be spinning much faster
   - the solar-nebular model sats eath was formed about 4.5 billion years ago
   - but its strong magnetic field too little sodium in the sea, intact DNA in fossils etc all indicate a YOUNG earth
 
-    #### earth iniqely designed to be out home
-
-    Isia 45:18
-    - its strong magnetci field protects us from harmful solar radiation
+    #### The Earth uniqely designed to be our home (Is45:18)
+    - its strong magnetic field protects us from harmful solar radiation
     - its atmosphere gives us air to breathe
     - our sun is perfectly located within our galaxy; our planet is perfectly located within our solar system
     - its water cycle protects and provides
 
-      #### moon
+    #### The Moon
     - its distance from earth allows its gravity to rise tides for earth
-    - its distance and szez allows for eclipses
+    - its distance and size allows for eclipses
     - evolution cannot explain its origin, geological activity or its recession for "billions of years"
 
-      #### a total solar eclipse
-    - possible becaise the sun is 4 times larger than the moon and 400 times further away
-    - because of this configuration ecluoses can be best viewed in earth
+    #### A total solar eclipse
+    - possible because the sun is 400 times larger than the moon and 400 times further away
+    - because of this configuration eclipses can be best viewed on the earth
     - this configuration also allows for life to exist on earth
 
-  ---
+---
 
-  ## The bibilical creation
+### The bibilical creation
 - The 6 day creation
 - The garden of Eden
 - Adam and Eve
 - The global flood etc
 
-  - ---
 - Ge 1:1 " In the beginning God created the heavens and the earth."
-- "Day" = YOM (Hebrew)  = A Solar day Ex20:11
+- "Day" = YOM (Hebrew)  = A Solar day
 
-  ### The theory of evolution
-
-  over a long period of time a species evolves to a new one in order to adapt to the environment
-
-  ### fossiles
-- evidence that Charles Darwin used for his theory in *On The Origins Of Species (1859)*
-- Q: Adam and Eve on 6th Day?
-- Missing Links? ***trasitional fossils***
-- The Archaeopteryx: a dinosaur or a bird
-
-  ### Life from non-life?
-- the formation of the first living thing that comes ...
-
-  ### information of life
-- the information that is required to run all the physical parts of life cannot be explained
-- the vast amount of the instructions stored in DNA had to come from preexisting information
-
-  ### what is information?
-- the basic ingredient producing anything functional in the world
-- the key to functionality is organization
-- the fundamental building block of the created universe
-
-  ### irreducible complexity
-
-  Q: 99% human DNA being alike proves nothing of God's Design
-- it challenges the notion of evolutionary process that requires every complex component of life arising step-by-step
-- *Michael Behe* quote
-- species that disapprove evolutionism
-  - acid beattle
-  - giraffe
-  - leaf-cut ant
-- is evolution science?
-- Scientific approach
-  - objective observation
-  - experiment: causal relationship criteria analysis
-  - evidence
-  - demostration: theories and laws
-
-    ### Evolution and Ceation commons
-- both theories make claims about the unobservable and unrepeatable past
-- both have the same evidence
-- both interpret base on a set of starting assumptions, different paradigms
-- both required ***faith***
-
-### ***Creation acceptes the bible as providing the answer to how, when and why all things came into existence***
-
+  Ex20:11
+  > For in six days the Lord made the heavens and the earth, the sea, and all that is in them, but he rested on the seventh day. Therefore the Lord blessed the Sabbath day and made it holy.
 ---
+### The theory of evolution
+  Over a **gradual time-consuming** process a new speies arises from an existing one trough random spontaneous genetic mutations that give a surviaval advantae in to hostile environment
 
-## The higher revelation
+  ### Fossiles
+  - evidence that Charles Darwin used for his theory in *On The Origins Of Species (1859)*
+  - Q: Adam and Eve on 6th Day?
+  - No found examples of in-between kinds: missing links? ***trasitional fossils***
+  - The Archaeopteryx: a dinosaur or a bird?
+
+  ### Puzzles that evolution cannot solve
+    #### 1. Life from non-life?
+    - The formation of the first living things that comes from nothing cannot be explained.
+
+    #### 2. Information of life (is evidence for creation)
+    - the information that is required to run all the physical parts of life cannot be explained
+    - the vast amount of the instructions stored in DNA had to come from preexisting information
+    - what is information?
+      - the basic ingredient producing anything functional in the world
+      - the key to functionality is organization
+      - the fundamental building block of the created universe
+
+    #### 3. Irreducible complexity
+    Q: 99% human DNA being alike proves nothing of God's Design
+    - it challenges the notion of evolutionary process that requires every complex component of life arising step-by-step
+    - *Michael J. Behe* quote
+    - species that disapprove evolutionism
+      - the bombardier beattle: 2 chambers
+      - giraffe, the valve to prevent blood flowing to head when it bows down
+      - leaf-cutter ant
+    - is evolution science?
+    - Scientific approach
+      - objective observation
+      - experiment: causal relationship criteria analysis
+      - evidence
+      - demostration: theories and laws
+
+  ### Is evolution science?
+  scientific method:
+  - objective observation
+  - experiment: caucal relationship, critical analysis
+  - evidence
+  - demonstration: theories and laws
+
+  ### Evolution and Ceation commons
+  - both **theories** make claims about the unobservable and unrepeatable past
+  - both have the same evidence
+  - both interpret base on a set of starting assumptions, different paradigms
+  - both required ***faith***
+
+Evolution denies the role of God in the universe
+
+**Creation acceptes the bible as the foundation for arriving at a correct understanding of the universe, providing the answer to how, when and why all things came into existence**
+
+### The higher revelation
 
 - Jn1:1-3,14,18
+
+> In the beginning was the Word, and the Word was with God, and the Word was God. He was with God in the beginning. Through him all things were made; without him nothing was made that has been made.
+
+> The Word became flesh and made his dwelling among us. We have seen his glory, the glory of the one and only Son, who came from the Father, full of grace and truth.
+
+> No one has ever seen God, but the one and only Son, who is himself God and is in closest relationship with the Father, has made him known.
+
 - He1:1-2
 - 1Jn1:1
 - Jn1:16

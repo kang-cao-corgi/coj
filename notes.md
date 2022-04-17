@@ -439,10 +439,9 @@ Christian faith exists without the text
 
 | religion                                    | christianity                        |
 | ------------------------------------------- | ----------------------------------- |
-| general , natural faith                     | faith by revelation, faith by grace |
+| general, natural faith                     | faith by revelation, faith by grace |
 | through doctrines, rituals and organization | though the revealed Word of God     |
 | Upward                                      | Downward                            |
-| man seeking God                             | God reveals                         |
 
 ### Religiosity vs. Faith
 
@@ -451,22 +450,26 @@ Christian faith exists without the text
 
 ### you cannot know God through philosophy
 
-Philosophy is the basis?
+Philosophy is the basis of knowledge?
 Could you know god through philosophy?
 
-### Two approaches in philosophy to under stand deity though reason
+#### Two approaches in Greek philosophy to understand *deity though reason*
 
 1. The ontological approach
 
-    (ontological: the state of being)
-
+    (ontological: the state of being/existence)
+   - "God is that, the greater than which cannot the conceived(感知)" - Anselm of Canterbury
+   - "I have concluded the evident existence depends entirely on God in all the moments of my life,
+   that I do not think that the human spirit may know anything with greater evidence and certitude(确信)" - Rene Descartes
    - understand god through the external
-   - god as the ground of being , the nature of being
-   - man cannot be separated to objectify god
+   - God as the ground of being , the nature of being
+   - man cannot be separated to objectify God
    - "Since I exist, god must exist"
+   - "I become the divine, the divine becomes me" - the concluding statement
 
-    god = "emptyness"
-    the immanence throty = god is inseparable from
+    god = "emptyness"<br>
+    the immanence theory / pantheism = god is inseparable from<br>
+    you canont prove/disprove existence of God<br>
 
 2. The idealistic approach
 
@@ -480,80 +483,109 @@ Could you know god through philosophy?
 
    - the consciousness of man is the consciousness of god
 
-     the divine = nothingness emptiness
-     nihilism buddhism reality = nothing
+   - the divine = nothingness, emptiness, meaninglessness<br>
+     nihilism(尼采) <-> buddhism: reality being empty, full of suffering because of cravings, nothing is permanent, nothing is cause-less
 
-Conclusion: neither philosophy nor religion can know the divine
+Conclusion: neither philosophy nor religion can know the divine. the only way is through revelation
 
 Mt11:25-27
 
+> At that time Jesus said, “I praise you, Father, Lord of heaven and earth, because you have hidden these things from the wise and learned, and revealed them to little children. Yes, Father, for this is what you were pleased to do.
+ “All things have been committed to me by my Father. No one knows the Son except the Father, and no one knows the Father except the Son and those to whom the Son chooses to reveal him.
+
+*children* are those who are pure-minded and bumble-hearted.
+
+### The Bible offers evidence for Faith: the resurrection of Jesus
+- 1Co15:13-19
+- Ac2:32
+
 ### Christianity is responding to the divine call
+
+Christianity is a faith of confession
 
 | action       | confession               | acknowledgement                 |
 | ------------ | ------------------------ | ------------------------------- |
-| worship      | revealing my faith       | god's omnipresence              |
-| repentance   | confessing my sins       | god's righeousness, omniscience |
-| prayer       | confessing my inabilites | god's omnipotence               |
-| praise       | confessing my lowliness  | god's worthiness                |
-| tithing      | revealing my income      | god's ownership of all thins    |
-| thanksgiving | revealing my life        | god's grace and help            |
+| worship      | revealing my faith       | God's omnipresence              |
+| repentance   | confessing my sins       | God's righeousness, omniscience |
+| prayer       | confessing my inabilites | God's omnipotence               |
+| praise       | confessing my lowliness  | God's worthiness                |
+| tithing      | revealing my income      | God's ownership of all thins    |
+| thanksgiving | revealing my life        | God's grace and help            |
+
+praise: exalt 1. who He is, 2. what He has done and 3. His name
 
 Rm10:10
 Jn1:9
 
-### 1. god gave them not religion but his son
+#### 1. God gave men not religion but His son
 
 #### regarding repentance
 
+Where "repent"  is used in Bible:
 | repent Mt3:2                                          | repent Mt4:17                                             | repent Ac2:18                      |
 | ----------------------------------------------------- | --------------------------------------------------------- | ---------------------------------- |
-| John the baptist                                      | Jesus christ                                              | Apostles                           |
-| correct your knowledge of the deity and righteousness | turn from your direction towards the deity and turn to me | fix your thoughts towrds the deity |
+| John the baptist                                      | Jesus Christ                                              | Apostles                           |
+| correction your knowledge of the divine and righteousness | turn from your direction towards the divine and turn to me | fix your thoughts towrds the divine |
 
-Yeshua is the christ
+repentance means turning
+
+#### Yeshua is the Christ
 
 - Mt16:16
-- Ac17:3
+> Simon Peter answered, “You are the Messiah, the Son of the living God.”
 
-"Christ" "Messiah" = the anointed (king)
+- Ac17:3
+> explaining and proving that the Messiah had to suffer and rise from the dead. “This Jesus I am proclaiming to you is the Messiah,” he said.
+
+"Christ" "Messiah" = the Anointed (king)
 
 | Christ                                             | Yeshua                                        |
 | -------------------------------------------------- | --------------------------------------------- |
 | King                                               | The name                                      |
-| The son of Man                                     | the son of god                                |
-| the mission of coming in the flesh                 | to whosoever believes through the Holy Spirit |
+| The Son of Man                                     | the Son of God                                |
+| the mission of coming in the flesh                 | to whoever believes through the Holy Spirit   |
 | Death, resurrection, ascension, the throne, return | Immanuel (Gos with us)                        |
 
-#### regarding love
+### regarding love
+#### 1.the redemption of God is done by God
 
 - Mt20:28
+> just as the Son of Man did not come to be served, but to serve, and to give his life as a ransom for many.”
+
 - Rm5:6-8
+> You see, at just the right time, when we were still powerless, Christ died for the ungodly.
+Very rarely will anyone die for a righteous person, though for a good person someone might possibly dare to die.
+But God demonstrates his own love for us in this: While we were still sinners, Christ died for us.
 - 1Jn4:10
 
-only in christianity there is the redemption of god
+only in Christianity there is the redemption of God.
 
-### 2. god gave men not doctrine but fact
+#### 2. God gave men not doctrine but fact
 
-- men killed JX but god raised him
+- men killed Jesus but God raised Him
 
 - the son of man sent the HS and the HS testifies
 
 - Ac2:3
+> They saw what seemed to be tongues of fire that separated and came to rest on each of them.
 
 - Ac5:30-32
+> The God of our ancestors raised Jesus from the dead—whom you killed by hanging him on a cross.
+God exalted him to his own right hand as Prince and Savior that he might bring Israel to repentance and forgive their sins.
+We are witnesses of these things, and so is the Holy Spirit, whom God has given to those who obey him.”
+#### the lord's prayer is ***not*** a catechism(教理问答)
 
-### the lord's prayer is not a catechism
-
-#### the content of prayer
+#### the content of prayer / How do we pray?
 
 - the receiver of prayer
 - the purpose of prayer
-- the content of prayer
+- the content of prayer: for His kingdom to grow, for His will to come true in my life
 
-### for his events god calls men and lets them do his work
+#### for His events He calls men and lets them do His work
 
 - Ps23:1
-
+- Eze44:28
+> I am to be the only inheritance the priests have. You are to give them no possession in Israel; I will be their possession.
 ---
 
 # Lec 5

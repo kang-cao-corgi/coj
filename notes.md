@@ -276,87 +276,112 @@ Evolution denies the role of God in the universe
 
 ---
 
-# Lec 3
+## Lec 3 Culture
 
-## Culture
 
-the human world illustated in the bible is about the mutual and exclusive relationship between culture and faith
+### the human world illustated in the bible is about the mutual and exclusive relationship between culture and faith
 
+Is culture first or faith?
 culture = the environment where humans can be humans (live as)
 
-- Ge 1: 28
-- Mt 4: 4
-- Mt 6: 31,33
+Ge1:28
+  > God blessed them and said to them, "Be fruitful and increase in number; fill the earth and subdue it. Rule over the fish in the sea and the birds in the sky and over every living creature that moves on the ground."
+
+Mt4:4
+  > Jesus answered, “It is written: ‘Man shall not live on bread alone, but on every word that comes from the mouth of God.
+
+Mt6:31,33
+  >  So do not worry, saying, 'What shall we eat?' or 'What shall we drink?' or ‘What shall we wear?'
+
+  > But seek first his kingdom and his righteousness, and all these things will be given to you as well.
 
 Prioritize? faith all the time.
-Following lord's prayer
+Following Lord's prayer
 
 ---
 
-## The causal relationship between culture and faith
+### The causal relationship between culture and faith
 
 When men is tempted by culture, faith is cursed(corrupted), vice versa.
 
-- Ps1:3
-- Eze47:12
-1. ### challenging god because of food
+Ps1:3
+  > That person is like a tree planted by streams of water, which yields its fruit in season and whose leaf does not wither— whatever they do prospers.
+Eze47:12
+  > Fruit trees of all kinds will grow on both banks of the river. Their leaves will not wither, nor will their fruit fail. Every month they will bear fruit, because the water from the sanctuary flows to them. Their fruit will serve for food and their leaves for healing.
+1. challenging god because of food
 
-   - Ge3:1-14
+    Ge3:1-14
 
-2. ### hardship in life because of the coruption of faith
+2. hardship in life because of the coruption of faith
 
-   - Ge3:15-21
+    Ge3:15-21
 
-3. ### the invisible flaming sword
+3. the invisible flaming sword
+    Ge3:22-24
 
-   - Ge3:22-24
+    Dt28:30-34
 
-   - Dt28:30-34
+    there is no earthly paradise, human can create society that is promised to be like paradise. In fact, there is no paradise on Earth any more.
 
-     there is no earthly paradise
+4. when your faith reaches to God you will lose the world
 
-4. ### when your faith reaches to god you will lose the world
+    Ge4:1-8
 
-   - Ge4:1-8
+5. the judgement of God brings out the fear among men
 
-5. ### the judgement of God brings out the fear among men
+    Ge4:9-14
 
-   - Ge4:9-14
+6.  the protection of God stops the tribulation of culture
 
-6. ### the protection of god stops the tribulation of culture
+    Ge4:15
 
-   - Ge4:15
+7. seeing the daughters of men, the sons of God became corrupted
 
-7. ### seeing the daughters of men, the sons of god became corrupted
-
-   - Ge6:1-2
+    Ge6:1-2
 
 ---
 
-## Heaven
+### Heaven
 
-### The bible differentiates three heavens that are distinct in level and describes the events that develop in them
+### The bible differentiates ***three heavens*** that are distinct in level and describes the events that develop in them
 
-- 2Ch2:5
+2Ch2:5-6, 6:18
 
-### three different heavens
+> The temple I am going to build will be great, because our God is greater than all other gods. But who is able to build a temple for him, since the heavens, even the highest heavens, cannot contain him? Who then am I to build a temple for him, except as a place to burn sacrifices before him?
 
-- 2Ch2:5-6, 6:18
-- Ps148:4
+> But will God really dwell on earth with humans? The ***heavens***, even the highest heavens, cannot contain you. How much less this temple I have built!
+
+Ps148:4
+
+> Praise him, you highest ***heavens*** and you waters above the skies.
+### Three different heavens
 
 | First heaven                     | second                                   | third                           |
 | -------------------------------- | ---------------------------------------- | ------------------------------- |
 | the heaven within the atmosphere | the heaven of the firmament, the expanse | the heaven where ***gods*** are |
-| the sky Ge1:28                   | the space, the universe Ge1:1-2, 6-8     | tthe spiritual heaven 2Co12:2   |
+| the sky Ge1:28                   | the space, the universe Ge1:6-8     | the spiritual heaven 2Co12:2   |
 
-### the universe is finite
+small g gods -> angels
 
-- Act 1:11
-- Jn3:13
+#### the universe is finite
 
-### where is god
+Act 1:11
 
-- 2Ch2:6
+> "Men of Galilee," they said, "why do you stand here looking into the sky? This same Jesus, who has been taken from you into heaven, will come back in the same way you have seen him go into heaven."
+
+Jn 3:13
+
+> No one has ever gone into heaven except the one who came from heaven—the Son of Man.
+
+#### where is God?
+God is omnipresent. the Son is in heaven.
+
+2Ch2:6
+
+> But who is able to build a temple for him, since the heavens, even the highest heavens, cannot contain him? Who then am I to build a temple for him, except as a place to burn sacrifices before him?
+
+#### the universe
+Ge1:1-2, 6-7
 
 ### who governs where
 
@@ -369,32 +394,40 @@ When men is tempted by culture, faith is cursed(corrupted), vice versa.
 | paradise                        | father's house                        |
 | ------------------------------- | ------------------------------------- |
 | a portion of the third heaven   | the third heaven                      |
-| the souls of believers(Lk23:43) | in resurrected body (Jn14:2-3, 20:17) |
+| souls of believers(Lk23:43) | in resurrected body (Jn14:2-3, 20:17) |
 
-## Hell
+paradise: a spiritual space which is part of the third heaven.
+
+---
+### Hell
 
 prepared mechanism of punishment for devils
 
-### When wil anyone be thrown into hell
+#### When will anyone be thrown into hell
 
-- Mt 25:31-41
+- Mt25:31-41
 - Jude1:6
 - Rev20:15
 
-### where is hell
+#### Where is hell
 
 - Is14:15
 - Rev20:14
 - Rev21:1
+- 2Pe3:7
 
-## "Thy will be done on earth as it is in heaven"
+#### believers to paradise
+
+- Lk23:43
+
+#### "Thy will be done on earth as it is in heaven"
 
 - Mt6:10
 - Rev12:7-9
 
 ---
 
-# Lec 4
+## Lec 4
 
 ## Religion, albeit unclearly, demonstrations the common organization and deeds of faith
 

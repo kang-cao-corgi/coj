@@ -686,130 +686,138 @@ need to have experience of Word
 
 ---
 
-# Lec6
+## Lec 6
 
-## 2. the bible emphasizes obedience by faith
+### 2. the Bible emphasizes obedience by faith
 
 ### what is faith?
 
-- self-confidence (believe in the self)
+#### Self-confidence (believe in the self)
+- the "faith" of the natural people
+- self-assurance
+- subjective
+- based on one's own experience and knowledge
+- probability of success
 
-  - the "faith" of the natural people
-  - self-assurance
-  - subjective
-  - based on one's own experience and knowledge
-  - probability of success
+#### ***Faith***
+- the faith in God
+- the assurance of God
+- objective
+- base on the Word of God
+- 100% of God's guarantee for success
 
-- ***faith***
+Mt14:25-29, Jesus walked on water and ***commanded*** Peter to walk on water.
 
-  - the faith of god
-  - the assurance of god
-  - objective
-  - base on the word of god
-  - 100% of god's guarantee for success
+### Have faith in God - Mk11:22
+- possessing the faith of God
+- continually obeying the Word of God
 
-### having faith in god: possessing the faith of god, continually obeying the word of god - Mk11:22
+---
 
 - Mal3:6
 - Ps89:34
 - Nu23:19
 - Nu20:8-12
 
-### ***faith*** is surrendering your experience even if risky and holding on to the Word
+### What is faith
 
-### Now faith is ***the substance*** of things hoped for and ***the evidence*** of things not seen - He11:1, NKJV
+#### faith is ***surrendering*** your experience even if risky and holding on to ***the Word***
 
-## 3. Those who absolutely trust the bible as the Word of god have godly authority - In5:29
+### Now faith is ***the substance*** of things hoped for and ***the evidence*** of things not seen - [He11:1](https://www.bible.com/bible/114/HEB.11.NIV)
 
-### the authority of the son of man
+### 3. Those who absolutely trust the bible as the Word of god have godly authority [Jn5:29](https://www.bible.com/bible/111/JHN.5.NIV)
 
-- the authority to judge sins (Jn5:27) and forgive sins (Mt9:6)
-- the authority to die and the authority to live (Jn10:18)
+#### the authority of the Son of Man
+
+- the authority to ***judge sins*** [Jn5:27](https://www.bible.com/bible/111/JHN.5.NIV) and ***forgive sins*** [Mt9:6](https://www.bible.com/bible/114/MAT.9.NIV)
+- the authority ***to die*** and the authority ***to live*** [Jn10:18](https://www.bible.com/bible/111/JHN.10.NIV)
 
 the target of his judgement = the origin os sin = the devil
 
 the subject of his forgiveness = men, because they were deceived
 
-### the authority of preachers
+#### the authority of preachers
 
-- Jn20:23
-- Jn1:12
-- Eze33:1-9
+- [Jn20:23](https://www.bible.com/bible/111/JHN.20.NIV)
+- [Jn1:12](https://www.bible.com/bible/111/JHN.1.NIV)
+- [Eze33:1-9](https://www.bible.com/bible/111/EZK.33.NIV)
 
-### the right to drive out demons
+#### the right to drive out demons
 
-- Mt10:1
-- Mk3:13-15
+- [Mt10:1](https://www.bible.com/bible/111/MAT.10.NIV)
+- [Mk3:13-15](https://www.bible.com/bible/111/MRK.3.NIV)
 
-## 4. not even a part of the bible can be abolished because it is all about Jesus
+### 4. not even a part of the Bible can be abolished/dismissed because it is all about Jesus
 
 old testment: a robe divided into pieces
 new testment: a robe assembled and put on by Jesus
 
-## 5. the bible can be verified through faith
+### 5. the Bible can be verified through faith
 
 Jesus is testified by
 
-1. the bible (Jn5:29)
-2. the prophets (Jn1:34)
-3. the Father (Jn8:18)
-4. Jesus himself (Jn8:18)
-5. the holy spirit (Jn15:26)
-6. the disciples (Jn15:27)
+1. the bible [Jn5:29](https://www.bible.com/bible/111/JHN.5.NIV)
+2. the prophets [Jn1:34](https://www.bible.com/bible/111/JHN.1.NIV)
+3. the Father [Jn8:18](https://www.bible.com/bible/111/JHN.8.NIV)
+4. Jesus himself [Jn8:18](https://www.bible.com/bible/111/JHN.8.NIV)
+5. the holy spirit [Jn15:26](https://www.bible.com/bible/111/JHN.15.NIV)
+6. the disciples [Jn15:27](https://www.bible.com/bible/111/JHN.15.NIV)
 - Unbelievers - testify the death of Jesus
-- disciples - testify the resurrection of Jesus (1Co15:3-8)
-- the holy spirit - testifies that the son of man is on the throne (Ac2:33, 5:31)
+- disciples - testify ***the resurrection*** of Jesus [1Co15:3-8](https://www.bible.com/bible/111/1CO.15.NIV)
+- the Holy Spirit - testifies that the son of man is on the throne ***in heaven*** [Ac2:33](https://www.bible.com/bible/111/ACT.2.NIV), [5:31](https://www.bible.com/bible/111/ACT.5.NIV)
 
-## the incarnation of Jesus Christ (Jn1:1, 14)
+## The incarnation of Jesus
+- [Jn1:1, 14](https://www.bible.com/bible/111/JHN.1.NIV)
+---
+- [Mt20:28](https://www.bible.com/bible/111/MAT.20.NIV)
+- [Jn10:17-18](https://www.bible.com/bible/111/JHN.17.NIV)
+- [Jn6:63](https://www.bible.com/bible/111/JHN.6.NIV)
 
-- Mt20:28
-- Jn10:17-18
-- Jn6:63
+### Why did Word become ***flesh***?
 
-### why did Word become ***flesh***?
+- ***To die***: for redemption [Mt20:28]((https://www.bible.com/bible/111/MAT.20.NIV)
 
-- to die: for redemption (Mt20:28)
-
-- to shed blood: to cleanse, forgive sins and give life (Lev17:11, Jn6:63, He9:22)
+- ***To shed blood***: to cleanse, forgive sins and give life [Lev17:11](https://www.bible.com/bible/111/LEV.17.NIV), [Jn6:63](https://www.bible.com/bible/111/JHN.63.NIV), [He9:22](https://www.bible.com/bible/111/HEB.9.NIV)
 
     his death = to pay the price of sin
 
-### Jesus is the Christ, the son of the living God - Mt16:16
+### Jesus is the Christ, the Son of the living God
+- [Mt16:16](https://www.bible.com/bible/111/MAT.16.NIV)
 
 "Christ" = his duty/mission as man
 (the "anointed")
 "the son of God" = his essence
 
-### those who deny the death of Jesus are satanic
+#### Those who deny the death of Jesus are satanic
 
-- 1Jn4:2-3
+- [1Jn4:2-3](https://www.bible.com/bible/111/1JN.4.NIV)
 
-  ### god testifies in heaven that Jesus is the son of god
-- Mt3:17
+#### God testifies in heaven that Jesus is the Son of God
+- [Mt3:17](https://www.bible.com/bible/111/MAT.3.NIV)
 
-  ### the woman testifies on earth that Jesus is the offspring of the woman
-- Ge3:15
+#### The woman testifies on earth that Jesus is the offspring of the woman
+- [Ge3:15](https://www.bible.com/bible/111/GEN.3.NIV)
+- [Mt12:47-50](https://www.bible.com/bible/111/MAT.12.NIV)
 
-## 6. Jesus fulfilled what is written in the bible
+### 6. Jesus fulfilled what is written in the Bible
 
-### jesus's view of the bible
+#### Jesus's view of the Bible
 
-- LIVE by the WORD OF GOD
+- Live by the Word of God
 - do not put the Lord Your God to test
 - serve only god
 
-  ### Jesus fulfulled according to the written word
-- Mt26:24
-- Lk18:31
-- Lk22:27
-- Jn12:14-15
+#### Jesus fulfilled according to the written word
+- [Mt26:24](https://www.bible.com/bible/111/MAT.26.NIV)
+- [Lk18:31](https://www.bible.com/bible/111/LUK.18.NIV), [22:37](https://www.bible.com/bible/111/LUK.22.NIV)
+- [Jn12:14-15](https://www.bible.com/bible/111/JHN.12.NIV)
 
-  ### revelations
-- Mt11:27
-  three level of god's revelation
-1. Jesus
-2. the Bible
-3. sermons and testimonies
+#### Revelations
+- [Mt11:27](https://www.bible.com/bible/111/MAT.11.NIV)
+- three level of God's revelation
+    - 1st level: ***Jesus***
+    - 2nd level: the Bible
+    - 3rd level: sermons and testimonies
 
 ---
 

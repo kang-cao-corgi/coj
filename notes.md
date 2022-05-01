@@ -588,51 +588,66 @@ We are witnesses of these things, and so is the Holy Spirit, whom God has given 
 > I am to be the only inheritance the priests have. You are to give them no possession in Israel; I will be their possession.
 ---
 
-# Lec 5
+## Lec 5
 
-## 3. The christian mission is not a  religious method, it is declaring the gospel
+### 3. The christian mission is not a  religious method, it is declaring the gospel
+Ac 16:31
+> They replied, “Believe in the Lord Jesus, and you will be saved—you and your household.”
 
-preach
-    - Mt4:10
+Jesus - preach - to save souls - Mt4:10
 
 - to bring good news
 - to proclaim/declare
 
-### christianity does ***NOT*** challenge
-
-god is just god, god is not socially just god
+#### Christianity does ***NOT*** challenge
 
 - Jn18:36
+- 1Ti6:20-21
 
-christian does not discuss or debate but declare
+social justice is human invention, God is just God, God is not socially just God
+
+Christianity does ***not*** discuss or debate but ***declare***
+
+truth cannot be debated / compromised
+
+#### Ecumenism: to promote unity among the world's Christian churches
 
 religious pluralism/unity
 
--Co6:14:18
+- 2Co6:14-18
+- 1Jn5:16
 
-## 4. Worship is ***NOT*** a religious ritual
 
-the apostle's creed
+### 4. Worship is ***NOT*** a religious ritual
 
-### worship is seeing the face of the lord
+We do not do the apostle's creed
 
-worship - to fall at another's feet
+worship = seeing the face of the Lord in spirit and truth
+- Mt18:10
+
+worship - to fall at another's feet - to meet with Him face to face - kiss
 
 dead sacrifice(old testment)
 / living sacrifice(new testment)???
 
-- Mt18:10
 - Jn4:20-26
 - 1Ki12:18-24, 27-33
 
 | Jeroboam             | Rehoboam            |
 | -------------------- | ------------------- |
-| 10 tirbes of Isareal | Judah and Benjamin  |
+| 10 tribes of Isarael | Judah and Benjamin  |
 | Northern Kingdom     | Southen kingdom     |
 | High place in Bethel | Temple of Jerusalem |
 | In spirit            | In Truth            |
 
-## V. The bible and faith
+#### God does not desire sacrifice but ***obedience***
+- 1Sa15:22
+- Ps51:26-27
+
+### 5. The bible and faith
+
+- He11:3
+> By faith we understand that the universe was formed at God’s command, so that what is seen was not made out of what was visible.
 
 ***? ? ? ? ? ? ? ? ? ? ? ? ?***
 
@@ -650,22 +665,22 @@ The Word = the self-manifestation = The face of god != The entirety of  god
 - Jn1:14
 - 1Co1:18-25
 
-## 1. the bible acknoweldges the works of god through faith
+#### 1. the bible acknoweldges the works of God through faith
 
 faith
 
-- acknowledging that god has done and possessing it
-- trusting the Word of god to be fullfilled
+- acknowledging that God has done and possessing it
+- trusting the Word of God to be fullfilled
 
-### the treasure of god is in the bible
+#### the treasure of God is in the Bible
 
 need to have experience of Word
 
-### the bible illusttrates that the works of god continue without breaks
+#### the Bible illusttrates that the works of God continue without breaks
 
 | Genesis 1                | Hebrews 11                |
 | ------------------------ | ------------------------- |
-| A chapter on god's faith | A chapter on men's faith  |
+| A chapter on God's faith | A chapter on men's faith  |
 | all creations obeyed     | men obeyed                |
 | "And it was so"          | "According to your faith" |
 

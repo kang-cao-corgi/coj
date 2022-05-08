@@ -821,70 +821,87 @@ Jesus is testified by
 
 ---
 
-# Lec 7
+## Lec 7
 
-## 7. the bible was written by the inspiration of holy spirit
+### 7. the Bible was written by the inspiration of the Holy Spirit
 
-- 2Ti3:16
-- 2Pe1:21
-- Jn14:26
+- [2Ti3:16](https://www.blueletterbible.org/niv/2ti/3/16/s_1128016)
+- [2Pe1:21](https://www.blueletterbible.org/niv/2pe/1/21/s_1157021)
+- [Jn14:26](https://www.blueletterbible.org/niv/jhn/14/26/s_1011026)
 
-## 8. the bible is a mirror
+The four gospel books were written decades after Jesus' death.
 
-- 1Co10:11
 
-the bible is a mirror that reflects invisible spiritual beings
+### 8. the Bible is a mirror
+
+- [1Co10:11](https://www.blueletterbible.org/niv/1co/10/11/s_1072011)
+
+the Bible is a mirror that reflects invisible ***spiritual*** beings
 
 if you read the bible correctly, you will find Jesus
 
-- Jn5:39
+- [Jn5:39](https://www.blueletterbible.org/niv/jhn/5/39/s_1002039)
 
-the bible is a till that reflaects the real image and lets you correct yourself
+the Bible is a tool that reflects the real image and lets you correct yourself
 
-- Jas1:23-25
-- Tit3:5
-- 1Col13:12
-- Eph5:26-27
+- [Jas1:23-25](https://www.blueletterbible.org/niv/jas/1/23/s_1147023)
+- [Tit3:5](https://www.blueletterbible.org/niv/tit/3/5/s_1132005)
+- [1Co13:12](https://www.blueletterbible.org/niv/1co/13/12/s_1075012)
+- [Eph5:26-27](https://www.blueletterbible.org/niv/eph/5/26/s_1102026)
 
-## 9. the bible says that god created the heavens and the earth and that he will also make them extinct
+reading the word of God (esp. NT), it makes us feel uncomfortable and vulnerable. We should feel guilty and cut to the heart. We find us in need of correcting.
 
-- 2Pe3:5, 7-13
 
-the only "new thing" is Yeshua the truth
+### 9. the Bible says that God created the heavens and the earth and that He will also ***destroy*** them
 
-- He1:2
-- 1Pe1:5, 20
+- [2Pe3:7-13](https://www.blueletterbible.org/niv/2pe/3/7/s_1159007)
 
-the holy spirit lets us know that the prince of this world has been judged
+God created the world by His Word, and also destroy it one day, for His plan and purpose.
+The only "new thing" is Jesus, the truth
 
-- Jn16:11
-- Rev22:13
+- [He1:2](https://www.blueletterbible.org/niv/heb/1/2/s_1134002)
+- [1Pe1:5](https://www.blueletterbible.org/niv/1pe/1/5/s_1152005), [20](https://www.blueletterbible.org/niv/1pe/1/20/s_1152020)
+
+the Holy Spirit lets us know that the prince of this world has been judged
+
+- [Jn16:11](https://www.blueletterbible.org/niv/jhn/16/11/s_1013011)
+- [Rev22:13](https://www.blueletterbible.org/niv/rev/22/13/s_1189013)
+
+2000 yrs ago when Jesus was crucified.
+
+Bible is not a referential source but the foundation of faith and church.
+
+God never intended the world to last forever. (global warming, nuclear warfare etc.)
 
 the world is made ***for*** Jesus and by Jesus???
 
-- Mt24:3, 40
-- Lk17:34-35
+- [Mt24:3](https://www.blueletterbible.org/niv/mat/24/3/s_953003), [40](https://www.blueletterbible.org/niv/mat/24/40/s_953040)
+- [Lk17:34-35](https://www.blueletterbible.org/niv/luk/17/34/s_990034)
 
-## 10. the old testment is a prophecy of the coming of the messiah, while the new testment is a prophecy of the coming of the kingdom of christ
+Jesus will come back like a lightning.
+
+### 10. the Old Testment is a prophecy of the coming of the messiah; while the New Testment is a prophecy of the coming of the kingdom of Christ
 
 - Ge18:10
 - Mt3:2
 
 | Old Testment                                     | New Testment                                       |
 | ------------------------------------------------ | -------------------------------------------------- |
-| Genesis - Luke                                   | John - Revelation                                  |
+| [Genesis : Luke]                                   | [John : Revelation]                                  |
 | the king who will come according to the prophecy | the king who will return according to the prophecy |
-| "the coming messiah"                             | "Christ who came",  "Christ who will return"       |
+| "the coming Messiah"                             | "Christ who came",  "Christ who will return"       |
 
-### prophets are the servants who prepared the way for the messiah
+#### ***Prophets*** are the servants who prepared the way for ***the Messiah***
 
-- Mt11:11-14
+- [Mt11:11-14](https://www.blueletterbible.org/niv/mat/11/10/s_940010)
 
-Moses 1500 B.C. the Pentatuch
+Moses 1500 B.C. the Pentatuch, the first five books.
 
 last book of old testment Nakachi 400 B.C.
 
-400 B.C. - 0 A.D.the dark age of isareal, the intertestamental period
+400 B.C. -> 0 A.D.the dark age of Isareal, the intertestamental period.
+
+70 A.D. -> 100 A.D., the New Testment is finished
 
 | Faction            | Pharisees | Scribes   | Sadducees              |
 | ------------------ | --------- | --------- | ---------------------- |
@@ -896,34 +913,32 @@ last book of old testment Nakachi 400 B.C.
 the pharistic law + 613 commandments of Moses
 30 regarding sabbath
 
-- Mt11:28
+- [Mt11:28](https://www.blueletterbible.org/niv/mat/11/28/s_940028)
+- [Mt10:28](https://www.blueletterbible.org/niv/mat/10/28/s_939028)
+- [Mt6:3](https://www.blueletterbible.org/niv/mat/6/3/s_935003)
+- [1Th4:16](https://www.blueletterbible.org/niv/1th/4/16/s_1115016)
+- [2Th1:7-10](https://www.blueletterbible.org/niv/2th/1/7/s_1117007)
 
-- Mt10:28
-
-- Mt6:3
-
-- 1Th4:16
-
-## 11. the object of ***god's interest*** is in the bible
+### 11. The object of ***God's interest*** is in the Bible
 
 ### regarding Judas Iscariot
 
-- Jn13:26-27
-- Mk14:21
+- [Jn13:26-27](https://www.blueletterbible.org/niv/jhn/13/26/s_1010026)
+- [Mk14:21](https://www.blueletterbible.org/niv/mar/14/21/s_971021)
 
-## The purpose of the coming of the son of god
+#### The purpose of the coming of the Son of God
 
-1. to ***glorify*** the father - the ***purpose*** of god Php2:6-11
-2. to destory rhe devil - the mission of god 1Jn3:8
-3. to ***save*** men - the ***will*** of god Jn3:16
+1. to ***glorify*** the Father - the ***purpose*** of God [php2:6-11](https://www.blueletterbible.org/niv/phl/2/6/s_1105006)
+1. to ***destory*** (the works of) the devil - the ***mission*** of God [1Jn3:8](https://www.blueletterbible.org/niv/1jo/3/8/s_1162008)
+1. to ***save*** men - the ***will*** of God [Jn3:16](https://www.blueletterbible.org/niv/jhn/3/16/s_1000016)
 
-## god's interst is in the blood of Jesus rather than in sin
+#### God's interst is in the blood of Jesus rather than in sin
 
-- 1Co15:55-57
+- [1Co15:55-57](https://www.blueletterbible.org/niv/1co/15/55/s_1077055)
 
-Vietnam and Iraq for glory of America??? bad example
+Vietnam and Iraq for glory of America??? bad example (2022.5.7 is it bad example?)
 
-## 12. read the bible knowing the purpose of god
+### 12. read the bible knowing the purpose of god
 
 - unbelievers: deny the existance of god
 - the antichrist: denies the fact that Jesus came in flesh
@@ -955,7 +970,8 @@ Is communism/socialism a perfect world???
 
 god -> christ -> men -> all things
 
-| men                               | Jesus                       |
+| men
+                             | Jesus                       |
 | --------------------------------- | --------------------------- |
 | Exist for Jesus                   | came in flesh for men       |
 | from the point of the plan of God | from the point of salvation |

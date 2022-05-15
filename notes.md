@@ -938,117 +938,124 @@ the pharistic law + 613 commandments of Moses
 
 Vietnam and Iraq for glory of America??? bad example (2022.5.7 is it bad example?)
 
-### 12. read the bible knowing the purpose of god
-
-- unbelievers: deny the existance of god
-- the antichrist: denies the fact that Jesus came in flesh
-- cults: insist on salvation other than Jesus
-
 ---
 
-# Lec 8
+## Lec 8
 
-## #The bible cannot be interpreted without the works of the holy spirit
+### 12. Read the Bible knowing the purpose of God
 
-- Ac2:44-47
+knowing God is faith
+- unbelievers: deny the existance of God
+- the antichrist: denies the fact that Jesus came in flesh (they do not beliebe Jesus is Son of God, incarnation of God)
+- cults: insist on salvation other than Jesus
 
-Is communism/socialism a perfect world???
 
-### The bilble acknowledges differences (inequalities)
 
-- Ge25:23
-- Ge49:8
-- Mt25:29
-- Mt1:21
-- Jn5:21
-- Jn17:12
+#### The Bible cannot be interpreted without the works of the Holy Spirit
 
-### the order of things
+- [Ac2:44-47](https://www.blueletterbible.org/niv/act/2/44/s_1020044)
 
-- 1Co3:21-23
-- TODO
+Is communism/socialism a perfect world??? Soviet Union is not a perfect instance.
 
-god -> christ -> men -> all things
+#### The Bilble acknowledges differences (inequalities)
 
-| men
-                             | Jesus                       |
+- [Ge25:23](https://www.blueletterbible.org/niv/gen/25/23/s_25023)
+- [Ge49:8](https://www.blueletterbible.org/niv/gen/49/8/s_49008)
+- [Mt25:29](https://www.blueletterbible.org/niv/mat/25/29/s_954029)
+- [Mt1:21](https://www.blueletterbible.org/niv/mat/1/21/s_930021)
+- [Jn5:21](https://www.blueletterbible.org/niv/jhn/5/21/s_1002021)
+- [Jn17:12](https://www.blueletterbible.org/niv/jhn/17/12/s_1014012)
+
+#### the order of all things
+
+- [1Co3:21-23](https://www.blueletterbible.org/niv/1co/3/21/s_1065021)
+- [Mk2:27-28](https://www.blueletterbible.org/niv/mar/2/27/s_959027)
+
+God -> Christ -> men -> all things
+
+| men | Jesus                       |
 | --------------------------------- | --------------------------- |
-| Exist for Jesus                   | came in flesh for men       |
-| from the point of the plan of God | from the point of salvation |
-| the attribute of God              | the chracter of God         |
+| Exist ***for Jesus***                   | came in flesh ***for men***       |
+| from the point of the will of God | from the point of salvation |
+| the attribute of God              | the character(heart) of God (to save mankind)        |
 
-God the potter???
+God the potter(制陶工人)
 
-- 2Ti2:20
-- Rm9:20-21
-- Col1:16
+- [2Ti2:20](https://www.blueletterbible.org/niv/2ti/2/20/s_1127020)
+- [Rm9:20-21](https://www.blueletterbible.org/niv/rom/9/20/s_1055020)
+- [Col1:16](https://www.blueletterbible.org/niv/col/1/16/s_1108016)
 
-Be fearless before world, be fearful before god
+"If you see the greater things, you will let go the petty things"
 
-### the bible is the Word of the Holy Spirit
+"Be fearless before world, be fearful before God"
 
-## 13. the bible must be read only through the lens of the ***blood of Jesus***
+#### the Bible is the word of the Holy Spirit
+
+### 13. the Bible must be read only through the lens of the ***blood of Jesus***
 
 from Genesis to Revelation , it is all about the history and the story of the ***blood***
 
-god's interest is solely in the blood
+#### God's interest is solely in the blood
 
-- Ex12:13, 21-23
+- [Ex12:13](https://www.blueletterbible.org/niv/exo/12/13/s_62013), [21-23](https://www.blueletterbible.org/niv/exo/12/21/s_62021)
 
-god made covenant with blood
+#### God made covenant with blood
 
-- Ex24:8
-- He10:1-4, 14
+- [Ex24:8](https://www.blueletterbible.org/niv/exo/24/8/s_74008)
+- [He10:1-4](https://www.blueletterbible.org/niv/heb/10/1/s_1143001), [14](https://www.blueletterbible.org/niv/heb/10/14/s_1143014)
 
-### experience the event of the blood of Jesus
+#### experience the event of the blood of Jesus
 
 | Old Testment                                  | New Testment                          |
 | --------------------------------------------- | ------------------------------------- |
-| a story written with the blood of lamb        | a story written with the blood of god |
-| the coming of the one who will shed his blood | his return to collect the shed blood  |
+| a story written with the blood of lamb        | a story written with ***the blood of God*** |
+| the coming of the one who will shed blood | His return to ***collect the shed blood***  |
 
-### why is the blood of Jesus important?
+#### Why is the blood of Jesus important?
 
-1. if there is blood, eternal life; if not, destruction (Jn3:16)
-2. children in his blood (Jn1:12)
-3. souls with his blood receive the Holy Spirit (Jn14:16)
-4. god uses only the vessels sprinkled with his blood (He9:22)
-5. relationship made by his blood (Ex4:25)
-6. by his blood, we enter the sanctuary (He10:19)
-7. he paid the price of his blood (Ac20:28)
-8. prayer is the word that his blood speaks (He12:24)
+1. if there is blood, eternal life; if not, destruction [Jn3:16](https://www.blueletterbible.org/niv/jhn/3/16/s_1000016)
+2. children in His blood [Jn1:12](https://www.blueletterbible.org/niv/jhn/1/12/s_998012)
+3. Souls with His blood receive the Holy Spirit [Jn14:16](https://www.blueletterbible.org/niv/jhn/14/16/s_1011016)
+4. God uses only the vessels sprinkled with His blood [He9:22](https://www.blueletterbible.org/niv/heb/9/22/s_1142022)
+5. relationship made by His blood [Ex4:25](https://www.blueletterbible.org/niv/exo/4/25/s_54025)
+6. by His blood, we enter the sanctuary [He10:19](https://www.blueletterbible.org/niv/heb/10/19/s_1143019)
+7. He paid the price of His blood [Ac20:28](https://www.blueletterbible.org/niv/act/20/28/s_1038028)
+8. prayer is the word that His blood speaks [He12:24](https://www.blueletterbible.org/niv/heb/12/24/s_1145024)
 
-## 14. when the bilble is read through the lens of ***the law***, it is god's power to ***remember*** sin; through the lens of ***the gospel***, it is his power to ***forget*** sin
+### 14. when the Bible is read through the lens of ***the law***, it is God's power to ***remember sins*** ; through the lens of ***the gospel***, it is His power to ***forget sins***
 
-general conscience is relative
+General conscience is variant and relative
 
-the ***law*** is the conscience of god, the rightousness of god
+***The law*** is the conscience of God, the rightousness of God (It is absolute, all men are condemned to be guilty)
 
 ### the law
 
-1. DEFINITION: no one is righteous (Rm3:10)
-2. PURPOSE: to condemn (Rm3:19)
-3. RESULT: the price of sin is **death** (Rm6:23)
-- Rm3:20
-- Jas2:10-11
-- Rm7:7, 9, 12-24
+1. DEFINITION: no one is righteous [Rm3:10](https://www.blueletterbible.org/niv/rom/3/10/s_1049010)
+2. PURPOSE: to condemn [Rm3:19](https://www.blueletterbible.org/niv/rom/3/19/s_1049019)
+3. RESULT: the price of sin is **death** [Rm6:23](https://www.blueletterbible.org/niv/rom/6/23/s_1052023)
+- [Rm3:20](https://www.blueletterbible.org/niv/rom/3/20/s_1049020)
+- [Jas2:10-11](https://www.blueletterbible.org/niv/jas/2/10/s_1148010) you break one, you break all
+- [Rm7:7](https://www.blueletterbible.org/niv/rom/7/7/s_1053007), [9](https://www.blueletterbible.org/niv/rom/7/9/s_1053009), [12-24](https://www.blueletterbible.org/niv/rom/7/12/s_1053012)
 
-### the ***gospel*** is the freedom from the conscience
+#### ***The gospel*** is the freedom from conscience
 
-- Jn8:32
-- Gal3:24
+- [Jn8:32](https://www.blueletterbible.org/niv/jhn/8/32/s_1005032)
+- [Gal3:24](https://www.blueletterbible.org/niv/gal/3/24/s_1094024)
 
-  ### the gospel
-  1. DEFINITION: the righteous will live by faith (Rm1:17)
-  2. PURPOSE: to reveal the righteousness of god (Rm1:17)
-  3. RESULT: ***eternal life*** (Rm5:20-21)
+#### the gospel
+1. DEFINITION: the righteous will live by faith [Rm1:17](https://www.blueletterbible.org/niv/rom/1/17/s_1047017)
+2. PURPOSE: to reveal the righteousness of God [Rm1:17](https://www.blueletterbible.org/niv/rom/1/17/s_1047017)
+3. RESULT: ***eternal life*** [Rm5:20-21](https://www.blueletterbible.org/kjv/rom/5/20/s_1051020)
 
-| the law                        | Jesus                    | faith              |
+
+[Mt5:17](https://www.blueletterbible.org/kjv/mat/5/17/s_934017)
+
+| The Law                        | Jesus                    | Faith              |
 | ------------------------------ | ------------------------ | ------------------ |
 | by obedience, one is righteous | fulfilled the law        | justified          |
-| the righteous                  | the righteousness of god | called "righteous" |
+| the righteous                  | the righteousness of God | called "righteous" |
 
-- Rm8:1-2
+- [Rm8:1-2](https://www.blueletterbible.org/kjv/rom/8/12/s_1054012)
 
 ## 15. the bible is a story about the gardener
 

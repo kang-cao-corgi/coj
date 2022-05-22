@@ -1057,51 +1057,130 @@ General conscience is variant and relative
 
 - [Rm8:1-2](https://www.blueletterbible.org/kjv/rom/8/12/s_1054012)
 
-## 15. the bible is a story about the gardener
-
-- Jn15:1-2
-- Mt21:33-46
-- Lk13:6-9
-
 ---
 
-# Lec 9
+## Lec 9
+### 15. the Bible is a story about the gardener
 
-## 16. the bible views revelation as light
+- [Jn15:1-2](https://www.blueletterbible.org/niv/jhn/15/1/s_1012001)
+- [Mt21:33-46](https://www.blueletterbible.org/niv/mat/21/33/s_950033)
+- [Lk13:6-9](https://www.blueletterbible.org/niv/luk/13/6/s_986006)
 
- first day he creadted light
+## 16. the Bible views revelation as light
 
- ***the natural light***: the beginning of the natural revelation
+first day He created light
 
-- Ge1:5
+***the natural light***: the beginning of the natural revelation
+
+- [Ge1:5](https://www.blueletterbible.org/niv/gen/1/5/s_1005)
 
 ***the origin of light*** : the higher revelation
 
-- Jn1:4, 9-10. 14
+- [Jn1:4](https://www.blueletterbible.org/niv/jhn/1/4/s_998004), [9-10](https://www.blueletterbible.org/niv/jhn/1/9/s_998009), [14](https://www.blueletterbible.org/niv/jhn/1/14/s_998014)
 
 the intertestamental period: the "middle ages" of Israel
 
-### John the Baptist was a lamp
+#### John the Baptist was a lamp
 
-- Jn5:35
-- Mal4:2-6
-- Mt11:12-14
+- [Jn5:35](https://www.blueletterbible.org/niv/jhn/5/35/s_1002035)
+- [Mal4:2-6](https://www.blueletterbible.org/niv/mal/4/2/s_929002)
+- [Mt11:12-14](https://www.blueletterbible.org/niv/mat/11/12/s_940012) Who is this Elijah
 
 the role of a prophet is to introduce
 
 - If you see John as Christ -> Jesus is just a man
-- If you see John as Elijah -> Jesus is Christ
-- If you see Jesus as a prophet -> must wait for messiah
+- If you see John as prophet -> Jesus is Christ
+- If you see Jesus as a prophet -> must wait for the Messiah
 
-### Jesus is the light of life
+#### Jesus is the light of life
+"Light of life gives perfect life, it does not kill or take like a laser."
 
-- Jn8:12
-- Jn9:1-7
+- [Jn8:12](https://www.blueletterbible.org/niv/jhn/8/12/s_1005012)
+- [Jn9:1-7](https://www.blueletterbible.org/niv/jhn/9/1/s_1006001)
 
 spit to ground as ground is sinned/cursed where flesh came from
 (but why put mud on the blind's eye)
 
-## 17. the definition of sin in the bible leans towards as a code of conduct rather than morals
+
+### 17 the Bible is the father's inheritance
+
+- [Eze44:28](https://www.blueletterbible.org/niv/eze/44/28/s_846028)
+
+  God's greatest inheritance to His children is ***His name***
+- [He1:4-5](https://www.blueletterbible.org/niv/heb/1/4/s_1134004)
+
+#### the names of God revealed in the Old Testment
+- ***Elohim*** ([Ge1](https://www.blueletterbible.org/niv/gen/1/1/s_1001)): a deity, a transcedent
+- ***Yahweh Elohim*** ([Ge2](https://www.blueletterbible.org/niv/gen/2/1/s_2001)): the God to be revealed/revered - after man received commandment
+- ***Yaweh***([Ge4](https://www.blueletterbible.org/niv/gen/4/1/s_4001)): the God to be feared - after man sinned - cannot recklessly call it
+
+Jacob(Israel as a name of blessing) wrestled with angel
+- [Ge32:26-28](https://www.blueletterbible.org/niv/gen/32/26/s_32026)
+- [Dt26:19](https://www.blueletterbible.org/niv/deu/26/19/s_179019)
+- [Ex3:13-14](https://www.blueletterbible.org/niv/exo/3/13/s_53013)
+
+
+[Bible Project](https://www.youtube.com/watch?v=eLrGM26pmM0)<br>
+"I AM": <br>
+"YHMH" => "Yahweh" => "Jehovah"
+<br>
+-> "Elohim": God <br>
+-> "Adonai" Lord <br>
+
+#### ***Jehovah***: the name delivered and made known by ***angel***
+- [Ex3:2-5](https://www.blueletterbible.org/niv/exo/3/2/s_53002)
+- [Ex6:3](https://www.blueletterbible.org/niv/exo/6/3/s_56003)
+- [Hos12:3-5](https://www.blueletterbible.org/niv/hos/12/3/s_874003)
+- [Ex20:7](https://www.blueletterbible.org/niv/exo/20/7/s_70007)
+- [2Ch20:5-8](https://www.blueletterbible.org/niv/2ch/20/5/s_387005)
+
+
+#### the name of God is ***Yeshua***
+There is not upper case "*LORD*" in the New Testment
+- [Jn17:26](https://www.blueletterbible.org/niv/jhn/17/26/s_1014026)
+- [Ac19:5](https://www.blueletterbible.org/niv/act/19/5/s_1037005)
+- [Mt28:19](https://www.blueletterbible.org/niv/mat/28/19/s_957019)
+- [Jn5:43]9https://www.blueletterbible.org/niv/jhn/5/43/s_1002043
+- [Jn10:25](https://www.blueletterbible.org/niv/jhn/10/25/s_1007025)
+
+the name of the God is name of the Father which is name of the Son which is the name of the Holy Spirit
+which is Yeshua
+
+- [Jn14:26](https://www.blueletterbible.org/niv/jhn/14/26/s_1011026)
+- [Jn17:11](https://www.blueletterbible.org/niv/jhn/17/11/s_1014011)
+- [Ac2:38](https://www.blueletterbible.org/niv/act/2/38/s_1020038)
+- [Ac19:5](https://www.blueletterbible.org/niv/act/19/5/s_1037005)
+- [Rev:14:1](https://www.blueletterbible.org/niv/rev/14/1/s_1181001)
+
+
+
+#### The name of salvation
+
+- Mt1:21
+- Ac3:12
+- Rm10:13
+- He5:9
+
+|Jesus |Yeshua|
+|---|---|
+|no meaning |"The Lord saves" "salvation"|
+
+#### Yeshua Immanuel
+
+- [Mt1:21](https://www.blueletterbible.org/niv/mat/1/21/s_930021)
+- [Jn1:1](https://www.blueletterbible.org/niv/jhn/1/1/s_998001), [14](https://www.blueletterbible.org/niv/jhn/1/14/s_998014)
+
+in the name of Yeshua
+
+- repent [Lk24:47](https://www.blueletterbible.org/niv/luk/24/47/s_997047)
+- baptized [Mt28:19](https://www.blueletterbible.org/niv/mat/28/19/s_957019), [Ac19:5](https://www.blueletterbible.org/niv/act/19/5/s_1037005)
+- forgiven [Ac10:43](https://www.blueletterbible.org/niv/act/10/43/s_1028043)
+- saved [Ac2:12](https://www.blueletterbible.org/niv/act/2/12/s_1020012), [Rm10:9](https://www.blueletterbible.org/niv/rom/10/9/s_1056009), [13](https://www.blueletterbible.org/niv/rom/10/13/s_1056013)
+- children of God [Jn1:12](https://www.blueletterbible.org/niv/jhn/1/12/s_998012)
+- ask and receive [Jn14:14](https://www.blueletterbible.org/niv/jhn/14/14/s_1011014)
+- drive out demons and heal [Mk16:17-18](https://www.blueletterbible.org/niv/mar/16/17/s_973017)
+
+<!-- ### 18. the definition of sin in the bible leans towards as a code of conduct rather than morals
 
 ### iniquity
 
@@ -1116,127 +1195,64 @@ spit to ground as ground is sinned/cursed where flesh came from
 | RE relationship with god | RE relationships among men |
 | ethics RE god            | ethics RE men              |
 
-- Lk9:59-60
-- Mt10:37-38
+- Lk9:59-60 -->
 
-## 18. the bible is the father's inheritance
+## 19. the Bible says men are worth existing only as God's fellow workers
+- [1Co3:9](https://www.blueletterbible.org/niv/1co/3/9/s_1065009)
+- [Mk16:17-20](https://www.blueletterbible.org/niv/mar/16/17/s_973017)
 
-- Eze44:28
+---
 
-  ### god's greatest inheritance to his children is his name
-- He1:4-5
+<!-- ## 20. the ible is the road that follows not men but Yeshua
 
-### the names of god revealed in the Old testment
+- Mt1:1-16 -->
 
-1. ***ELOHIM*** (Ge1): a deity, a transcendent being
-2. ***YAHWEH ELOHIM*** (Ge2): the god to be revered - after man received commandment
-3. ***YAHWEH*** (ge4): the god to be feared - after man sinned - cannot recklessly call it
-- Ge32:26-28
-- Dt26:19
-- Ex3:13-14
+### 20. There are three *climaxes* in the Bible
+- [Lk1:1-4](https://www.blueletterbible.org/niv/luk/1/1/s_974001)
 
-***YHWH***, ***Yahweh***, ***Jehovah*** "I AM"
+#### Climax 1. the event of the Exodus of Israel
 
-***Jehovah/Yahweh*** ["Lord"]
+   1. The king of the world surrendered
 
--> ***YHWH*** [Tetragrammaton]
+   2. Deliverd from the death by the blood of lamb [Ex12:13](https://www.blueletterbible.org/niv/exo/12/13/s_62013)
 
--> ***ELOHIM*** ["God"]
+   3. After the Red Sea, their identity changed from the pharaoh's servants to God's servants [1Co10:1-2](https://www.blueletterbible.org/niv/1co/10/1/s_1072001)
 
--> ***Adonai*** (lord), ***Hasehm*** (the name)
+   4. Nature submitted
 
--> ***YeHoVaH***: the name deliverd and made known by angel
+   5. The birth of a people with no land [Eze44:28](https://www.blueletterbible.org/niv/eze/44/28/s_846028)
 
-- Ex3:2-4, 14, 6:3; Ho12:3-5
+   6. Guided by the pillar of fire and the pillar of clouds
 
-### the name of the lord is ***Yeshua***
+   7. Manna, quails and water from the rock were their food
 
-- Jn17:26
-- Mt28:19
-- Jn5:43
-- Jn10:25
+   8. ***Do not look back to Egypt*** (command)
 
-the name of the god is name of the father which is name of the son which is the name of the holy spirit
-which is Yeshua
+   9. Entered the land of Cannan
 
-- Jn14:26
-- Jn17:11
-- Ac2:28
-- Ac19:5
+#### Climax 2. the event of Jesus on the cross and the Pentecost (coming of the Holy Spirit)
 
-### the name of salvation
+   1. The spiritual king(the devil) of the world surrendered
+   2. Saved from sin and death by the blood of Jesus
+   3. From servants of the devil to servants of Christ as free slaves [Ex21:2-6](https://www.blueletterbible.org/niv/exo/21/2/s_71002), [1Co12:3](https://www.blueletterbible.org/niv/1co/12/3/s_1074003)
+   4. ***Demons submitted and angels attended***
+   5. Citizens of heaven [Php3:20](https://www.blueletterbible.org/niv/phl/3/20/s_1106020)
+   6. The Holy Spirit guides
+   7. Eat the flesh and drink the blood of JX [Jn6:53-58](https://www.blueletterbible.org/niv/jhn/6/53/s_1003053)
+   8. ***Lay down wife, children, ad fields*** [Mk10:29](https://www.blueletterbible.org/niv/mar/10/29/s_967029)
+   9. Entered the Father's house
 
-- Mt1:21
-- Ac3:12
-- Rm10:13
-- He5:9
+#### Climax 3. the return of Christ and resurrection of saints
 
-### Yeshua Immanuel
-
-- Mt1:21-23
-- Jn1:1
-
-in the name of Yeshua
-
-- repent (Lk24:47)
-- baptized (Mt28:19, Ac19:5)
-- forgiven (Ac10:43)
-- saved (Ac2:12, Rm10:9, 13)
-- children of god (Jn1:12)
-- ask and receive (Jn14:14)
-- drive out demons and heal (mk16:17-18)
-
-## 19. the bible says men are worth existing only as god's fellow workers
-
-## 20. the bible is the road that follows not men but Yeshua
-
-- Mt1:1-16
-
-## 21. there are three *climaxes* in the bible
-
-1. the event of the Exodus of Israel
-
-   1. the kong of the world surrendered
-
-   2. deliverd from the death by the blood of lamb (Ex12:13)
-
-   3. after the red sea, their identity changed from the pharaoh's sercants
-
-   4.
-
-   5. the birth of a people with no land (Eze44:28)
-
-   6. guided by the pillar of fire and the pillar of clouds
-
-   7. manna, quails and water from the rock were their food
-
-   8. do not look back to Egypt (coomand)
-
-   9. entered the land of cannan
-
-2. the event of Jesus on the cross and the pentecost
-
-   1. the spiritual king of the world surrendered
-   2. saved from sin and death by the blood of Jesus
-   3. from servants from the devil to servants of Christ as free slaves (Ex21:2-6, 1Col2:3)
-   4. demons submitted and angels attended
-   5. citizens of heaven (Php3:20)
-   6. the HS guides
-   7. eat the flesh and drink the blood of JX (Jn6:53-58)
-   8. lay down wife, children, ad fields (Mk10:29)
-   9. entered the Father's house
-
-3. the return of Christ and resurrection of saints
-
-   1. the destruction of death (1Col5:26)
-   2. salvation from the universe
-   3. eternally free
-   4. all creation submits (1Col5:28)
-   5. royal priests
-   6. the groom Christ guides
-   7. eat of the tree of life (Rev22:2)
-      a loud command to rise (1Th4:16)
-   8. enter from earth to eternity
+   1. The destruction of death [1Co15:26](https://www.blueletterbible.org/niv/1co/15/26/s_1077026)
+   2. Salvation from the universe (Hades)
+   3. Eternally free
+   4. All creation submits [1Co15:28](https://www.blueletterbible.org/niv/1co/15/28/s_1077028)
+   5. Royal priests [Rev20:6](https://www.blueletterbible.org/niv/rev/20/6/s_1187006)
+   6. The groom Christ guides
+   7. Eat of the tree of life [Rev22:2](https://www.blueletterbible.org/niv/rev/22/2/s_1189002)
+   8. A loud command to ***Rise*** [1Th4:16](https://www.blueletterbible.org/niv/1th/4/16/s_1115016)
+   9. Enter from earth to eternity
 
    ---
 

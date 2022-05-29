@@ -1180,32 +1180,14 @@ in the name of Yeshua
 - ask and receive [Jn14:14](https://www.blueletterbible.org/niv/jhn/14/14/s_1011014)
 - drive out demons and heal [Mk16:17-18](https://www.blueletterbible.org/niv/mar/16/17/s_973017)
 
-<!-- ### 18. the definition of sin in the bible leans towards as a code of conduct rather than morals
 
-### iniquity
 
-- against god: sin
-- againts men: transgression
-
-### the structure of the ten commandments
-
-| ethics of faith          | ethics of faith life       |
-| ------------------------ | -------------------------- |
-| Commandaments 1-4        | Commandments 5-10          |
-| RE relationship with god | RE relationships among men |
-| ethics RE god            | ethics RE men              |
-
-- Lk9:59-60 -->
-
-## 19. the Bible says men are worth existing only as God's fellow workers
+### 19. the Bible says men are worth existing only as God's fellow workers
 - [1Co3:9](https://www.blueletterbible.org/niv/1co/3/9/s_1065009)
 - [Mk16:17-20](https://www.blueletterbible.org/niv/mar/16/17/s_973017)
 
 ---
 
-<!-- ## 20. the ible is the road that follows not men but Yeshua
-
-- Mt1:1-16 -->
 
 ### 20. There are three *climaxes* in the Bible
 - [Lk1:1-4](https://www.blueletterbible.org/niv/luk/1/1/s_974001)
@@ -1256,83 +1238,121 @@ in the name of Yeshua
 
    ---
 
-# Lec 10
+## Lec 10
 
-## 22. the bible demonstates the absolutism of god
+### 20. The Bible is the road that follows not men but Yeshua
+- [M1:1-16](https://www.blueletterbible.org/niv/mat/1/1/s_930001)
 
-- Ge1:1
 
-the perfection of god is his oneness and absolutism
+### 21. the Bible demonstates the absolutism of God
 
-| ETERNAL   | OMNISCIENT, ALMIGHTY | OMNIPRESENT | GOOD      |
+- [Ge1:1](https://www.blueletterbible.org/niv/gen/1/1/s_1001)
+
+the perfection of God is His oneness and absolutism,
+"The one and only God".
+
+| ETERNAL   | OMNISCIENT, OMNIPOTENT | OMNIPRESENT | GOOD      |
 | --------- | -------------------- | ----------- | --------- |
 | existence | power                | spatiality  | character |
 
-- Ps103:13-14
-- 1Jn2:6
-- Ps138:8
+"God knows no evil, He cannot do evil."<br>
+"Faith is knowing alone that God is perfect."<br>
+"He is the same yesterday, today and forever."<br>
 
-## 23. Hebrews chapter 11 shows the ***faith*** that God demands
+- [Ps103:13-14](https://www.blueletterbible.org/niv/psa/103/13/s_581013)
+<!-- - [1Jn2:6](https://www.blueletterbible.org/niv/1jo/2/6/s_1161006) -->
+- [Ps138:8](https://www.blueletterbible.org/niv/psa/138/8/s_616008)
 
-- Ac22:23-24
-- He11:32-35
 
-### what is faith?
+### 22. the definition of sin in the Bible leans towards a code of conduct rather than morals
 
-- judged by one's offerings
+#### iniquity types
+- against God: sin
+- against men: transgression -> going through -> breaking the law/rules
+
+#### the structure of ***the Ten Commandments***
+4(sin) + 6(transgression)
+
+| ethics of ***faith***          | ethics of ***faith life***       |
+| ------------------------ | -------------------------- |
+| Commandaments 1-4        | Commandments 5-10          |
+| regarding relationship with god | regarding relationship among men |
+| ethics regarding God            | ethics regarding men              |
+
+- [Mt10:37-38](https://www.blueletterbible.org/niv/mat/10/37/s_939037)
+- [Lk9:59-60](https://www.blueletterbible.org/niv/luk/9/59/s_982059) "He is demanding exclusive love"
+
+
+### 23. Hebrews chapter 11 shows the ***faith*** that God demands
+
+- [Ac22:23-24](https://www.blueletterbible.org/niv/act/22/23/s_1040023)
+- [He11:32-35](https://www.blueletterbible.org/niv/heb/11/32/s_1144032)
+
+#### What is faith?
+
+(In Hebrews 11)
+
+- judged by one's offering
 - pleasing to God
 - fearing the Word of God
 - seeking homeland
-- believing that god gives life to the dead and calls into existence the things that do not exist
-- giving the blessed name as inheritance
+- believing that God gives life to the dead and calls into existence the things that do not exist
+- giving the blessed name(yeshua) as inheritance
 - does not fear the power of the world
 - produces immortal masterpieces
 
-## 24. the bible has a strong sense of ***belonging***
+### 24. the Bible has a strong sense of ***belonging***
 
-- Ps24:1
-- Ps100:3
-- Ps23:1
-- Jn15:5-7
-- 1Jn4:5-6
-- Jn8:31, 44
-- Jn15:19
-- 1Co15:22-23
+- [Ps24:1](https://www.blueletterbible.org/niv/psa/24/1/s_502001)
+- [Ps100:3](https://www.blueletterbible.org/niv/psa/100/3/s_578003)
+- [Ps23:1](https://www.blueletterbible.org/niv/psa/23/1/s_501001)
+- [Jn15:5-7](https://www.blueletterbible.org/niv/jhn/15/5/s_1012005)
+- [1Jn4:5-6](https://www.blueletterbible.org/niv/1jo/4/5/s_1163005)
+- [Jn8:31](https://www.blueletterbible.org/niv/jhn/8/31/s_1005031), [44](https://www.blueletterbible.org/niv/jhn/8/44/s_1005044)
+- [Jn15:19](https://www.blueletterbible.org/niv/jhn/15/19/s_1012019)
+- [1Co15:22-23](https://www.blueletterbible.org/niv/1co/15/22/s_1077022)
 
 the lord O kupios = master, owner, lord, king, head
 
-## 25. the bible says men are god's partakers(partners)
+## 25. the Bible says men are God's partakers(partners, coworkers)
 
-- Eph1:4-5, 9
-- He2:13
+- [Eph1:4-5](https://www.blueletterbible.org/niv/eph/1/4/s_1098004), [9](https://www.blueletterbible.org/niv/eph/1/9/s_1098009)
+- [He2:13](https://www.blueletterbible.org/niv/heb/2/13/s_1135013)
+- [Jn15:15](https://www.blueletterbible.org/niv/jhn/15/15/s_1012015)
 
-schedule,
-predestination,
-providence
+schedule - predestination - providence
 
-- Jn15:16
-- Rm8:17
+- [Jn15:16](https://www.blueletterbible.org/niv/jhn/15/16/s_1012016)
+- [Rm8:17](https://www.blueletterbible.org/niv/rom/8/17/s_1054017)
+- [Mt24:35-36](https://www.blueletterbible.org/niv/mat/24/35/s_953035)
 
 | schedule                         | predestination     | providence                                  |
 | -------------------------------- | ------------------ | ------------------------------------------- |
-| divine decision, god's timetable | establishing parts | pre-video ("see ahead")                     |
-| before creation, unilateral      | before creation    | becomes "casting" when god's will meets man |
+| divine decision, God's timetable | establishing parts (scripts that different people will play) | pre-video ("see ahead")                     |
+| before creation, unilateral      | before creation    | becomes "casting" when God's will meets man |
 
-god's schedule: "the time is near" etc
+#### God's schedule: "the time is near" etc.
+- [Jer23:5](https://www.blueletterbible.org/niv/jer/23/5/s_768005), [30:3](https://www.blueletterbible.org/niv/jer/30/3/s_775003)
+- [Eze7:7](https://www.blueletterbible.org/niv/eze/7/7/s_809007)
+- [Mt26:18](https://www.blueletterbible.org/niv/mat/26/28/s_955028)
+- [Jn12:23](https://www.blueletterbible.org/niv/jhn/12/23/s_1009023), [17:1](https://www.blueletterbible.org/niv/jhn/17/1/s_1014001)
+- [Ac7:17](https://www.blueletterbible.org/niv/act/7/17/s_1025017)
+- [1Co4:5](https://www.blueletterbible.org/niv/1co/4/5/s_1066005)
+- [Gal4:4](https://www.blueletterbible.org/niv/gal/4/4/s_1095004)
+- [1Pe4:17](https://www.blueletterbible.org/niv/1pe/4/17/s_1155017)
+- [Rev14:15](https://www.blueletterbible.org/niv/rev/14/15/s_1181015)
 
-- Jer23:5, 30:3; Eze7:7
-- Mt26:18; Jn12:23, 17:1
-- Ac7:17; 1Co4:5
-- Gal4:4; 1Pe4:17; Rev14:15
+#### Providence
+- [Ge22:2](https://www.blueletterbible.org/niv/gen/22/2/s_22002), [17-18](https://www.blueletterbible.org/niv/gen/17/18/s_17018)
+- [Ge25:23](https://www.blueletterbible.org/niv/gen/25/23/s_25023), [27:12-13](https://www.blueletterbible.org/niv/gen/27/12/s_27012)
+- [Lk1:31](https://www.blueletterbible.org/niv/luk/1/31/s_974031), [38](https://www.blueletterbible.org/niv/luk/1/38/s_974038)
+- [Ac4:13](https://www.blueletterbible.org/niv/act/4/13/s_1022013)
 
-### providence
+***2022***: Tracks/rail ways as God's plan, the train running as "schedule" (does not stop or change).
+Providence, as the sleeper, is the individual's life to meet God's plan.<br>
+Sleeper has a free will: "yes" -> blessing, "no" -> curse
 
-- Ge22:17-18
-- Ge27:12-13
-- Lk1:31, 38
-- Ac4:13
-
-The track is the will of god, the train is the schedule, and providence is the individual piece of sleeper, which involves risk. If carry it out, there is blessing, if not, there is curse.
+***2019***: The track is the will of God, the train is the schedule, and providence is the individual piece of sleeper, which involves risk. If carry it out, there is blessing, if not, there is curse.
 
 ---
 

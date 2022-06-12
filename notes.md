@@ -775,7 +775,7 @@ Jesus is testified by
 
 ### Why did Word become ***flesh***?
 
-- ***To die***: for redemption [Mt20:28]((https://www.bible.com/bible/111/MAT.20.NIV)
+- ***To die***: for redemption [Mt20:28](https://www.bible.com/bible/111/MAT.20.NIV)
 
 - ***To shed blood***: to cleanse, forgive sins and give life [Lev17:11](https://www.bible.com/bible/111/LEV.17.NIV), [Jn6:63](https://www.bible.com/bible/111/JHN.63.NIV), [He9:22](https://www.bible.com/bible/111/HEB.9.NIV)
 
@@ -1314,7 +1314,7 @@ the perfection of God is His oneness and absolutism,
 
 the lord O kupios = master, owner, lord, king, head
 
-## 25. the Bible says men are God's partakers(partners, coworkers)
+### 25. the Bible says men are God's partakers(partners, coworkers)
 
 - [Eph1:4-5](https://www.blueletterbible.org/niv/eph/1/4/s_1098004), [9](https://www.blueletterbible.org/niv/eph/1/9/s_1098009)
 - [He2:13](https://www.blueletterbible.org/niv/heb/2/13/s_1135013)
@@ -1356,42 +1356,43 @@ Sleeper has a free will: "yes" -> blessing, "no" -> curse
 
 ---
 
-# Lec 11
+## Lec 11
 
-## 26 the bible says to not miss spiritual opportunity
+### 26. the Bible says to ***not*** miss spiritual opportunity
 
-- Rev2:10-12
-- Rev3:11-12
-- php3:12
-- 2Co6:2
+- [Rev2:10-12](https://www.blueletterbible.org/niv/rev/2/10/s_1169010rev )
+- [Rev3:11-12](https://www.blueletterbible.org/niv/rev/3/11/s_1170011)
+- [Php3:12](https://www.blueletterbible.org/niv/phl/3/12/s_1106012)
+- [2Co6:2](https://www.blueletterbible.org/niv/2co/6/2/s_1084002)
 
-prayer is training
+Prayer is training
 
-## 27. there is a common thread in the bible
+### 27. There is a common thread in the Bible
+
+- [Jn5:39](https://www.blueletterbible.org/niv/jhn/5/39/s_1002039)
 
 the blood orange example: take sample from each book, you will find the image of Jesus
 every book has a common topic: Jesus,
-while Apocrypha does not
+while Apocrypha(伪经) does not
 the gospel book: first 4 books of new testment, look in Jesus from different perspective
 
--Jn5:39
 
-### All books in the bible testify about Jesus
+#### All books in the Bible testify about Jesus
 
 - Rev19:9-10
 
-### jesus is testified by:
+#### Jesus is testified by:
 
-1. the Father (Jn5:39)
-2. the Holy Spirit (Jn15:26)
-3. the disciples (Jn15;27)
-4. the Bible (Jn5:39)
+1. the Father [Jn5:39](https://www.blueletterbible.org/niv/jhn/5/39/s_1002039)
+2. the Holy Spirit [Jn15:26](https://www.blueletterbible.org/niv/jhn/15/26/s_1012026)
+3. the disciples [Jn15:27](https://www.blueletterbible.org/niv/jhn/15/27/s_1012027)
+4. the Bible [Jn5:39](https://www.blueletterbible.org/niv/jhn/5/39/s_1002039)
 
-### from Genesis to Revelation are all about Jesus
+#### from Genesis to Revelation are all about Jesus
 
 1. Genesis: JX is the offspring of the woman
 
-2. Exodus: JX the pass over lamb
+2. Exodus: JX the passover lamb
 
 3. Leviticus: JX the sacrifice
 
@@ -1401,23 +1402,23 @@ the gospel book: first 4 books of new testment, look in Jesus from different per
 
 6. Joshua: JX the commander in chief
 
-7. Judges: JX the savior
+7. Judges: JX the Savior
 
 8. Ruth : JX the relative of the kingdom of heaven
 
 9. Samuel, King, Chronicles: JX the restorer of the kingdom
 
-10. Job: JX the redeemer
+10. Job: JX the Redeemer
 
-11. Psalms: JX my lord
+11. Psalms: JX my Lord
 
-12. Provers:: JX the model of life
+12. Proverbs:: JX the model of life
 
 13. Ecclesiastes: JX the goal of life
 
 14. Song of songs: JX my satisfaction
 
-15. The prophetic books: JX who will com as the Prince of Peace
+15. The prophetic books: JX who will come as the Prince of Peace
 
 16. Matthew: JX the King
 
@@ -1427,46 +1428,47 @@ the gospel book: first 4 books of new testment, look in Jesus from different per
 
 19. John: JX the Son of God
 
-20. Acts: JX the Risen
+20. Acts: JX the risen Lord
 
 21. The Epistles: JX who sits at the right hand of God
 
 22. Revelation: JX who is coming back
+
 - Rev22:20
-- Rev11:15-16
+- [Rev11:15-16](https://www.blueletterbible.org/niv/rev/11/15/s_1178015) the most importent part in book Revelation
 
 ## VI - The Bible contains the ***truth***
 
-## 1. the truth
+### 1. the truth
 
-- Jn8:32
-- Ps119:142
-- Jn17:17
+- [Jn8:32](https://www.blueletterbible.org/niv/jhn/8/32/s_1005032)
+- [Ps119:142](https://www.blueletterbible.org/niv/psa/119/142/s_597142)
+- [Jn17:17](https://www.blueletterbible.org/niv/jhn/17/17/s_1014017)
 
-  ### the truth is the law that surpasses the law of Moses
-- Jn1:17
-- Rm5:12-14
-- Gal4:4-5
+#### the truth is the law that surpasses the law of Moses
+- [Jn1:17](https://www.blueletterbible.org/niv/jhn/1/17/s_998017)
+- [Rm5:12-14](https://www.blueletterbible.org/niv/rom/5/12/s_1051012)
 
 the law of sin and death defines what is sin and death: if you break the law, you are sinned
 
 Jesus came to make the law perfect
 
-- Rm7:24
-- Rm8:1-4
-- Rm6:23
+- [Gal4:4-5](https://www.blueletterbible.org/niv/gal/4/4/s_1095004)
+- [Rm7:24](https://www.blueletterbible.org/niv/rom/7/24/s_1053024)
+- [Rm8:1-4](https://www.blueletterbible.org/niv/rom/8/1/s_1054001)
+- [Rm6:23](https://www.blueletterbible.org/niv/rom/6/23/s_1052023)
 
-## 1. the truth is the law that surpasses the natural principles
+#### the truth is the law that surpasses the ***natural*** principles
 
 truth:
 
-- the words of the Father (Jn17:17)
-- the words of Jesus (Jn14:6)
-- Jesus himself (Jn14:24)
+- the words of the Father [Jn17:17](https://www.blueletterbible.org/niv/jhn/17/17/s_1014017)
+- the words of Jesus [Jn14:6](https://www.blueletterbible.org/niv/jhn/14/6/s_1011006)
+- Jesus Himself [Jn14:24](https://www.blueletterbible.org/niv/jhn/14/24/s_1011024)
 
 ---
 
-# Lec 12 Signs
+## Lec 12 Signs
 
 - 2Co12:12
 - Jn1:3

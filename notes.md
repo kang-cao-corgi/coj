@@ -1599,119 +1599,110 @@ which route has the accurate word of Father? ***Both***
 
 ### 1. the revelation of God
 
-### 1.1 those under nature
+#### 1) those under nature [Rm1:20](https://www.blueletterbible.org/niv/rom/1/20/s_1047020)
 
-- Rm1:20
-
-  ### 1.2 those under the Law
+#### 2) Those under the Law (in the Old Testment)
 
 - Jn14:26
 
-  ### 1.3 those under the Gospel
+#### 3) Those under the Gospel
 
-- 1Jn1:1-2
+- [1Jn1:1-2](https://www.blueletterbible.org/niv/1jo/1/1/s_1160001)
 
-- Jn5:22-23, 30
+- [Jn5:22-23](https://www.blueletterbible.org/niv/jhn/5/22/s_1002022), [30](https://www.blueletterbible.org/niv/jhn/5/30/s_1002030)
 
-- Jn12:47-48
+- [Jn12:47-48](https://www.blueletterbible.org/niv/jhn/12/47/s_1009047)
 
-## 2. who is God?
+### 2. Who is God?
 
-### 2.1 the only God
+1. the Only God [1Ti1:7](https://www.blueletterbible.org/niv/1ti/1/7/s_1120007)
+1. the Self-Existent (the un-created) [Ge11:3-4](https://www.blueletterbible.org/niv/gen/11/3/s_11003)
+1. the Everlasting [Neh9:5](https://www.blueletterbible.org/niv/neh/9/5/s_422005), [Jn1:1](https://www.blueletterbible.org/niv/jhn/1/1/s_998001)
 
-- 1Ti1:7
+4. God loves Himself
+    - He expresses His love through the Son [Mt3:16-17](https://www.blueletterbible.org/niv/mat/3/16-17/s_932016)
+    - He acknowledges only the things in the Son [Jn14:21](https://www.blueletterbible.org/niv/jhn/14/21/s_1011021)
 
-  ### 2.2 the self-existent (the un-created)
+### 3. the heaven that God created for the Son
 
-  ### 2.3 the everlasting,
-- Neh9:5
-- Jn1:1
+#### 1) the kingdom of God, the kingdom of heaven: the created spiritual heaven
 
-  ### 2.4 God loves Himself
-- He expresses His love through the Son (Mt3:16-17)
-- He acknowledges only the things in the Son (Jn14:21)
+- [Col1:16](https://www.blueletterbible.org/niv/col/1/16/s_1108016)
 
-## 3. the heaven that God created for the Son
+#### 2) the expression of God's absolute love for the Son
+- [He1:2](https://www.blueletterbible.org/niv/heb/1/2/s_1134002) "heir of all things"
 
-### 3.1 the kingdom of God, the kingdom of heaven: the created spiritual heaven
+#### 3) the spiritual heaven is at the right hand of God
+- [Mk16:19](https://www.blueletterbible.org/niv/mar/16/19/s_973019)
+- [1Pe3:22](https://www.blueletterbible.org/niv/1pe/3/22/s_1154022) "the right hand man" &rarr; the most trusted
 
-- Col1:16
+#### 4) God placed the throne in heaven
+- [He1:3](https://www.blueletterbible.org/niv/heb/1/3/s_1134003)
 
-  ### 3.2 the expression of God's absolute love for the Son
-- He1:2
+### 4. the three-day long death of Jesus
+- [Jn10:18](https://www.blueletterbible.org/niv/jhn/10/18/s_1007018)
+- [Is35:1-2](https://www.blueletterbible.org/niv/isa/35/1/s_714001)
 
-  ### 3.3 the spiritual heaven is at the right hand of God
-- Mk16:19
-- 1Pe3:22
+## II. God is the only ***true*** God
+- [Jn17:3](https://www.blueletterbible.org/niv/jhn/17/3/s_1014003)
+- [1Jn3:8](https://www.blueletterbible.org/niv/1jo/3/8/s_1162008)
 
-  ### 3.4 God placed the throne in heaven
-- He1:3
+### 1. God has no need for space
 
-## 4. the three-day death of Jesus
+### 2. God has His own glory
+- [Jn17:5](https://www.blueletterbible.org/niv/jhn/17/5/)
+- [Ps133:3](https://www.blueletterbible.org/niv/psa/133/3/s_611003)
+- [Mt5:3](https://www.blueletterbible.org/niv/mat/5/3/s_934003)
+- [Jn15:11](https://www.blueletterbible.org/niv/jhn/15/11/s_1012011)
 
-- Jn10:18
-- Is35:1-2
+### 3. God has His own will
+- [Jn12:49](https://www.blueletterbible.org/niv/jhn/12/49/s_1009049)
+- [Jn14:10](https://www.blueletterbible.org/niv/jhn/14/10/s_1011010)
 
-## II. God is the only true God
-
-- Jn17:3
-- 1Jn3:8
-
-  ## 1. God has no need for space
-
-  ## 2. God has His own glory
-- Jn17:5
-- Ps133:3
-- Mt5:3
-- Jn15:11
-
-## 3. God has His own will
-
-- Jn12:49
-- Jn14:10
-
-  ## III. what did God put in heaven?
-- Col1:13-20
-1. the throne for the Son
-2. the name of God
-3. the glory of God
-- He1:4-5
+## III. What did God put in heaven?
+- [Col1:13-20](https://www.blueletterbible.org/niv/col/1/13/s_1108013)
+1. The throne for the Son
+2. The name of God
+3. The glory of God
+- [He1:4-5](https://www.blueletterbible.org/niv/heb/1/4/s_1134004)
 
 What is glory?
 
 ## IV. the only begotten Son
+- [Jn1:1](https://www.blueletterbible.org/niv/jhn/1/1/s_998001), [14](https://www.blueletterbible.org/niv/jhn/1/14/s_998014), [18](https://www.blueletterbible.org/niv/jhn/1/18/s_998018)
+- [Jn10:18](https://www.blueletterbible.org/niv/jhn/10/18/s_1007018)
 
-- Jn1:1, 14
-  NIV: "the one and only son"
-  NKJV: "the only begotten of the Father"
-  ESV: "the only son"
 
+NIV: "the one and only son" <br>
+NKJV: "the only begotten of the Father"<br>
+ESV: "the only son from the Father"<br>
+Greek "Mono+genus" <br>
 "the only of its kind"
 
-## 1. the death and the resurrection of Jesus
+### 1. the death and the resurrection of Jesus
+- [Jn10:18](https://www.blueletterbible.org/niv/jhn/10/18/s_1007018)
 
-- Jn10:18
+### 2. Jesus entered heaven
 
-## 2. Jesus entered heaven
+- [Php2:6-11](https://www.blueletterbible.org/niv/phl/2/6/s_1105006)
 
-- Php2:6-11
+#### 1) Jesus did not consider equality with God something to be grasped
+- [Jn17:5](https://www.blueletterbible.org/niv/jhn/17/5/s_1014005)
+- [Pr8:22-31](https://www.blueletterbible.org/niv/pro/8/22/s_636022)
 
-  ### 2.1 Jesus did not consider equality with God something to be grasped
-- Jn17:5
-- Pr8:22-31
+#### 2) Jesus resurrected and sat on the throne
 
-### 2.2 Jesus resurrected and sat on the throne
+- [He8:1-3](https://www.blueletterbible.org/niv/heb/8/1/s_1141001), [9:24](https://www.blueletterbible.org/niv/heb/9/24/s_1142024)
+- [Jn1:2-3](https://www.blueletterbible.org/niv/jhn/1/2/s_998002)
 
-- He8:1-3
+### Summary
 
-## summary
-
-- In the spiritual heaven, god placed his throne, his name and his glory
-- For that glory to be glorious he made angels
-- As expected lucifer rebelled the way for JX to come as Christ
+- In the spiritual heaven, God placed His throne, His name and His glory
+- For that glory to be glorious He made angels
+- As expected Lucifer rebelled: the way for JX to come as Christ
 - The very nature God who was in the bosom of the Father became flesh and appeared on earth and died on a cross
 - JX resurrected, ascended to heaven and sat on the throne
-- As the most glorious one in the heavenly sanctuary he serves the Father forever.
+- As the most glorious One in the heavenly sanctuary He serves the Father forever.
 
 ---
 

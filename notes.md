@@ -1470,96 +1470,87 @@ truth:
 
 ## Lec 12 Signs
 
-- 2Co12:12
-- Jn1:3
-- Jn21:25
+- [2Co12:12](https://www.blueletterbible.org/niv/2co/12/12/s_1090012)
+- [Jn1:3](https://www.blueletterbible.org/niv/jhn/1/3/s_998003)
+- [Jn21:25](https://www.blueletterbible.org/niv/jhn/21/25/s_1018025)
 
 | "Miracles"                           | "Signs"                        |
 | ------------------------------------ | ------------------------------ |
 | Mysterious events occurred by chance | Manifested by God's revelation |
 | Easy to fall into mysticism          | super natural law, the truth   |
 
-## 1.How do we believe the "mythical" parts of the Bible
+### 1.How do we believe the "mythical" parts of the Bible
+[Ge11](https://www.blueletterbible.org/niv/gen/11/1/s_11001)
 
-### 1.1 God the Father lets us know
+Deny signs <=> deny Jesus <=> deny God
 
-- Mt16:16-17
+#### 1.1 God the Father lets us know
 
-  ### 1.2 How can we understand them?
-- Jn14:26
+- [Mt16:16-17](https://www.blueletterbible.org/niv/mat/16/16/s_945016)
 
-  ### 1. the HS speaks what He heard from the Father (Jn16:13)
+#### 1.2 How can we understand them?
+- [Jn14:26](https://www.blueletterbible.org/niv/jhn/14/26/s_1011026)
+- the HS speaks what He heard from the Father [Jn16:13](https://www.blueletterbible.org/niv/jhn/16/13/s_1013013)
 
 Moses looks in the past, the Prophet looks in the future, foresees
 
-### the stages by which the perfect God manifests himself
+#### 1) the stages by which the perfect God manifests himself
 
-- Path 1: God spoke to the Son (Jn8:26, 10:18, 12:49, 15:15) -> Jesus spoke to the disciples (Mt5:2; Jn8:26, 12:50; Ac1:2) -> the disciples preached to all nations (Mt28:19-20; Jn15:27, Ac1:8)
-- Path 2: God spoke to the HS (Jn16:13) -> HS speaks to saints (Mt10:20, Lk12:12, Jn14:26, 2Pe1:21) -> saints preach to all people (Ac4:31, Gal1:11-12, 1Th2:13)
+- Path 1: God spoke to the Son ([Jn8:26](https://www.blueletterbible.org/niv/jhn/8/26/s_1005026), [10:18](https://www.blueletterbible.org/niv/jhn/10/18/s_1007018), [12:49](https://www.blueletterbible.org/niv/jhn/12/49/s_1009049), [15:15](https://www.blueletterbible.org/niv/jhn/15/15/s_1012015)) -> Jesus spoke to the disciples ([Mt5:2](https://www.blueletterbible.org/niv/mat/5/2/s_934002); [Jn8:26](https://www.blueletterbible.org/niv/jhn/8/26/s_1005026), [12:50](https://www.blueletterbible.org/niv/jhn/12/50/s_1009050); [Ac1:2](https://www.blueletterbible.org/niv/act/1/2/s_1019002)) -> the disciples preached to ***all*** nations ([Mt28:19-20](https://www.blueletterbible.org/niv/mat/28/19/s_957019); [Jn15:27](https://www.blueletterbible.org/niv/jhn/15/27/s_1012027), [Ac1:8](https://www.blueletterbible.org/niv/act/1/8/s_1019008))
+
+- Path 2: God spoke to the Holy Spirit [Jn16:13](https://www.blueletterbible.org/niv/jhn/16/13/s_1013013) -> HS speaks to saints ([Mt10:20](https://www.blueletterbible.org/niv/mat/10/20/s_939020), [Lk12:12](https://www.blueletterbible.org/niv/luk/12/12/s_985012), [Jn14:26](https://www.blueletterbible.org/niv/jhn/14/26/s_1011026), [2Pe1:21](https://www.blueletterbible.org/niv/2pe/1/21/s_1157021)) -> saints preach to ***all*** people ([Ac4:31](https://www.blueletterbible.org/niv/act/4/31/s_1022031), [Gal1:11-12](https://www.blueletterbible.org/niv/gal/1/11/s_1092011), [1Th2:13](https://www.blueletterbible.org/niv/1th/2/13/s_1113013))
 
 which route has the accurate word of Father? ***Both***
 
-### 2. the bible is weiten by the inspiration of the HS (2Pe1:20-21)
+#### 2) the Bible is writen by the inspiration of the HS [2Pe1:20-21](https://www.blueletterbible.org/niv/2pe/1/20/s_1157020)
 
-### 3. the prophets also read the Scriptures under the instruction of the HS (1Pe1:10-11)
+#### 3) the prophets also read the Scriptures under the instruction of the HS [1Pe1:10-11](https://www.blueletterbible.org/niv/1pe/1/10/s_1152010)
 
-## 2. Can we believe the signs in "Myth"?
+### 2. Can we believe the signs in "Myth"?
 
-### 2.1 JX saw the Father
+#### 1) JX saw the Father
+- [Jn1:18](https://www.blueletterbible.org/niv/jhn/1/18/s_998018)
+- [Jn6:46](https://www.blueletterbible.org/niv/jhn/6/46/s_1003046)
 
-- Jn1:18
-
--
-
-- Jn8:58
-
+#### 2) JX is before Abraham
+- [Jn8:58](https://www.blueletterbible.org/niv/jhn/8/58/s_1005058)
 - Jn1:1-2, 14
 
-  ### 2.3 all things are ruled by him
+#### 3) all things are ruled by Him
+- [Mk1:25-27](https://www.blueletterbible.org/niv/mar/1/25/s_958025), [4:35-41](https://www.blueletterbible.org/niv/mar/4/35/s_961035)
+- [Mt11:13-14](https://www.blueletterbible.org/niv/mat/11/13/s_940013), [20-21](https://www.blueletterbible.org/niv/mat/11/20/s_940020)
 
-- Mk1:25-27, 4:35-41
+### 3. Signs regarding judgement
+1. the judgement by flood [Ge7:22-23](https://www.blueletterbible.org/niv/gen/7/22/s_7022)
+2. the Tower of Babel [Ge11:3-4](https://www.blueletterbible.org/niv/gen/11/3/s_11003)
+3. the judgement on Sodom and Gomorrah [Ge19:24-25](https://www.blueletterbible.org/niv/gen/19/24/s_19024)
 
-- Mt11:13-14, 20-21
+### 4. Signs regarding the Exodus
+- [Ex3:5](https://www.blueletterbible.org/niv/exo/3/5/s_53005)
 
-## 3. signs regarding Judgement
+#### 1) the signs to separate Israel from Egypt
+- [Ex11:7](https://www.blueletterbible.org/niv/exo/11/7/s_61007)
 
-### 3.1 the judgement by flood
+#### 2) God let them continually testify that He is living [Jn14:26](https://www.blueletterbible.org/niv/jhn/14/26/s_1011026)
 
-- Ge7:22-23
+1. God struck Egypt [Ex3:20](https://www.blueletterbible.org/niv/exo/3/20/s_53020), [10:1-2](https://www.blueletterbible.org/niv/exo/10/1/s_60001)
+2. God spared from disaster those who followed Him [Ex12:13-14](https://www.blueletterbible.org/niv/exo/12/13/s_62013)
+3. God Himself fought for His people [Ex14:13-14](https://www.blueletterbible.org/niv/exo/14/13/s_64013)
 
-### 3.2 the Tower of Babel
-- Ge11:3-4
+#### 3) the eternal signs of God nurturing Israel
 
-### 3.3 the judgement on Sodom and Gomorrah
-- Ge19:24-25
+1. Healed them [Ex15:26](https://www.blueletterbible.org/niv/exo/15/26/s_65026)
+2. Fed them manna [Ex16:13-36](https://www.blueletterbible.org/niv/exo/16/13/s_66013)
+3. gave them drink from the rock [Ex17:1-6](https://www.blueletterbible.org/niv/exo/17/1/s_67001), [1Co10:4](https://www.blueletterbible.org/niv/1co/10/4/s_1072004)
 
-## 4. signs regarding the Exodus
+#### 4) the warning signs that let them overcome tests and temptations
 
-- Ex3:5
+1. the destruction of idolaters [Ex21:1-29](https://www.blueletterbible.org/niv/exo/21/1/s_71001)
+2. the sexually immoral with gentiles killed [Nu25:1-9](https://www.blueletterbible.org/niv/num/25/1/s_142001)
+3. the venomous snakes [Nu21:4-9](https://www.blueletterbible.org/niv/num/21/4/s_138004)
+4. all who grumbled died in the desert [Nu14:26-38](https://www.blueletterbible.org/niv/num/14/26/s_131026)
 
-  ### 4.1 the signs to separate Israel from Egypt
-- Ex11:7
-
-### 4.2 God let them continually testify that He is living
-
-1. God struck Egypt (Ex3:20, 10:1-2)
-2. God spared from disaster those who followed Him (Ex12:13-14)
-3. God Himself fought ...
-
-### 4.3 the eternal signs of God nurturing Israel
-
-1. the Lord healed them (Ex15:26)
-2. fed them manna (Ex16:13-36)
-3. gave them drink from the rock (Ex17:1-6, 1Co10:4)
-
-### 4.4 the warning signs that let them overcome tests and temptations
-
-1. the destruction of idolaters (Ex21:1-29)
-2. the sexually immoral with gentiles killed (Nu25:1-9)
-3. the venomous snakes (Nu21:4-9)
-4. all who grumbled died in the desert (Nu14:26-38)
-
-### 4.5 signs that say that God is with them
+#### 5) signs that say that God is with them
 
 1. crossing the Jordan (Jos3:15-17, 4:1-7)
 2. the fall of Jericho (Jos6:12-21)
@@ -1568,10 +1559,10 @@ which route has the accurate word of Father? ***Both***
 
 ### the content of signs: ***God with us = Immanuel***
 
-- Mk16:20
-- 1Ki18:26
+- [Mk16:20](https://www.blueletterbible.org/niv/mar/16/20/s_973020)
+- [1Ki18:26](https://www.blueletterbible.org/niv/1ki/18/36/s_309036)
 
-## 5. the super natural ...
+## 5. the supernatural signs in the writting
 
 - man walking on water (Mt14:26-29)
 
@@ -1587,7 +1578,7 @@ which route has the accurate word of Father? ***Both***
 
 - the two fish and five loaves of bread (Jn2:1-11)
 
-- water tuened into wine (Jn2:1-11)
+- water turned into wine (Jn2:1-11)
 
 - Temple tax from a fish (Mt17:27)
 
@@ -1601,11 +1592,12 @@ which route has the accurate word of Father? ***Both***
 
 ---
 
-# Lec 13 Chapter 2 the plan of God
+# Chapter 2: The plan of God
+## Lec 13
 
 ## I. the will of God
 
-## 1. the revelation of God
+### 1. the revelation of God
 
 ### 1.1 those under nature
 

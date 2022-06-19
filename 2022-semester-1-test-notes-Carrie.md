@@ -117,10 +117,10 @@ The higher revelation: We believe in The Savior; we know the Savior God through 
 
 ## 11. 13
 
-## 12. What is the content of Sign. Why i sign important to our faith life? (L12)
+## 12. What is the content of Sign. Why is sign important to our faith life? (L12)
 content of sign is God with us, Immanuel
 
-We need signs to testify that Yeshua is living and is with me and using me, and that His words are true. Through signs that Jesus is prove proven to be living today (normal faith), that:
+We need signs to testify that Yeshua is living and is with me and using me, and that His words are true. Through signs that Jesus is proven to be living today (normal faith), that:
 
 1. Jesus is the true God
 1. I am a servant of Jesus
@@ -132,7 +132,7 @@ Christ(Greek) / Messiah(Hebrew) = "The Anointed" / King
 
 | Christ  |Yeshua (Jesus)  |
 |---|---|
-| King  |The name   |
+| King  |The name of God   |
 |the Son of Man|The Son of God|
 |The mission of coming in the flesh|To whosoever believes, through the Holy Spirit|
 |Death, resurrection, ascension, the throne, the return|Immanuel (God with us)|

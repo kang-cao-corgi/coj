@@ -1706,91 +1706,90 @@ Greek "Mono+genus" <br>
 
 ---
 
-# Lec 14
+## Lec 14
 
-## V. God placed angels
+### V. God placed angels
 
 the order of thing God created:
-
-1. the spiritual heaven
-2. the angels - "host", "the cherubim"
+1. the spiritual heaven - the throne, the name, the glory of God (therefore angels were created)
+2. the angels - "host", "the cherubim" - for the glory of God
 3. the universe / world
 
-## 1. the archangels
-
+### 1. the archangels
+Michael, Gabriel etc. <br>
+"El" = god (small g)<br>
 the hebrew (enoch) apocrypha
 
-## 2. "the angel of the lord"
+### 2. "the angel of the LORD"
 
-- Ge18:1-2, 22
+"the angel of the LORD", "the angel of God", "the LORD" refer to angel
+- [Ge18:1-2](https://www.blueletterbible.org/niv/gen/18/1/s_18001), [22](https://www.blueletterbible.org/niv/gen/18/22/s_18022)
+    "three men" -> angels <br>
+    who is "the lord" -> angel (in OT) <br>
 
-    "three men" -> angels
+- [Ge19:1](https://www.blueletterbible.org/niv/gen/19/1/s_19001) The reference became "angels", but they are the same being as in Ge18
+- [Ge16:7](https://www.blueletterbible.org/niv/gen/16/7/s_16007), [13](https://www.blueletterbible.org/niv/gen/16/13/s_16013)
+- [Ex3:2](https://www.blueletterbible.org/niv/exo/3/2/s_53002), [4-5](https://www.blueletterbible.org/niv/exo/3/4/s_53004)
+- [Ac7:35](https://www.blueletterbible.org/niv/act/7/35/s_1025035), [53](https://www.blueletterbible.org/niv/act/7/53/s_1025053)
 
-    who is "the lord" -> angel (in OT)
+### 3. Lucifer
 
-- Ge19:1
+- [Is14:12-15](https://www.blueletterbible.org/niv/isa/14/12/s_693012)
 
-- Ge16:7, 13
+    "morning star, Son of the Dawn" ->
 
-- Ex3:2, 4-5
-
-- Ac7:35, 53
-
-## 3. Lucifer
-
-- Is14:12-15
-
-    lucifer: lux/lucis + ferre -> "light-bringer"
+    luciel/lucifer(after his sin): lux/lucis + ferre -> "light-bringer"
 
     person is made of intelligence, emotion and free will
 
-- Jn1:1, 4
+- [Jn1:1](https://www.blueletterbible.org/niv/jhn/1/1/s_998001), [4](https://www.blueletterbible.org/niv/jhn/1/4/s_998004)
 
-- Jn12:50
+- [Jn12:50](https://www.blueletterbible.org/niv/jhn/12/50/s_1009050) "I have to obey"
 
-- Eze28:12-17
+- [Eze28:12-17](https://www.blueletterbible.org/niv/eze/28/12/s_830012)
 
-    the perfection of the created
+#### the perfection of the created
+- [Eze28:12-17](https://www.blueletterbible.org/niv/eze/28/12/s_830012)
+- [Is14:11](https://www.blueletterbible.org/niv/isa/14/11/s_693011)
 
-- Is14:11
+the perfection = free will of the created (its duality)
 
-    angels fell
+angels fell
 
-## 4. the universe
+### 4. the universe
 
-- 2Pe2:4 "gloomy dungeons", "chains of darkness", "Greek Tartarus"
-- Jude1:6 "in darkness"
-- Is14:15
+- [2Pe2:4](https://www.blueletterbible.org/niv/2pe/2/4/s_1158004) "gloomy dungeons", "chains of darkness", "Greek Tartarus"
+- [Jude1:6](https://www.blueletterbible.org/niv/jde/1/6/s_1167006) "in darkness"
+- [Is14:15](https://www.blueletterbible.org/niv/isa/14/15/s_693015)
 - Ge1:1-2 the spirit of God hovering over the "outer" surface of water
 
-### the universe is finite
+#### the universe is finite
 
-- Ge1:2
-- Ge1:7-10
-- 2Pe3:5
+- [Ge1:2](https://www.blueletterbible.org/niv/gen/1/2/s_1002), [7-10](https://www.blueletterbible.org/niv/gen/1/7/s_1007)
+- [2Pe3:5](https://www.blueletterbible.org/niv/2pe/3/5/s_1159005)
 
-### the content of Lucifer's rebellion
+#### the content of Lucifer's rebellion
 
-1. the Denial of the only true God
+1. denial of the only true God
 2. deification of the created
 3. challenged God
-4. disrupted the rest of God ???
+4. disrupted the rest of God
 
-### the stages of Eve's fall
+#### the stages of Eve's fall
 
 1. denied the only true God: "you will be like God"
 2. deified the created: "you will be like God"
 3. blasphemed the name of God: "you will not surely die"
 4. destroyed the order of the Garden of Eden
 
-### the devil's challenged to Jesus
+#### the devil's challenge to Jesus
 
-1. denied the Son of God by tempting with food and strsesing His humanity
+1. denied the Son of God by tempting with food and stressing His humanity
 2. tested the Word of God and blasphemed
 3. tempted Him to worship the devil
-4. a creation tested the Son of God and destroyed the order
+4. a creature tested the Son of God and destroyed the order of things
 
-### the Ten Commandments and the ethics of faith
+#### the Ten Commandments and the ethics of faith
 
 1. ehics regarding deity
 2. ehics regarding image
@@ -1800,17 +1799,15 @@ the hebrew (enoch) apocrypha
 | Lucifer's rebellion | Eve's fall | the devil's temptation | Ten Commandments |
 | ------------------- | ---------- | ---------------------- | ---------------- |
 |                     |            |                        |                  |
-| <!-- TODO -->       |            |                        |                  |
+|       |            |                        |                  |
 
-### sheol (hades)
+#### Sheol (hades)
 
 1. Sheol
 
-    = the universe
-
-    = "the first heaven and the first earth" (Rev21:1)
-
-    = the world that will become hell (Is14:15)
+    = the universe <br>
+    = "the first heaven and the first earth" [Rev21:1](https://www.blueletterbible.org/niv/rev/21/1/s_1188001) <br>
+    = the world that will become hell [Is14:15](https://www.blueletterbible.org/niv/isa/14/15/s_693015)
 
 2. Sheol = the lowest place for the Son of God
 

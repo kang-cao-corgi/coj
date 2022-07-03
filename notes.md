@@ -1813,86 +1813,85 @@ angels fell
 
 ---
 
-# Lec 15
+## Lec 15
 
-- 2Pe3:7-13
-- Mt25:34, 41
-- Rev21:1
-- Jn3:13
-- Ge1:6-8
+## VI. The universe has a time limit
+- [2Pe3:7-13](https://www.blueletterbible.org/niv/2pe/3/7/s_1159007)
+- [Mt25:34](https://www.blueletterbible.org/niv/mat/25/34/s_954034), [41](https://www.blueletterbible.org/niv/mat/25/41/s_954041)
+- [Rev21:1](https://www.blueletterbible.org/niv/rev/21/1/s_1188001)
+- [Jn3:13](https://www.blueletterbible.org/niv/jhn/3/13/s_1000013)
+- [Ge1:6-8](https://www.blueletterbible.org/niv/gen/1/6/s_1006) At the second day of creation, God did not see that it was good
 
-### eschatology
+<!-- ### eschatology -->
 
-## the univers was created by the Triune God
+#### the universe was created by the Triune God in one accord
+- [Ge1:26](https://www.blueletterbible.org/niv/gen/1/26/s_1026) "let us": Trinity, the ***three persons*** of the ***One God***
+- [Ge3:22](https://www.blueletterbible.org/niv/gen/3/22/s_3022) "one of us": the man was made in the image of the Son
 
-onr God n three persons, in agreement of each other: the Father, the Son, the Holy Spirit
+    onr God in three persons, in agreement of each other: the Father, the Son, the Holy Spirit
 
-- Ge1:26 "in our image"
-
-the man was made in the image of the Son
-
-- Ge3:22
-- 1Jn3:8
-- Jn1:1, 14, 18
+- [1Jn3:8](https://www.blueletterbible.org/niv/1jo/3/8/s_1162008)
+- [Jn1:1, 14, 18](https://www.blueletterbible.org/niv/jhn/1/1/s_998001)
 
 the Son has already had an image when He was with the Word
 
-## the Trinity
+#### the Trinity:
 
-| Father                                           | Son                 | HS                                 |
+| Father                                           | Son                 | Holy Spirit                                 |
 | ------------------------------------------------ | ------------------- | ---------------------------------- |
 | Creator                                          | Redeemer            | Helper                             |
-| Ideological                                      | Visible             | experiential                       |
+| ideological                                      | visible             | experiential                       |
 | outside the universe                             | within the universe | inside the soul, inside the church |
 | before the creation of the heavens and the earth | 2000 years ago      | after the Pentecost                |
 
-## the Satan and the devil are the same person
+#### Satan and the devil are the same person
 
 | Satan                    | the Devil             |
 | ------------------------ | --------------------- |
 | unlawful                 | legitimately unlawful |
-| rebelled against God     | against men           |
-| traitor, rebel, betrayer | seperator, divider    |
+| rebelled ***against God***     | ***against men***           |
+| traitor, rebel, betrayer | separator, divider    |
 
-### God's method of punishment
+#### God's method of punishment
+- [Jas1:13](https://www.blueletterbible.org/niv/jas/1/13/s_1147013)
 
-- Jas1:13
-- Jn12:48
-- He2:14
-
-### devil
+#### The Devil
 
 -> diablo "to separate, to destroy"
 
 - Rm13:1
 - Jude1:6
 
-### the Son was decided to be the rightousness in the begninning
+#### The Son was decided to be ***the rightousness*** in the begninning
+- [Jas1:13](https://www.blueletterbible.org/niv/jas/1/13/s_1147013)
+- [Jn12:48](https://www.blueletterbible.org/niv/jhn/12/48/s_1009048)
+- [He2:14](https://www.blueletterbible.org/niv/heb/2/14/s_1135014)
 
-### the devil sinned from the beginning
+#### The devil sinned from the beginning
 
 | the origin of sin                                 | the father of lies   | the first murderer      |
 | ------------------------------------------------- | -------------------- | ----------------------- |
 | in heaven                                         | in the Garden        | outside the Garden      |
-| opposed/rebelled against God (Ls14:12-15, 1Jn3:8) | lied to Eve (Jn8:14) | Cain's murder (1Jn3:12) |
+| opposed/rebelled against God [Is14:12-15](https://www.blueletterbible.org/niv/isa/14/12/s_693012), [1Jn3:8](https://www.blueletterbible.org/niv/1jo/3/8/s_1162008) | lied to Eve [Jn8:44](https://www.blueletterbible.org/niv/jhn/8/44/s_1005044) | Cain's murder [1Jn3:12](https://www.blueletterbible.org/niv/1jo/3/12/s_1162012) |
 
-## redemption, salvation & eternal life
+#### Redemption, salvation & eternal life
 
-| redemption                                 | salvation                                              | eternal life                                   |
+| Redemption                                 | Salvation                                              | Eternal life                                   |
 | ------------------------------------------ | ------------------------------------------------------ | ---------------------------------------------- |
 | past                                       | present                                                | future                                         |
 | JX paid the price of sin through His death | those who believe in the redemption of JX are forgiven | begins at the time of the resurrection to life |
 | "believe this historical fact"             | "come out of the wicked world"                         | "live with the hope of resurrection"           |
 
-- Rm10:10
--
--
+- [Rm10:10](https://www.blueletterbible.org/niv/rom/10/10/s_1056010)
+
 
 | "you have been saved"           | "be saved"                            | "you will be saved"                            |
 | ------------------------------- | ------------------------------------- | ---------------------------------------------- |
-| from the past (Eph2:38)         | present (ac2:40)                      | future (Rm8:23)                                |
+| from the past [Eph2:38](https://www.blueletterbible.org/niv/eph/2/8/s_1099008)         | present [ac2:40](https://www.blueletterbible.org/niv/act/2/40/s_1020040)                      | future [Rm8:23](https://www.blueletterbible.org/niv/rom/8/23/s_1054023)                                |
 | by believing the blood of Jesus | by sustaining salvation with the word | by becoming the firstfruits of the Holy Spirit |
 
+- [2Pe2:6-9](https://www.blueletterbible.org/niv/2pe/2/6/s_1158006)
+- [Jn12:48](https://www.blueletterbible.org/niv/jhn/12/48/s_1009048)
 ---
 
 # Lec 16

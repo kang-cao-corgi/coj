@@ -1892,87 +1892,89 @@ the Son has already had an image when He was with the Word
 
 - [2Pe2:6-9](https://www.blueletterbible.org/niv/2pe/2/6/s_1158006)
 - [Jn12:48](https://www.blueletterbible.org/niv/jhn/12/48/s_1009048)
+
 ---
 
-# Lec 16
+## Lec 16
+## VII. The appearance of ***the Son of God***
+- [1Jn3:8](https://www.blueletterbible.org/niv/1jo/3/8/s_1162008)
+- [Ge1:26-27](https://www.blueletterbible.org/niv/gen/1/26/s_1026)
 
-- 1Jn3:8
-- Ge1:26-27
+#### Christ is the image of God
 
-## Christ is the image of God
+- [Jn14:8-9](https://www.blueletterbible.org/niv/jhn/14/8/s_1011008) "our image", "our likeness" = the image of the Son (one person of the Trinity)
+- [2Co4:4](https://www.blueletterbible.org/niv/2co/4/4/s_1082004) "the image of God"
+- [Col1:15](https://www.blueletterbible.org/niv/col/1/15/s_1108015) "the form of God"
+- [Php2:6](https://www.blueletterbible.org/niv/phl/2/6/s_1105006) "the very nature God"
+- [He1:3](https://www.blueletterbible.org/niv/heb/1/3/s_1134003) "the exact representation of His being"
+- [Jn8:56-58](https://www.blueletterbible.org/niv/jhn/8/56/s_1005056)
+- [Php2:6-8](https://www.blueletterbible.org/niv/phl/2/6/s_1105006)
 
-- Jn14:8-9
-- 2Co4:4 "the image of God"
-- Col1:15 "the form of God"
-- Php2:6 "the very nature God"
-- He1:3 "the exact representation of His being"
-- Jn8:56-58
-- Php2:6-8
+#### The creation of man
 
-## the creation of man
+- [Eph1:4](https://www.blueletterbible.org/niv/eph/1/4/s_1098004)
+- [Mt1:21](https://www.blueletterbible.org/niv/mat/1/21/s_930021), [23](https://www.blueletterbible.org/niv/mat/1/23/s_930023)
+- [Col1:15](https://www.blueletterbible.org/niv/col/1/15/s_1108015)
 
-- Eph1:4
-- Mt1:21, 23
-- Col1:15-
+#### The purpose of the Son of God coming in the flesh
 
-### the purpose of the son of God coming in the flesh
+1. to glorify the Father [Php2:6-11](https://www.blueletterbible.org/niv/phl/2/6/s_1105006)
+2. to destroy the devil [1Jn3:8](https://www.blueletterbible.org/niv/1jo/3/8/s_1162008)
+3. to save men [Jn3:16](https://www.blueletterbible.org/niv/jhn/3/16/s_1000016)
 
-1. to glorify the Father (Php2:6-11)
-2. to destroy the devil (1Jn3:8)
-3. to save men (Jn3:16)
-
-### different title of the devil
+#### The different titles of the devil
 
 1. Luciel: the bright star, angel
 
 2. Satan: rebel who left his proper domain
 
-3. Lucifer: Son of the dawn, the evil king (Is14:12)
+3. Lucifer: Son of the dawn, the evil king [Is14:12](https://www.blueletterbible.org/niv/isa/14/12/s_693012)
 
-4. the ruler of darkness, the prince of the air: Hades, the universe (Eph2:2)
+4. the ruler of darkness, the prince of the air: Hades, the universe [Eph2:2](https://www.blueletterbible.org/niv/eph/2/2/s_1099002)
 
-5. the devil: the separator (Ge3:4-6), the father of lies (Jn8:44; Rev12:9)
+5. the devil: the separator (Ge3:4-6), the father of lies [Jn8:44](https://www.blueletterbible.org/niv/jhn/8/44/s_1005044); [Rev12:9](https://www.blueletterbible.org/niv/rev/12/9/s_1179009)
 
-6. the ruler of death: after Adam sinned (he2:15)
-- Mk1:1-3
+6. the ruler of death: after Adam sinned [He2:15](https://www.blueletterbible.org/niv/heb/2/15/s_1135015)
+- [Mk1:1-3](https://www.blueletterbible.org/niv/mar/1/1/s_958001)
 
-Adam prepared ***flesh***, the condition for death and ***sin***, the attribute of death
+Adam prepared ***flesh*** (the condition for death) and ***sin*** (the attribute of death)
 
 the flesh of Jesus ->
-the Word that became flesh,
-the God that became flesh,
-the spirit that became flesh.
+the Word that became flesh ->
+the God that became flesh ->
+the spirit that became flesh
 
-## God decided the Word to be the righteousness
+#### God decided the WORD to be the righteousness
 
-- Jn16:9 sin because people do not believe???
-- 2Co5:21
+- [Jn16:9](https://www.blueletterbible.org/niv/jhn/16/9/s_1013009) sin because people do not believe???
+- [2Co5:21](https://www.blueletterbible.org/niv/2co/5/21/s_1083021)
+- [1Co15:55-57](https://www.blueletterbible.org/niv/1co/15/55-57/s_1077055)
 
 | the law                 | the devil                        | the righteous God  |
 | ----------------------- | -------------------------------- | ------------------ |
 | the law of condemnation | the one who brings false charges | the One who judges |
-| the criminal            | the prosecutor                   | the judge          |
+| the criminal law            | the prosecutor                   | the judge          |
 
-## the plan of God
+#### The plan of God
 
-1. decided in eternity to appoint the Son as the Heir of all things(He1:2)
-2. created the spiritual heavenL put His name, the throne and glory
-3. placed angels in heaven to glorify Him - Satan rebelled
-4. created Hades (the first heaven and the first earth) - contained the fallen angels until judgement
-5. created man in the image of God - Adam's sin - death
-6. the Son of God - the offspring of the woman - appeared like man , in the form of servant
-7. obedient to the point of death - finished all
-8. gave the name Yeshua to the Son - every knee bows down before Him and every tongue confesses that He is Lord, to the glory of the Father
+1. Decided in eternity to appoint the Son as the Heir of all things [He1:2](https://www.blueletterbible.org/niv/heb/1/2/s_1134002)
+2. Created the spiritual heavenL put His name, the throne and glory
+3. Placed angels in heaven to glorify Him - Satan rebelled
+4. Created Hades (the first heaven and the first earth) - contained the fallen angels until judgement
+5. Created man in the image of God - Adam's sin - death
+6. The Son of God - the offspring of the woman - appeared like man, in the form of servant
+7. Obedient to the point of death - finished all
+8. Gave the name Yeshua to the Son - every knee bows down before Him and every tongue confesses that He is Lord, to the glory of the Father
 
-### Men were made to receive ***grace***
+#### Men were made to receive ***grace***
+- [2Co6:2](https://www.blueletterbible.org/niv/2co/6/2/s_1084002)
 
-- 2Co6:2
+#### The human flesh is a garment of suffering
 
-### the human flesh is a garment of suffering
-
-- Ge3:19
-- Jude1:9
-- Rm8:31-34
+- [Ge3:19](https://www.blueletterbible.org/niv/gen/3/19/s_3019)
+- [Jude1:9](https://www.blueletterbible.org/niv/jde/1/9/s_1167009)
+- [Rm8:31-34](https://www.blueletterbible.org/niv/rom/8/31/s_1054031)
+- [Rm6:12-23](https://www.blueletterbible.org/niv/rom/6/12/s_1052012)
 
 ---
 

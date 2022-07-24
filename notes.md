@@ -1978,43 +1978,47 @@ the spirit that became flesh
 
 ---
 
-# Lec 17
+## Lec 17
 
 ## VIII. the relationship between God and man
 
-- He2:5-9
-- Jas1:13 to tempt: to test, to challenge
-- 1Jn4:9
+- [He2:5-9](https://www.blueletterbible.org/niv/heb/2/5/s_1135005)
+- [Jas1:13](https://www.blueletterbible.org/niv/jas/1/13/s_1147013) to tempt: to put to test, to challenge
+- [1Jn4:9](https://www.blueletterbible.org/niv/1jo/4/9/s_1163009) The one and only Son is the measure of God's love
 
-the only begotten son is the measure of God's love
 
-### men are the object of God's love
+"The greatest character of God is love". God is love but love is not God.
 
-- He1:7, 14
+#### men are the object of God's love
 
-### men are created a little less than the angels
+- [He1:7](https://www.blueletterbible.org/niv/heb/1/7/s_1134007), [14](https://www.blueletterbible.org/niv/heb/1/14/s_1134014)
 
-- He2:7
+#### men were created a little less than the angels
 
-### the origin of sin is the devil
+- [He2:7](https://www.blueletterbible.org/niv/heb/2/7/s_1135007)
 
-- He2:9,11,14
-- 1Jn3:8
-- 1Co15:45
+#### the origin of sin is the devil
 
-### Jesus and men were born for the same purpose
+- [He2:9](https://www.blueletterbible.org/niv/heb/2/9/s_1135009),[11](https://www.blueletterbible.org/niv/heb/2/11/s_1135011), [14](https://www.blueletterbible.org/niv/heb/2/14/s_1135014)
+- [1Jn3:8](https://www.blueletterbible.org/niv/1jo/3/8/s_1162008)
+- [1Co15:45](https://www.blueletterbible.org/niv/1co/15/45/s_1077045)
 
-- Mt3:16-17
+#### Jesus and men were born for the ***same*** purpose
+- [Mt3:16-17](https://www.blueletterbible.org/niv/mat/3/16/s_932016)
 
-### the duty and the right to be loved
+#### the duty and the right to ***be loved***
+- [1Pe1:23](https://www.blueletterbible.org/niv/1pe/1/23/s_1152023)
+- [Ps138:8](https://www.blueletterbible.org/niv/psa/138/8/s_616008)
+- [He2:18](https://www.blueletterbible.org/niv/heb/2/18/s_1135018)
 
-- the Father God is who made my flesh
-- the Son is the Father who gave birth to my soul
-- the Holy Spirit is the Father who nurtures my soul
+##### "My Father"
+- the Father God &rarr; made my flesh/spirit
+- the Son  &rarr; gave birth to my soul
+- the Holy Spirit &rarr; nurtures my soul
 
 ---
 
-# Lec 18
+## Lec 18
 
 ## IX. the offspring of the woman
 

@@ -2020,84 +2020,78 @@ the spirit that became flesh
 
 ## Lec 18
 
-## IX. the offspring of the woman
+## IX. The offspring of the woman
 
-- Ge3:14-21
-- 1Ti2:13-14
+- [Ge3:14-21](https://www.blueletterbible.org/niv/gen/3/14/s_3014)
+- [1Ti2:13-14](https://www.blueletterbible.org/niv/1ti/2/13/s_1121013)
 
-  ### 1. The woman - was deceived
+#### ***The woman*** - was deceived
+#### ***The first Adam*** - ate the fruit - sin and death entered the spirit
+#### ***The last Adam*** - ***the offsrping of the woman*** - nailed sin and death to the cross - saved men, condemned the devil, ***glorified God***
+- [1Pe5:8](https://www.blueletterbible.org/niv/1pe/5/8/s_1156008)
 
-  ### 2. The first Ad - ate the fruit - sin and death
+#### The result of Adam's sin
 
-  ### 3. The last Ad - theoffsrping of the woman - nailed sin and death to the cross - saved man, condemned the devil, glorified God
-- 1Pe5:8
+- Hardship in finding the plants of the field
+- ***Pains*** in childbearing for the woman
+- [Ps51:5](https://www.blueletterbible.org/niv/psa/51/5/s_529005)
+- [Mt10:28-31](https://www.blueletterbible.org/niv/mat/10/28/s_939028)
+- [Is53:5](https://www.blueletterbible.org/niv/isa/53/5/s_732005)
+- [2Co8:9](https://www.blueletterbible.org/niv/2co/8/9/s_1086009)
 
-### the result of Adam's sin
-
-1. hardship in finding the plants of the field
-2. pains in childbearing for the woman
-- Ps51:5
-- Mt10:28-31
-- Is53:5
-- 2Co8:9
-
-### the suffering of Jesus
+#### The suffering of Jesus
 
 1. pierced - transgressions
-2. crushed - iniquities
+2. crushed - iniquities(不法，罪孽)
 3. punished - peace
 4. wounded- healing
 5. poor - rich
 
-### 4. The serpant - animal - no legs after his corruption
+#### ***The serpent*** - animal - no legs after his corruption
 
-### 5.man - used by the devil and sinned - the offspring of Satan
+#### ***Man*** - used by the devil and sinned - ***the offspring of Satan***
 
-- Jn13:18
-- Mt25:31-33
-- Mt25:41
-- Rev12:11, 17
+- [Jn13:18](https://www.blueletterbible.org/niv/jhn/13/18/s_1010018)
+- [Mt25:31-33](https://www.blueletterbible.org/niv/mat/25/31/s_954031)
+- [Mt25:41](https://www.blueletterbible.org/niv/mat/25/41/s_954041)
+- [Rev12:11](https://www.blueletterbible.org/niv/rev/12/11/s_1179011), [17](https://www.blueletterbible.org/niv/rev/12/17/s_1179017)
 
-## X. the garden of Eden
+## X. The garden of Eden
 
-- Ge2:10-17
-- Ge3:22-24
-- the first Ad = the living spirit = the branch
-- the last Ad = the life-giving spirit = the river
-- Jn6:63
+- [Ge2:10-17](https://www.blueletterbible.org/niv/gen/2/10/s_2010)
+- [Ge3:22-24](https://www.blueletterbible.org/niv/gen/3/22/s_3022)
+- the FRIST Adam = the living spirit = the branch
+- the LAST Adam = the life-giving spirit = the river
+- [Jn6:63](https://www.blueletterbible.org/niv/jhn/6/63/s_1003063)
 
-### the garden of Eden is an appropriate place for the living being
+#### The Garden of Eden is an appropriate place ***for the living being***'s spiritual life
 
 1. the Pishon: wealth
-
-   - 3Jn1:2
-   - Dt8:16, 18
+    - [3Jn1:2](https://www.blueletterbible.org/niv/3jo/1/2/s_1166002)
+    - [Dt8:16](https://www.blueletterbible.org/niv/deu/8/16/s_161016), [18](https://www.blueletterbible.org/niv/deu/8/18/s_161018)
+    - [Eze44:28](https://www.blueletterbible.org/niv/eze/44/28/s_846028)
 
 2. the Gihon: grace
+    - [Jn1:16](https://www.blueletterbible.org/niv/jhn/1/16/s_998016)
+    - [Eph2:8-9](https://www.blueletterbible.org/niv/eph/2/8/s_1099008)
 
-   - Jn1:16
-
-   - Eph2:8-9
-
-     | the grace of Christ                     | the love of the Father | the fellowship of the HS |
-     | --------------------------------------- | ---------------------- | ------------------------ |
-     | his redemption - the forgiveness of sin | nurtures children      | guides and works         |
-     | past                                    | present                | future                   |
-     | must sustain                            |                        |                          |
-     | <!-- TODO must sustain in middle -->    |                        |                          |
+    | the grace of Christ                     | the love of the Father | the fellowship of the HS |
+    | :-----: | :---: | :---: |
+    | his redemption - the forgiveness of sin | nurtures children      | guides and works         |
+    | past                                    | present                | future                   |
+    |             &larr;     |         must sustain                     |              &rarr;             |
 
 3. the Tigris: fruit
-
-   - Mt7:7
-   - Ps126:5
-   - Mk10:29-30
-   - Mal3:10-12
-   - Hag1:9-11
+    - [Mt7:7](https://www.blueletterbible.org/niv/mat/7/7/s_936007)
+    - [Ps126:5](https://www.blueletterbible.org/niv/psa/126/5/s_604005)
+    - [Mk10:29-30](https://www.blueletterbible.org/niv/mar/10/29/s_967029)
+    - [Mal3:10-12](https://www.blueletterbible.org/niv/mal/3/10/s_928010)
+    - [Hag1:9-11](https://www.blueletterbible.org/niv/hag/1/9/s_910009)
 
 4. the Euphrates: power
-
-   - Ac10:38
-   - Ac4:29-30
+    - [Ac10:38](https://www.blueletterbible.org/niv/act/10/38/s_1028038)
+    - [Ac4:29-30](https://www.blueletterbible.org/niv/act/4/29/s_1022029)
+    - [Ge3:22]()
 
 ---
 

@@ -2095,99 +2095,98 @@ the spirit that became flesh
 
 ---
 
-# Lec 19
+## Lec 19
 
 ## XI. God's plan for man (the function of man and Adam)
 
-## 1. the plan for the form of man
+### 1. the plan for the form of man
 
-- Ge1:26-31
+- [Ge1:26-31](https://www.blueletterbible.org/niv/gen/1/26/s_1026)
 
-### 1.1 creating man from the dust of the ground
+1. creating man from the dust of the ground
+    -  [Ge2:7](https://www.blueletterbible.org/niv/gen/2/7/s_2007)
+1. creating man and woman
+    - [Ge1:27-28](https://www.blueletterbible.org/niv/gen/1/27/s_1027)
+1. making man a living being
+    - [Ge2:7](https://www.blueletterbible.org/niv/gen/2/7/s_2007)
 
-- Ge2:7
+#### Adam
+- ***NOT*** the first man (the first are the male and femail at Day 6)
+- given the work of guarding the Garden
+- God gave the Word as his food
 
-### 1.2 creating man and woman
+- [Ge2:4-7](https://www.blueletterbible.org/niv/gen/2/4/s_2004)
+- [Ge1:12](https://www.blueletterbible.org/niv/gen/1/12/s_1012)
+- [Mal2:15](https://www.blueletterbible.org/nkjv/mal/2/15/s_927015)(NKJV) "only one" &rarr; godly offspring &rarr; Jesus
 
-- Ge1:27-28
+#### The sons of God and the daughters of men, and the Nephilim
 
-### 1.3 making man a living being
+- spiritual being * non-spiritual being &rarr; born non-spiritual being (The power of zero)
 
-- Ge2:7
+- the Nephilim: those without spirit, offspring of mixed, "the fallen out", "the fallen", "giants" [Ez32:27](https://www.blueletterbible.org/niv/eze/32/27/s_834027)
 
-    Adam
+- [Ge6:1-4](https://www.blueletterbible.org/niv/gen/6/1/s_6001), [9](https://www.blueletterbible.org/niv/gen/6/9/s_6009)
+- [Ge2:18](https://www.blueletterbible.org/niv/gen/2/18/s_2018), [23-24](https://www.blueletterbible.org/niv/gen/2/23/s_2023)
+- [Ge3:23](https://www.blueletterbible.org/niv/gen/3/23/s_3023) Adam was taken outside of Garden of Eden
 
-  - ***NOT*** the first man
-  - given the work of ***guarding*** the Garden
-  - God gave ***the Word*** as his food
-
-## the sons of God, the daughters of men, and the nephilim
-
-spiritual being * non-spiritual being = non-spiritual being
-
-the Nephilim: offspring of mixed,
-"the fallen out", "the fallen", "giants" (Ez32:27)
-
-- Ge6:1-4, 9
-- Ge2:18
-
-## man's work and the spirit's work
+#### Man's work and the Spirit's work
 
 - the nazca line's Peru
-- the stonehenge, England
+- the Stonehenge, England
+- The Carnac stones, France
 - the pyramids of Giza, Egypt
 - the pyramid of the sun, Mexico
 
-## the flesh, the soul and the spirit
+#### the flesh, the soul and the spirit
 
 - animal = flesh + primitive person (the "soul")
 - man = flesh + person (the "soul")
-- the living being = flesh + person (the "soul") ***+ spirit*** = ***flesh + soul***
+- ***the living being*** = flesh + person (the "soul") + spirit = ***flesh + soul***
 
-the person(a)
+#### the person(a)
 
-= intelligence + emotion + free will
-
-!= a being
-
-= a function
+= intelligence + emotion + free will <br>
+!= a being (a being lives or dies)<br>
+= a function <br>
 
 Watchman Nees' the trichotomy theoty of the constitution of human being (***wrong***)
 
 a living being has:
-
 - 2 beings: flesh + spirit
 - 3 functions: flesh, spirit, person
 
-the true me = spirit
+"I am a soul" &rarr; [person, spirit]
 
-<br>
+the true me = ***the spirit***
 
-### the great judgement
+- [1Th5:23](https://www.blueletterbible.org/niv/1th/5/23/s_1116023)
+- [2Co4:16](https://www.blueletterbible.org/niv/2co/4/16/s_1082016)
 
-- Noah's time: judgement bu water - on the flesh formed out of water (2Pe3:5-6)
-- The last day: judgement by the Word(spirit) - on the spirit, Adam's descendants (2Pe3:7)
+#### The great judgement
+
+- Noah's time: judgement by water - on the flesh formed out of water [2Pe3:5-6](https://www.blueletterbible.org/niv/2pe/3/5/s_1159005)
+- The last day: judgement by the Word(spirit) - on the spirit, Adam's descendants [2Pe3:7](https://www.blueletterbible.org/niv/2pe/3/7/s_1159007)
 
 ## XII. the righteousness of God
 
-### righteousness (law)
+#### righteousness (law)
 
-### different interpretations of sin
+#### different interpretations of sin
+|  religious (doctrine) | ethical (social)  | moral (individual)|
+|---|---|---|
+|  greed |  destruction of order |  corruption of the heart |
+|deny the self|coexistence|correct oneself|
 
-- religious (doctrine): greed -> deny the self
-- ethical (social): destruction of order -> coexistence
-- moral (individual): corruption of the heart -> correct oneself
+**Bibilcal**:
 
-<br>
+- the Greek thinking &rarr; the separation from the self (humanistic)
+- the Hebrew thinking &rarr; the separation from God (theistic)
 
-- the Greek thinking: the separation from the self (humanist)
-- the Hebrew thinking: the separation from God (theistic)
-
-the origin of sin is devil
+#### The origin of sin is devil
 |the first to commit sin   |the father of lies   | the first murderer|
 |---|---|---|
 |  in the spiritual heaven |in the Garden of Eden   |out of the Garden|
-|Satan / dragon (1Jn3:8; Rev12:9)|the devil, the ancient serpent (Jn8:44; Rev12:9)| leading th whole world astray (Jn8:44; 1Jn3:12)|
+|Satan / dragon [1Jn3:8](https://www.blueletterbible.org/niv/1jo/3/8/s_1162008); [Rev12:9](https://www.blueletterbible.org/niv/rev/12/9/s_1179009)|the devil, the ancient serpent [Jn8:44](https://www.blueletterbible.org/niv/jhn/8/44/s_1005044); [Rev12:9](https://www.blueletterbible.org/niv/rev/12/9/s_1179009)| leading th whole world astray [Jn8:44](https://www.blueletterbible.org/niv/jhn/8/44/s_1005044); [1Jn3:12](https://www.blueletterbible.org/niv/1jo/3/12/s_1162012)|
 
 ---
 

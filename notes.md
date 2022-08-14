@@ -2190,9 +2190,105 @@ the true me = ***the spirit***
 
 ---
 
-# Lec 20
+## Lec 20
 
-## XIV. the fig leaves and the garments of skin (human civilization and spiritual grace)
+#### The Fruit of Tree of knowledge of Good and Evil
+- [Ps121:4](https://www.blueletterbible.org/niv/psa/121/4/s_599004)
+- [Ge3:22-24](https://www.blueletterbible.org/niv/gen/3/22/s_3022)  tree of life
+
+
+As an encompass, the first Adam is the first base point, the last Adam is the second rotating point driven(fulfilling) by the will of God.
+
+|  | The first Adam  | The devil| The last Adam|
+|:---:|:---:|:---:|:---:|
+| Command  | Do not eat [Ge2:17]  |keep his proper domain [Jude1:6](https://www.blueletterbible.org/niv/jde/1/6/s_1167006)| to die[Jn10:16]|
+|Deceived?|deceived [Ge3:4-6](https://www.blueletterbible.org/niv/gen/3/4/s_3004)|deceived himself and deceives others[is14:14](https://www.blueletterbible.org/niv/isa/14/14/s_693014)|N[Mt4:10]|
+|Intent|to be like God|to be like God[Is14:14](https://www.blueletterbible.org/niv/isa/14/14/s_693014)|became like man, lowered himself[Php2:8]|
+|Obeyed?|No, ate the fruit|No, left his proper domain[Jude1:6](https://www.blueletterbible.org/niv/jde/1/6/s_1167006)|Yes, died|
+|Result| death, the price of sin [Rm6:23](https://www.blueletterbible.org/niv/rom/6/23/s_1052023)|the ruler of death [He2:14]|Died [He2:14](https://www.blueletterbible.org/niv/heb/2/14/s_1135014)|
+|The law|condemned under|accuses sinners [Rev12:10](https://www.blueletterbible.org/niv/rev/12/10/s_1179010)|Fiulfilled righteousness, one act of righteousness [Rm5:18](https://www.blueletterbible.org/niv/rom/5/18/s_1051018)|
+|Redeemed|By grace[Jn16:11](https://www.blueletterbible.org/niv/jhn/16/11/s_1013011)|Judged[1Jn3:8](https://www.blueletterbible.org/niv/1jo/3/8/s_1162008)|redeemed the first Adam [Mt20:28](https://www.blueletterbible.org/niv/mat/20/28/s_949028)|
+|Judged|justified by faith|the evil one [Jn5:27](https://www.blueletterbible.org/niv/jhn/5/27/s_1002027); [12:48](https://www.blueletterbible.org/niv/jhn/12/48/s_1009048)|the righteous Judge [2Ti4:8](https://www.blueletterbible.org/niv/2ti/4/8/s_1129008)|
+|Result of faith| eternal life|eternal punishement|resurrection|
+|Command received|The fruit of the tree of the knoeledge of good and evil|The fruit of the tree of the knoeledge of good and evil|he cross|
+||Alpha|&larr;&rarr;|Omega|
+
+- [Rm5:18](https://www.blueletterbible.org/niv/rom/5/18/s_1051018)
+
+"knowing good and evil" <br> != normal terms <br> = life / resurrection &rarr; death
+
+- [Lk12:49-50](https://www.blueletterbible.org/niv/luk/12/49/s_985049) death
+
+#### The Fruit of the tree of life
+- [Ge3:22-23](https://www.blueletterbible.org/niv/gen/3/22/s_3022)
+
+#### Satanic sin and disobedient sin
+- Satanic sin cannot be forgiven
+- Disobedient sin can be forgiven
+
+Sin = being decied by the deceiver - unbelief
+The truth = the law that does <u>not</u> deceive - disobedience
+
+First Adam is a boat, attach to God. When Adam sinned, sin and death entered all men [Rm5:12](https://www.blueletterbible.org/niv/rom/5/12/s_1051012), [1Co15:22](https://www.blueletterbible.org/niv/1co/15/22/s_1077022), the anker broke and boat is going backwards down to a waterfall(hell, lake of fire) [Rev20:15](https://www.blueletterbible.org/niv/rev/20/15/s_1187015). God sent His Son as the last Adam, coming to die and send the Holy Spirit (as another boat going up forward) to ask them to repent [Ac2:38](https://www.blueletterbible.org/niv/act/2/38/s_1020038) and jump off the first boat to join the second boat.
+
+## XIII. The spirit of man is transmitted 
+#### (the spirit of man and the redemption of Christ)
+- [Ge2:18-25](https://www.blueletterbible.org/niv/gen/2/18/s_2018)
+
+#### Theories on the transmission of the spirit
+- The pre-existence theory
+- Creationism
+- Traducianism
+<br><br>
+
+- [Mal2:15](https://www.blueletterbible.org/niv/mal/2/15/s_927015)
+- [Rm5:12-14](https://www.blueletterbible.org/niv/rom/5/12/s_1051012) Spiritually there is only one spirit, through one Adam (like iris)
+
+The spirit of Adam is inherited <br>
+vs. <br>
+The spirit of Christ is <u>NOT</u> inherited.
+
+#### Different types of sins
+
+| the original sin  |self-commited sin   |the sin of desire|
+|---|---|---|
+| Adam's sin  |individual sin (the corruption of the person)  | the tendency/character of sin|
+|death of the spirit|curse|curse|
+|inherited [Ps51:5](https://www.blueletterbible.org/niv/psa/51/5/s_529005)|<u>Not</u> inherited [Eze18:1-4](https://www.blueletterbible.org/niv/eze/18/1/s_820001), [17-18](https://www.blueletterbible.org/niv/eze/18/17/s_820017)|<u>Not</u> inherited [Eze18:1-4](https://www.blueletterbible.org/niv/eze/18/1/s_820001), [17-18](https://www.blueletterbible.org/niv/eze/18/17/s_820017)|
+
+- [Ge4:7](https://www.blueletterbible.org/niv/gen/4/7/s_4007)
+- [Eph2:1](https://www.blueletterbible.org/niv/eph/2/1/s_1099001)
+- [1Co15:22](https://www.blueletterbible.org/niv/1co/15/22/s_1077022)
+- [lk1:30-38](https://www.blueletterbible.org/niv/luk/1/30/s_974030)
+- [Jn1:1](https://www.blueletterbible.org/niv/jhn/1/1/s_998001), [14](https://www.blueletterbible.org/niv/jhn/1/14/s_998014)
+- [Lk2:40](https://www.blueletterbible.org/niv/luk/2/40/s_975040)
+- [1Co15:45-47](https://www.blueletterbible.org/niv/1co/15/45/s_1077045)
+
+Jesus(flesh) <br>= the Spirit of the Word <br>= the Spirit of Christ <br> = the Last Adam
+
+Jesus did not receive anything from Mary at birth
+<br><br>
+
+The spirit of the first Adam - divides, inherited <br>
+vs. <br>
+the Spirit of Christ, the Spirit of the last Adam - <u>not</u> inherited
+
+our sin was nailed to the cross with His body (atonement, redemption)
+
+- [Jn1:12](https://www.blueletterbible.org/niv/jhn/1/12/s_998012) everyone were redeemed, but have to believe and receive to be saved
+- [Eph2:1-8](https://www.blueletterbible.org/niv/eph/2/1/s_1099001)
+
+#### Redemption and the Forgiveness of Sin
+
+|born-again   |sanctification   |
+|---|---|
+| the change in essence  |the change in form   |
+|one time|<u>continuous</u>|
+|by the works of Christ|by my works|
+
+
+
+## XIV. The fig leaves and the garments of skin (human civilization and spiritual grace)
 
 - Fig leaves: man's method
 - Garments of skin: God's method

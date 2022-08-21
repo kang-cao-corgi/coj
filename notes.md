@@ -2286,116 +2286,115 @@ our sin was nailed to the cross with His body (atonement, redemption)
 |one time|<u>continuous</u>|
 |by the works of Christ|by my works|
 
-
+---
+## Lec 21
 
 ## XIV. The fig leaves and the garments of skin (human civilization and spiritual grace)
+- [Ge3:6-13](https://www.blueletterbible.org/niv/gen/3/6/s_3006), [21-22](https://www.blueletterbible.org/niv/gen/3/21/s_3021)
 
 - Fig leaves: man's method
-- Garments of skin: God's method
+- Garments of skin: God's grace
 
-knowing "good and evil" = understanding the problem of life and death
+knowing "good and evil" not in moral term = understanding the problem of life and death
 
-Apple:
+#### Apple:
+1. good for food [Da1:8](https://www.blueletterbible.org/niv/dan/1/8/s_851008)
+2. pleasing to the eye [Ge6:2](https://www.blueletterbible.org/niv/gen/6/2/s_6002)
+3. desirable for gaining wisdom [Rev13:15-18](https://www.blueletterbible.org/niv/rev/13/15/s_1180015)
 
-1. good for food (Da1:8)
-2. pleasing to the eye (Ge6:2)
-3. desirable for gaining wisdom (Rev13:15-18)
+#### ***How it applies to the modern life***
 
-### ***How it applies to the modern life***
-
-1. keeping the ethics and the lineage of the family (Ge3:16???)
-2. the order of materials (Ge3:17)
+1. keeping the ethics and the lineage of the family [Ge3:16](https://www.blueletterbible.org/niv/gen/3/16/s_3016)
+2. the order of materials [Ge3:17](https://www.blueletterbible.org/niv/gen/3/17/s_3017)
 3. the life that lives by the grace of God
 
-## XV. the day God made holy
+## XV. The day God made holy
+- [Ge2:1-3](https://www.blueletterbible.org/niv/gen/2/1/s_2001)
 
-- Ge2:1-3
+#### Two types of God's ***blessings*** at creation
+1. Material (cultural): to multiply - proliferation(增生, 繁殖) - ends
+2. Spiritual (holy): be holy - holiness - no end
 
-### two types of God's ***blessings*** at creation
+what happend in 7-day-creation?
 
-1. material (cultural): to multiply - proliferation - ends
-2. spiritual (holy): be holy - holiness - no end
-
-what happend?
-
-1. 1st: light, till today
-2. 2nd: the expanse, till today
-3. 3rd: plants and lands, till today
-4. 4th: sun, moon and star, till today
-5. 5th: fish and birds, till today
-6. 6th: animals, men, till today
-7. 7th: be blessed: holy - God's rest
+1. light, till this day
+2. the expanse, till this day
+3. plants and lands, till this day
+4. sun, moon and stars, till this day
+5. fish and birds, till this day
+6. animals, men, till this day
+<br> &uarr; all will end
+---
+7. blessing &rarr; holy - God's rest
 
 Holiness = God's resting environment = to be set apart (different)
-there is end to X but no end to holiness
 
-### The sabbath and the holy day
+There is end to all things but no end to holiness
 
-***the Sabbath***: the day in which God rested
+#### The Sabbath and the Holy Day
+
+***the Sabbath***: the day in which God rested (The seventh day) (Jews keep it today)
 
 ***the holy day***: the day God made holy
 
-The essence of the Sabbath is holiness
+#### The essence of the Sabbath is holiness
 
-- He10:3-14
-- He9:11-12
-- He10:19-20
-- Mt5:8
-- He12:14
-- Jn17:17
+Sabbath &rarr; time, temple &rarr; space
 
-***the Truth*** = the Father's words (Jn17:11) = the wods of Jesus (Jn14:24) -> ***holy***
+- [He10:3-14](https://www.blueletterbible.org/niv/heb/10/3/s_1143003)
+- [He9:11-12](https://www.blueletterbible.org/niv/heb/9/11/s_1142011)
+- [He10:19-20](https://www.blueletterbible.org/niv/heb/10/19/s_1143019)
+- [Lev16:14-17](https://www.blueletterbible.org/niv/lev/16/14/s_106014)
+- [Mt5:8](https://www.blueletterbible.org/niv/mat/5/8/s_934008)
+- [He12:14](https://www.blueletterbible.org/niv/heb/12/14/s_1145014)
+- [Jn17:17](https://www.blueletterbible.org/niv/jhn/17/17/s_1014017)
 
-The souls ***sanctified*** by the blood of Jesus -> sanctified by ***the truth*** -> eternal rest
+***the Truth*** = the Father's words [Jn17:17](https://www.blueletterbible.org/niv/jhn/17/17/s_1014017) = the words of Jesus [Jn14:24](https://www.blueletterbible.org/niv/jhn/14/24/s_1011024) &rarr; ***holy***
 
-Yeshua is the Lord of
+The souls ***sanctified*** by the blood of Jesus &rarr; sanctified by ***the truth*** &rarr; eternal rest
 
-- Mt12:8
-- Lk6:5
-- Mt11:28
+#### Yeshua is the Lord of rest
+- [Mt12:8](https://www.blueletterbible.org/niv/mat/12/8/s_941008)
+- [Lk6:5](https://www.blueletterbible.org/niv/luk/6/5/s_979005)
+- [Mt11:28](https://www.blueletterbible.org/niv/mar/11/28/s_968028)
 
-### the Sabbath and the Lord's day
+#### the Sabbath and the Lord's day
 
-| the Sabbath                                                    | the Lord's Day                                                                                 |
-| -------------------------------------------------------------- | ---------------------------------------------------------------------------------------------- |
-| the day when the Creator God finishd His work and entered rest | the day when the Redeemer God Jesus finished his work and entered rest, the day He resurrected |
-| the 7th day                                                    | ***the 8th day, "another day" (He4:8)***                                                       |
+| the Sabbath | the Lord's Day |
+| --- | ---|
+| the day when the Creator God finishd His work and entered rest | the day when the Redeemer God Jesus finished His work and entered rest, the day He resurrected |
+| the 7th day | ***the 8th day, "another day" [He4:8](https://www.blueletterbible.org/niv/heb/4/8/s_1137008)*** |
 
-- Rm5:18
-- Lk12:49
+- [Rm5:18](https://www.blueletterbible.org/niv/rom/5/18/s_1051018)
+- [Lk12:49](https://www.blueletterbible.org/niv/luk/12/49/s_985049)
 
-the day He made holy
+#### The day He made holy (kadosh)
+resurrection day
 
-### the resurrection of Jesus
+#### The resurrection of Jesus
+the completion of His work, the beginning of His ***eternal rest***
 
-the completion of His work, thebeginning of His ***eternal rest***
+#### Saints
+the souls, sanctified by the blood of JX, who put effort to resurrect with Christ and go to the Father's house for eternal rest
+- [Ex20:8-11](https://www.blueletterbible.org/niv/exo/20/8/s_70008)
 
-### Saints
-
-the souls, sanctified by the blood of JX, who put effort to resurrect with Him and go to the Father's house for eternal rest
-
-- Ex20:8-11
-
-### The importance of the holy day
-
+#### The importance of the holy day
 1. without the day, men would forget to make it holy
 2. to possess the hope to enter God's environment
 
-### Remembrance
-
+#### Remembrance
 1. God created all things  -- the Creator
 2. He finished His work -- rested -- became the Owner of all things
 
-### Why we need to keep the Lord's day
+#### Why we need to keep the Lord's day
+- [Ac20:7](https://www.blueletterbible.org/niv/act/20/7/s_1038007)
 
-- Ac20:3
+#### How do we keep it holy?
+- [Is58:13-14](https://www.blueletterbible.org/niv/isa/58/13/s_737013)
+- [He4:6-11](https://www.blueletterbible.org/niv/heb/4/6/s_1137006)
 
-### How do we keep it holy?
-
-- Is58:13-14
-- He4:6-11
-
-# Lec21
+---
+## Lec 22
 
 ## XVI. the sons of God and the daughters of men
 

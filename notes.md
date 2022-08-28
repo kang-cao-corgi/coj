@@ -2394,123 +2394,140 @@ the souls, sanctified by the blood of JX, who put effort to resurrect with Chris
 - [He4:6-11](https://www.blueletterbible.org/niv/heb/4/6/s_1137006)
 
 ---
+
 ## Lec 22
 
-## XVI. the sons of God and the daughters of men
+## XVI. The sons of God and the daughters of men (the afterlife)
 
-- Ge6:1-3
+- [Ge6:1-3](https://www.blueletterbible.org/niv/gen/6/1/s_6001)
 
-### three origins of men
+#### Three origins/categories of men
 
-| offspring of Adam (offspring of Seth)          | living being | "Sons of God"      |
-| ---------------------------------------------- | ------------ | ------------------ |
-| Nephilim / mixed offspring (of the teo groups) | no spirit    | "daughters of men" |
+||||
+|---|---|---|
+| offspring of Adam (offspring of ***Seth***)          | living being | ***"Sons of God"***      |
 
-### the descendants of Seth
+| Nephilim | no spirit    | "daughters of men" |
+|Mixed offspring (of two groups)|No spirit|"daughters of men"|
 
-1. Adam - Noah (Ge4:26; 1Pe3:19-20)
-   (the original sin) no Command Rev Cov.
-2. Noah - Moses (Ge9:4 given command) yes * 3
-3. Moses - Jesus (Ex24:6-8; Lev17:11-13) yes * 3
-4. Jesus - the second coming  (Mt26:27-28) yes * 3
+#### The descendants of Seth
+
+1. Adam &lrhar; Noah [Ge4:26](https://www.blueletterbible.org/niv/gen/4/26/s_4026); [1Pe3:19-20](https://www.blueletterbible.org/niv/1pe/3/19/s_1154019)
+   (the original sin) no other commandment received.
+2. Noah &lrhar; Moses [Ge9:4](https://www.blueletterbible.org/niv/gen/9/4/s_9004) given commandment, original sin, spiritual sin, 
+3. Moses &lrhar; Jesus [Ex24:6-8](https://www.blueletterbible.org/niv/exo/24/6/s_74006); [Lev17:11-13](https://www.blueletterbible.org/niv/lev/17/11/s_107011) given commandment(do not each blood, do shed blood of animal for sacrifice)
+4. Jesus &lrhar; the second coming  [Mt26:27-28](https://www.blueletterbible.org/niv/mat/26/27/s_955027) given commandment(drink the blood)
 
 resurrection starts from Noah
 
-### the life after death
+#### The life after death
 
-1. Adam - Noah (1Pe4:6) spiritual prison
+1. Adam &lrhar; Noah [1Pe4:6](https://www.blueletterbible.org/niv/1pe/4/6/s_1155006) the spiritual prison &ne; Catholic purgatory
 
-Paradise locates across over second and third heaven, which contains Father's house. The part of which lies in second heaven is called spiritual prison, but not hell. The part which lies in third heaven is called Abraham's bason or side
+    Paradise locates across over second and third heaven, which contains Father's house. The part of which lies in second heaven is called spiritual prison, but not hell. The part which lies in third heaven is called Abraham's boson or side
 
-the people who went to spiritual prison became angels???
+    1. people before Noah, no resurrection &rarr; became angels
+    1. believers from Noah to Jesus (in OT), go to Abraham's side, will come to 2nd resurrection &rarr; servants of God
+    1. believers after Jesus &rarr; paradise, eligible for 1st resurrection &rarr; heirs of God
+    
 
-1. Noah - Jesus (Lk16:23)
+1. Noah &lrhar; Jesus [Lk16:23](https://www.blueletterbible.org/niv/luk/16/23/s_989023)
    who died in this period is only qualified for second resurrection, going to paradise, as servants
 
-2. after Jesus (Lk23:43)
+1. after Jesus [Lk23:42](https://www.blueletterbible.org/niv/luk/16/23/s_989023)
    qualified for first resurrection, going to paradise, as heirs children of God
 
-### the world in the life afte death
+#### The world in the life after death
 
-- 1Pe4:7
-- 1Co15:21-24, 41-44
+- [1Pe4:7](https://www.blueletterbible.org/niv/1pe/4/7/s_1155007)
+- [1Co15:21-24](https://www.blueletterbible.org/niv/1co/15/21/s_1077021), [41-44](https://www.blueletterbible.org/niv/1co/15/41/s_1077041)
+- [Rm8:17](https://www.blueletterbible.org/niv/rom/8/17/s_1054017)
 
-3 orders of resurrection: 1. Jesus, 2. children of God, 3. after millennium
+#### Orders of resurrection: 
+1. Jesus, "the firstfruits" 
+2. the children/heirs of God, 1st resurrection
+3. after millennium "1000 years", 2nd resurrection
 
-- Rm8:17
+#### Unbelievers after death
 
-### unbelievers after death
+In Hades unto 120 years &rarr; to the ***Abyss*** (within Hades)(spiritual space in the universe) after &rarr; dwelling on earth as demons until 120 years
 
-in Hades up to 120 years -> to the Abyss (within Hades)(spiritual space in the universe) after
+- [Lk8:26-31](https://www.blueletterbible.org/niv/luk/8/26/s_981026)
 
-- Lk8:26-31
+#### Saints after death
 
-### saints after death
-
-- Rev8:3-4
+- [Rev8:3-4](https://www.blueletterbible.org/niv/rev/8/3/s_1175003)
 
 | saints                         | believers              |
 |:------------------------------:|:----------------------:|
 | use their flesh as God's tools | use their flesh as man |
-| 1st resurrection               | 2nd resurrection       |
+| the ***first*** resurrection               | the ***second*** resurrection       |
 
-- Rev4:6-10
+- [Rev4:6-10](https://www.blueletterbible.org/niv/rev/4/6/s_1171006)
 
-## XVII. the death of the first Adam and the resurrection of the last Adam
+## XVII. The death of the first Adam and the resurrection of the last Adam
 
-- 1Co15:45-47
+- [1Co15:45-47](https://www.blueletterbible.org/niv/1co/15/45/s_1077045)
 
-he important connection between the first Adam and the last Adam
+#### The important connection between the first Adam and the last Adam
 |first Adam (all men)   |last Adam   |
 |---|---|
 |   living spirit|life-giving spirit   |
 | has flesh| spiritual|
 | born on earth| born in heaven|
-| of the dust of earth| of heaven|
+| of the dust of the earth| of heaven|
 
-### 1. the death of Jesus
+### 1. The death of Jesus
 
-- 1Jn4:2-3
-- Jn10:17-18
+- [1Jn4:2-3](https://www.blueletterbible.org/niv/1jo/4/2/s_1163002)
+- [Jn10:17-18](https://www.blueletterbible.org/niv/jhn/10/17/s_1007017)
 
-|                    |                                       |
-| ------------------ | ------------------------------------- |
-| ***The universe*** | the place for (the death of Jesus)    |
-| Man                | the condition for (the flesh and sin) |
-| The law            | the context of                        |
-| ***Miracles***     | the power of                          |
+|||
+| --- | --- |
+| ***The universe*** | the place for the death of Jesus    |
+| Man                | the condition for the death of Jesus (the flesh and sin) |
+| The law            | the context of the death of Jesus                       |
+| ***Miracles***     | the power of the death of Jesus                         |
 
-- Jn3:14-15
-- Nu21:6-9
-- Col2:14-15
+- [He10:19-20](https://www.blueletterbible.org/niv/heb/10/19/s_1143019)
 
-The outcomes of the death of Jesus on the cross
+- [Jn3:14-15](https://www.blueletterbible.org/niv/jhn/3/14/s_1000014)
+- [Nu21:6-9](https://www.blueletterbible.org/niv/num/21/6/s_138006)
+- [Col2:14-15](https://www.blueletterbible.org/niv/col/2/14/s_1109014)
 
+#### The outcome of the death of Jesus on the cross
 1. redemption
 2. salvation
 3. healing
 
-### 2. the resurrection of Jesus
+### 2. The resurrection of Jesus
 
-- 1Co15:12-19
+- [1Co15:12-19](https://www.blueletterbible.org/niv/1co/15/12/s_1077012)
+- [1Th4:13-17](https://www.blueletterbible.org/niv/1th/4/13-17/s_1115013)
 
-The power of the resurrection of Jesus
-
+#### The power of the resurrection of Jesus
 1. the resurrection of saints
 2. children of God
 3. eternal life
-- 1Co15:20-24, 50-52
-- Rev20:4-6
 
-### the first Adam and the last Adam
+All will resurrect,
+    <br> &rarr; to life or to condemnation [Jn5:29](https://www.blueletterbible.org/niv/jhn/5/29/s_1002029)
+    <br> &rarr; of the righteous or the wicked [Ac24:15](https://www.blueletterbible.org/niv/act/24/15/s_1042015)
 
-### the body of Jesus and the spirit of man are on the same level
+- [1Co15:20-24](https://www.blueletterbible.org/niv/1co/15/20/s_1077020), [50-52](https://www.blueletterbible.org/niv/1co/15/50/s_1077050)
+- [Rev20:4-6](https://www.blueletterbible.org/niv/rev/20/4/s_1187004)
 
-### redemption and the forgeveness of sin
+#### The first Adam and the last Adam connections
+
+the body of Jesus and the spirit of man are on the same level. <br>
+the last Adam has no flesh thus no tendency to sin (flesh = life-giving spirit = the last Adam)
+
+#### Redemption and the forgeveness of sin
+- [Rm8:11](https://www.blueletterbible.org/niv/rom/8/11/s_1054011), [17-20](https://www.blueletterbible.org/niv/rom/8/17/s_1054017)
 
 ---
 
-### Lec 23
+## Lec 23
 
 ## XVIII. The Holy Spirit in the time of grace
 

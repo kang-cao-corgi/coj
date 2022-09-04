@@ -2302,7 +2302,7 @@ knowing "good and evil" not in moral term = understanding the problem of life an
 2. pleasing to the eye [Ge6:2](https://www.blueletterbible.org/niv/gen/6/2/s_6002)
 3. desirable for gaining wisdom [Rev13:15-18](https://www.blueletterbible.org/niv/rev/13/15/s_1180015)
 
-#### ***How it applies to the modern life***
+### ***How it applies to the modern life***
 
 1. keeping the ethics and the lineage of the family [Ge3:16](https://www.blueletterbible.org/niv/gen/3/16/s_3016)
 2. the order of materials [Ge3:17](https://www.blueletterbible.org/niv/gen/3/17/s_3017)
@@ -2311,7 +2311,7 @@ knowing "good and evil" not in moral term = understanding the problem of life an
 ## XV. The day God made holy
 - [Ge2:1-3](https://www.blueletterbible.org/niv/gen/2/1/s_2001)
 
-#### Two types of God's ***blessings*** at creation
+### Two types of God's ***blessings*** at creation
 1. Material (cultural): to multiply - proliferation(增生, 繁殖) - ends
 2. Spiritual (holy): be holy - holiness - no end
 
@@ -2331,13 +2331,13 @@ Holiness = God's resting environment = to be set apart (different)
 
 There is end to all things but no end to holiness
 
-#### The Sabbath and the Holy Day
+### The Sabbath and the Holy Day
 
 ***the Sabbath***: the day in which God rested (The seventh day) (Jews keep it today)
 
 ***the holy day***: the day God made holy
 
-#### The essence of the Sabbath is holiness
+### The essence of the Sabbath is holiness
 
 Sabbath &rarr; time, temple &rarr; space
 
@@ -2353,12 +2353,12 @@ Sabbath &rarr; time, temple &rarr; space
 
 The souls ***sanctified*** by the blood of Jesus &rarr; sanctified by ***the truth*** &rarr; eternal rest
 
-#### Yeshua is the Lord of rest
+### Yeshua is the Lord of rest
 - [Mt12:8](https://www.blueletterbible.org/niv/mat/12/8/s_941008)
 - [Lk6:5](https://www.blueletterbible.org/niv/luk/6/5/s_979005)
 - [Mt11:28](https://www.blueletterbible.org/niv/mar/11/28/s_968028)
 
-#### the Sabbath and the Lord's day
+### the Sabbath and the Lord's day
 
 | the Sabbath | the Lord's Day |
 | --- | ---|
@@ -2374,11 +2374,11 @@ resurrection day
 #### The resurrection of Jesus
 the completion of His work, the beginning of His ***eternal rest***
 
-#### Saints
+### Saints
 the souls, sanctified by the blood of JX, who put effort to resurrect with Christ and go to the Father's house for eternal rest
 - [Ex20:8-11](https://www.blueletterbible.org/niv/exo/20/8/s_70008)
 
-#### The importance of the holy day
+### The importance of the holy day
 1. without the day, men would forget to make it holy
 2. to possess the hope to enter God's environment
 
@@ -2401,7 +2401,7 @@ the souls, sanctified by the blood of JX, who put effort to resurrect with Chris
 
 - [Ge6:1-3](https://www.blueletterbible.org/niv/gen/6/1/s_6001)
 
-#### Three origins/categories of men
+### Three origins/categories of men
 
 ||||
 |---|---|---|
@@ -2410,7 +2410,7 @@ the souls, sanctified by the blood of JX, who put effort to resurrect with Chris
 | Nephilim | no spirit    | "daughters of men" |
 |Mixed offspring (of two groups)|No spirit|"daughters of men"|
 
-#### The descendants of Seth
+### The descendants of Seth
 
 1. Adam &lrhar; Noah [Ge4:26](https://www.blueletterbible.org/niv/gen/4/26/s_4026); [1Pe3:19-20](https://www.blueletterbible.org/niv/1pe/3/19/s_1154019)
    (the original sin) no other commandment received.
@@ -2420,7 +2420,7 @@ the souls, sanctified by the blood of JX, who put effort to resurrect with Chris
 
 resurrection starts from Noah
 
-#### The life after death
+### The life after death
 
 1. Adam &lrhar; Noah [1Pe4:6](https://www.blueletterbible.org/niv/1pe/4/6/s_1155006) the spiritual prison &ne; Catholic purgatory
 
@@ -2437,24 +2437,24 @@ resurrection starts from Noah
 1. after Jesus [Lk23:42](https://www.blueletterbible.org/niv/luk/16/23/s_989023)
    qualified for first resurrection, going to paradise, as heirs children of God
 
-#### The world in the life after death
+### The world in the life after death
 
 - [1Pe4:7](https://www.blueletterbible.org/niv/1pe/4/7/s_1155007)
 - [1Co15:21-24](https://www.blueletterbible.org/niv/1co/15/21/s_1077021), [41-44](https://www.blueletterbible.org/niv/1co/15/41/s_1077041)
 - [Rm8:17](https://www.blueletterbible.org/niv/rom/8/17/s_1054017)
 
-#### Orders of resurrection: 
+### Orders of resurrection: 
 1. Jesus, "the firstfruits" 
 2. the children/heirs of God, 1st resurrection
 3. after millennium "1000 years", 2nd resurrection
 
-#### Unbelievers after death
+### Unbelievers after death
 
 In Hades unto 120 years &rarr; to the ***Abyss*** (within Hades)(spiritual space in the universe) after &rarr; dwelling on earth as demons until 120 years
 
 - [Lk8:26-31](https://www.blueletterbible.org/niv/luk/8/26/s_981026)
 
-#### Saints after death
+### Saints after death
 
 - [Rev8:3-4](https://www.blueletterbible.org/niv/rev/8/3/s_1175003)
 
@@ -2469,7 +2469,7 @@ In Hades unto 120 years &rarr; to the ***Abyss*** (within Hades)(spiritual space
 
 - [1Co15:45-47](https://www.blueletterbible.org/niv/1co/15/45/s_1077045)
 
-#### The important connection between the first Adam and the last Adam
+### The important connection between the first Adam and the last Adam
 |first Adam (all men)   |last Adam   |
 |---|---|
 |   living spirit|life-giving spirit   |
@@ -2495,7 +2495,7 @@ In Hades unto 120 years &rarr; to the ***Abyss*** (within Hades)(spiritual space
 - [Nu21:6-9](https://www.blueletterbible.org/niv/num/21/6/s_138006)
 - [Col2:14-15](https://www.blueletterbible.org/niv/col/2/14/s_1109014)
 
-#### The outcome of the death of Jesus on the cross
+### The outcome of the death of Jesus on the cross
 1. redemption
 2. salvation
 3. healing
@@ -2505,7 +2505,7 @@ In Hades unto 120 years &rarr; to the ***Abyss*** (within Hades)(spiritual space
 - [1Co15:12-19](https://www.blueletterbible.org/niv/1co/15/12/s_1077012)
 - [1Th4:13-17](https://www.blueletterbible.org/niv/1th/4/13-17/s_1115013)
 
-#### The power of the resurrection of Jesus
+### The power of the resurrection of Jesus
 1. the resurrection of saints
 2. children of God
 3. eternal life
@@ -2517,7 +2517,7 @@ All will resurrect,
 - [1Co15:20-24](https://www.blueletterbible.org/niv/1co/15/20/s_1077020), [50-52](https://www.blueletterbible.org/niv/1co/15/50/s_1077050)
 - [Rev20:4-6](https://www.blueletterbible.org/niv/rev/20/4/s_1187004)
 
-#### The first Adam and the last Adam connections
+### The first Adam and the last Adam connections
 
 the body of Jesus and the spirit of man are on the same level. <br>
 the last Adam has no flesh thus no tendency to sin (flesh = life-giving spirit = the last Adam)
@@ -2529,121 +2529,152 @@ the last Adam has no flesh thus no tendency to sin (flesh = life-giving spirit =
 
 ## Lec 23
 
-## XVIII. The Holy Spirit in the time of grace
+## XVIII. The *Holy Spirit* in the time of grace
 
-- Rm5:12-21
+- [Rm5:12-21](https://www.blueletterbible.org/niv/rom/5/12/s_1051012)
 
-### major biblical eras
+### Major Biblical eras
 
-|                               |                                            |
-| ----------------------------- | ------------------------------------------ |
-| adam - Noah                   | era of Deity-Consciousness                 |
-| Noash - Moses                 | era of Sacrifice                           |
-| Moses - John the Baptist      | era of the Law                             |
-| Jesus - the Second Coming     | era of Grace                               |
-| the Second Coming - Judgement | era of the Millenium, the kingdom on earth |
+|||
+| --- | --- |
+| Adam &harr; Noah | era of Deity-Consciousness|
+| Noash &harr; Moses| era of Sacrifice|
+| Moses &harr; John the Baptist(the last prophet) / Jesus| era of the Law|
+| Jesus &harr; the Second Coming| era of Grace|
+| the Second Coming &harr; Judgement | era of the Millennium(the thousand years of ruling), the kingdom on earth |
 
 ### the millennium
 
-- Rev20:2-8
+- [Rev20:4-6](https://www.blueletterbible.org/niv/rev/20/1/s_1187001)
 
-|                |                                                                   |
-| -------------- | ----------------------------------------------------------------- |
+#### Three interpretations of millennium
+|                ||
+| --- | --- |
 | Premillennium  | the Second Coming of Jesus - the Millennium - the Great Judgement |
-| Amillennium    | No Millennium                                                     |
+| Amillennium    | No Millennium  |
 | PostMillennium | the Millennium - the Second Coming of Jesus - the Great Judgement |
 
-| E DC                                              | E S | E L | E G | E M |
-| ------------------------------------------------- | --- | --- | --- | --- |
-| Blood: no covenant, no revelation, no commandment |     |     |     |     |
+<br>
 
-### the death of Jesus
+<table>
+    <thead>
+        <tr>
+            <th></th>
+            <th>Era of Deity-consciousness</th>
+            <th>Era of Sacrifice</th>
+            <th>Era of the Law</th>
+            <th>Era of Grace</th>
+            <th>Era of Millennium</th>
+        </tr>
+    </thead>
+    <tbody>
+        <tr>
+            <td></td>
+            <td>Adam &harr; Noah</td>
+            <td>Noah &harr; Moses</td>
+            <td>Moses &harr; Jesus</td>
+            <td>Jesus &harr; 2nd coming</td>
+            <td>2nd coming &harr; Greate Judgement</td>
+        </tr>
+        <tr>
+            <td rowspan=3>Nephilim</td>
+            <td rowspan=3>Blood: no covenant, no revelation, no commandment</td>
+            <td colspan=3>Blood: covenant, revelation, commandment</td>
+            <td></td>
+        </tr>
+        <tr>
+            <td>Do not eat blood</td>
+            <td>Do not eat blood, shedd blod</td>
+            <td>Drink my blood</td>
+        </tr>
+        <tr>
+            <td>Saw the testimony of the blood</td>
+            <td>Received the testimony of the blood</td>
+            <td>Witnesses of the blood</td>
+        </tr>
+    </tbody>
+</table>
 
-- Ac4:12
+### The death of Jesus
+- [Ac4:12](https://www.blueletterbible.org/niv/act/4/12/s_1022012)
 
-  ### the Holy Spirit of Grace
-- He11:13, 39-40
+### The Holy Spirit of Grace
+- [He11:13](https://www.blueletterbible.org/niv/heb/11/13/s_1144013), [39-40](https://www.blueletterbible.org/niv/heb/11/39/s_1144039)
 
-| OT Men              | NT Men             |
-| ------------------- | ------------------ |
+| OT people              | NT people             |
+| --- | --- |
 | had faith, had sin  | the death of Jesus |
 | testified by blood  | the death of Jesus |
 | died in sin         | sins taken away    |
 | sin of disobedience | sin of unbelief    |
 
-the NT men
+the NT people
+- [Jn3:18](https://www.blueletterbible.org/niv/jhn/3/18/s_1000018)
+- [Jn16:9](https://www.blueletterbible.org/niv/jhn/16/9/s_1013009)
+- [Jn11:25-26](https://www.blueletterbible.org/niv/jhn/11/25/s_1008025)
 
-- Jn3:18
-- Jn16:9
-- Jn11:25-26
+the OT people
+- [Rm2:12-16](https://www.blueletterbible.org/niv/rom/2/12/s_1048012)
+- [Mt10:14](https://www.blueletterbible.org/niv/mat/10/14/s_939014)
 
-the OT men
+### The sign of Jonah
+- [Mt12:39-41](https://www.blueletterbible.org/niv/mat/12/39/s_941039)
+- [Mt3:10](https://www.blueletterbible.org/niv/mat/3/10/s_932010)
+- [Mt12:43-45](https://www.blueletterbible.org/niv/mat/12/43/s_941043)
 
-- Rm2:12-16
-
-### the sign of Jonah
-
-- Mt12:39-41
-- Mt3:10
-- Mt12:43-45
-
-the condemnation under the Gospel is seven times weightier than the condemnation under the Law
-
-- Ge4:5
-- Mt12:29
-- Lk10:23
+The condemnation under the Gospel is seven times weightier than the condemnation under the Law
+- [Ge4:15](https://www.blueletterbible.org/niv/gen/4/15/s_4015)
+- [Mt12:29](https://www.blueletterbible.org/niv/mat/12/29/s_941029)
+- [Lk10:23-24](https://www.blueletterbible.org/niv/luk/10/23/s_983023)
 
 ### Christians in the era of Grace
+- [Lk7:28](https://www.blueletterbible.org/niv/luk/7/28/s_980028)
+  OT men < John the Baptist < Christian in the era of Grace
 
-- Lk7:28
-  OT men < John < NT men
+|| OT men| NT men|
+| --- | --- | --- |
+| Spirit| the spirit of servant | the spirit of the Son |
+| blood| blood of animals| blood of JX|
+| promies| None| the Holy Spirit |
+| life-after-death | Abraham's side| Paradise|
+| resurrection     | second| first|
 
-|                  | OT men                | NT men                |
-| ---------------- | --------------------- | --------------------- |
-| Spirit           | the spirit of servant | the spirit of the Son |
-| blood            | blood of animals      | blood of JX           |
-| promies          | None                  | HS                    |
-| life-after-death | Abraham's side        | Paradise              |
-| resurrection     | second                | first                 |
+- [2Co1:21-22](https://www.blueletterbible.org/niv/2co/1/21/s_1079021)
+- [Ac2:38](https://www.blueletterbible.org/niv/act/2/38/s_1020038)
 
-- 2Co1:21-22
-- Ac2:38
+| the works of JX | the Holy Spirit|
+| --- | --- |
+| received by sinners| received by saved souls|
+| by grace| by grace; requirement not for redemption but for salvation |
 
-| the works of JX | the HS                                                     |
-| --------------- | ---------------------------------------------------------- |
-| in sin          | the saved souls                                            |
-| by grace        | by grace; requirement not for redemption but for salvation |
-
-| IS                       | Christians            |
-| ------------------------ | --------------------- |
-| nurtured by the prophets | nurtured by the HS    |
+| Israel| Christians|
+| --- | --- |
+| nurtured by the prophets | nurtured by the Holy Spirit    |
 | under suffering, curse   | under grace and truth |
-| fear                     | peace, joy, happiness |
+| fear                     | in peace, joy, happiness |
 
-- Rm8:32
+- [Rm8:32](https://www.blueletterbible.org/niv/rom/8/32/s_1054032)
 
-### the new commandment
+### The new commandment
 
-- 1Co9:16
+- [1Co9:16](https://www.blueletterbible.org/niv/1co/9/16/s_1071016)
 
-the law: if obey -> righteous. if not -> cursed
-the Gospel: if not preach -> woe
+the law: if obey &rarr; righteous. if not &rarr; cursed <br>
+the Gospel: if not preach &rarr; woe
 
-the four men with leprosy in samaria
+the four men with leprosy in Samaria
+- [2Ki6-7](https://www.blueletterbible.org/niv/2ki/6/1/s_319001)
+- [Eze33:1-9](https://www.blueletterbible.org/niv/eze/33/1/s_835001)
+- [2Co6:2](https://www.blueletterbible.org/niv/2co/6/2/s_1084002)
 
-- 2Ki6:7
-- Eze33:1-9
-- 2Co6:2
+| OT Men| NT Men|
+| --- | --- |
+| co-workers for the death of JX | co-workers for the ministry of the grace of JX |
+| under curse| in suffering|
 
-| OT Men                        | NT Men                                        |
-| ----------------------------- | --------------------------------------------- |
-| coworkers for the death of JX | coworkers for the ministry of the grace of JX |
-| under curse                   | in suffering                                  |
-
-grace received
-
+Grace received (freely given)
 1. forgiven
-2. inspired by the HS
+2. inspired by the Holy Spirit
 3. received the commandment to save souls
 
 ---

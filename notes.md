@@ -2678,87 +2678,89 @@ Grace received (freely given)
 3. received the commandment to save souls
 
 ---
+## Lec24
+## XIX. The dispensation of God
+- [1Th4:14-17](https://www.blueletterbible.org/niv/1th/4/14/s_1115014)
+- [1Th5:1-3](https://www.blueletterbible.org/niv/1th/5/1/s_1116001
+)
 
-# Lec24
+The dispensation of God = 
+God's schedule / timetable devided within history
 
-## XIX. the dispensation of God
+### The timetable of God
+the Bible = the prophecy of God's schedule = OT + NT ("testament" = will, prophecy)
 
-God's schedule for his plan and purpose
+- [He9:16-17](https://www.blueletterbible.org/niv/heb/9/16/s_1142016)
 
-### the timetable of God
-
-the Bible  = the schedule of God's schedule = OT + NT ("testament" = will, prophecy)
-
-- He9:16-17
-
-| the death of Jesus             | the resurrection of Jesus                  |
-| ------------------------------ | ------------------------------------------ |
-| redemption, salvation, healing | resurection, children of God, eternal life |
-| prophecies of the prophets     | prophecies of Jesus                        |
-
-<br>
-
-| the law and the prophets | Jesus                                          | the HS             |
-| ------------------------ | ---------------------------------------------- | ------------------ |
-| the death of JX          | His resurrectoinm the HS and His Scound Coming | be witnesses of JX |
-
-### testimonies
-
-|                        |                                        |
-| ---------------------- | -------------------------------------- |
-| the death of JX        | unbelievers (the world)                |
-| the resurrection of JX | the disciples (1Col15:4-5)             |
-| the ascension of JX    | the disciples, 500 followers (1Co15:6) |
-| Jx ont he throne       | the HS (Ac2:32, 5:30-31)               |
+| the death of Jesus| the resurrection of Jesus|
+| --- | --- |
+| redemption, salvation, healing | resurrection, children of God, eternal life |
+| prophecies of the prophets | prophecies of Jesus |
 
 <br>
 
-| the Son of Man                   | the HS               |
-| -------------------------------- | -------------------- |
-| advocate for saints              | advocate for JX      |
+| the Law and the Prophets | Jesus Himself| the Holy Spirit|
+| --- | --- | --- |
+| the death of JX | His resurrection, the HS and His second coming | be witnesses of JX |
+
+### Testimonies
+X testified by Y
+| | |
+| --- | --- |
+| the death of JX| unbelievers (the world)|
+| the resurrection of JX | the disciples [1Co15:4-5](https://www.blueletterbible.org/niv/1co/15/4/s_1077004)|
+| the ascension of JX    | the disciples, 500 followers [1Co15:6](https://www.blueletterbible.org/niv/1co/15/6/s_1077006) |
+| Jx on the throne| the HS [Ac2:32](https://www.blueletterbible.org/niv/act/2/32/s_1020032), [5:30-31](https://www.blueletterbible.org/niv/act/5/30/s_1023030)|
+
+<br>
+
+| the Son of Man| the HS|
+| --- | --- |
+| advocate for saints| advocate for JX|
 | defends saints before the Father | defends JX in saints |
 
-- 1Jn2:1
-- Mt10:32-33
-- Rev12-11
-- Jn17:17
-- Mt10:19-20
+- [1Jn2:1](https://www.blueletterbible.org/niv/1jo/2/1/s_1161001)
+- [Mt10:32-33](https://www.blueletterbible.org/niv/mat/10/32/s_939032)
+- [Rev12:11](https://www.blueletterbible.org/niv/rev/12/11/s_1179011)
+- [Jn17:17](https://www.blueletterbible.org/niv/jhn/17/17/s_1014017)
+- [Mt10:19-20](https://www.blueletterbible.org/niv/mat/10/19/s_939019)
+- [Rev22:18-19](https://www.blueletterbible.org/niv/rev/22/18/s_1189018)
 
-## the second coming of JX and its signs (the apocalypse)
+### The second coming of JX and its signs (the apocalypse)
 
-- Mt24:33-36
+- [Mt24:33-36](https://www.blueletterbible.org/niv/mat/24/33/s_953033)
 
-  ### 1. the beginning of tribulation (wars, famines, earthquakes etc.m)
-- Mk13:10
+1. the beginning of tribulation (wars, famines, earthquakes etc.m)
+    - [Mt24:3-14](https://www.blueletterbible.org/niv/mat/24/3/s_953003)
+    - [Mk13:10](https://www.blueletterbible.org/niv/mar/13/10/s_970010)
 
-  ### 2. the Son of Man comes before we finish going through the cities of Isarael
-- Mt10:23, 26-27
+2. the Son of Man comes before we finish going through the cities of Isarael
+    - [Mt10:23](https://www.blueletterbible.org/niv/mat/10/23/s_939023), [26-27](https://www.blueletterbible.org/niv/mat/10/26/s_939026)
 
-  ### 3. when the number of those sealed among Israel reaches 144,100
-- Rev7:4-8
-- Rev14:3-5
-- Rm8:17-25
-- Rm11:25-31
+3. when the number of those sealed among Israel reaches 144,100
+    - [Rev7:4-8](https://www.blueletterbible.org/niv/rev/7/4/s_1174004)
+    - [Rev14:3-5](https://www.blueletterbible.org/niv/rev/14/3/s_1181003)
+    - [Rm8:17-25](https://www.blueletterbible.org/niv/rom/8/17/s_1054017)
+    - [Rm11:25-31](https://www.blueletterbible.org/niv/rom/11/25/s_1057025)
 
-144,000 != the total number of the sealed(Jewish)
+    144,000 != the total number of the sealed(Jewish)
 
-"the first fruit of the spirit"
- = "the redemption of our bodies"
- = first resurrection
+    "the first fruit of the spirit"
+    = "the redemption of our bodies"
+    = first resurrection
 
-### 4. the lesson from the fig tree and the second coming of the Son of man
+    - [Rev7:9-10](https://www.blueletterbible.org/niv/rev/7/9/s_1174009)
 
-- Mt24:32
+4. the lesson from the fig tree and the second coming of the Son of Man
+    - [Mt24:32](https://www.blueletterbible.org/niv/mat/24/32/s_953032)
+    - [Lk21:20-24](https://www.blueletterbible.org/niv/luk/21/20/s_994020)
 
-- Lk21:20-24
-
-  ### 5. when people are saying "peace and safety"
-
-  - 1Th5:1-3
-  - Rev13:1-4
-  - Rev17:13, 17
-  - Rev6:5-6
-  - Rev13:15-18
+5. when people are saying "peace and safety"
+    - [1Th5:1-3](https://www.blueletterbible.org/niv/1th/5/1/s_1116001)
+    - [Rev13:1-4](https://www.blueletterbible.org/niv/rev/13/1/s_1180001)
+    - [Rev17:13](https://www.blueletterbible.org/niv/rev/17/13/s_1184013), [17](https://www.blueletterbible.org/niv/rev/17/17/s_1184017)
+    - [Rev6:5-6](https://www.blueletterbible.org/niv/rev/6/5/s_1173005)
+    - [Rev13:15-18](https://www.blueletterbible.org/niv/rev/13/15/s_1180015)
 
 ---
 

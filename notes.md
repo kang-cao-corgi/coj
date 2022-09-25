@@ -2764,86 +2764,88 @@ X testified by Y
 
 ---
 
-# Lec 25
+## Lec 25
 
 ## XX. the second coming of Jesus Christ
+- [Mt24:32-51](https://www.blueletterbible.org/niv/mat/24/32/s_953032)
 
-- Mt24:30-51
+|   |   |   |
+| --- | --- | --- |
+| God's perfection | grace to all | both the good and the wicked |
+| HS | separates | works only in believers |
+| JX | the living and the dead | judges |
 
-|                  |                         |                              |
-| ---------------- | ----------------------- | ---------------------------- |
-| God's perfection | grace to all            | both the good and the wicked |
-| HS               | separates               | works only in believers      |
-| JX               | the living and the dead | judges                       |
+"Eschatology" = the study of the End
 
-The time of the second coming
+### The time of the second coming
 
-- Mt24:32-51
+- [Mt24:36](https://www.blueletterbible.org/niv/mat/24/36/s_953036)
 
-Is the Sesond Coming ***before*** the tribulation or ***after***?
+### Is the Sesond Coming ***before*** the tribulation or ***after***?
 before
 
-- Mt24:37-39
-- Ge19
+- [Mt24:37-39](https://www.blueletterbible.org/niv/mat/24/37/s_953037)
+- [Ge19:15-16](https://www.blueletterbible.org/niv/gen/19/15/s_19015)
 
-"the man of lawlessness"
+- Noah [Ge7:11](https://www.blueletterbible.org/niv/gen/7/11/s_7011) the flood
 
-- 2Th2:1-8
-- Rev3:10
+### "the Man of Lawlessness"
+the "antichrist", "rebellion", apostesy / defection
+- [2Th2:1-8](https://www.blueletterbible.org/niv/2th/2/1/s_1118001)
+- [Rev3:10](https://www.blueletterbible.org/niv/rev/3/10/s_1170010)
 
-### the order of the second coming
+### The order of the second coming
 
-1. the second coming of JX to the air (Mt24:27, 40-41)
+1. the Second Coming of JX to the air [Mt24:27](https://www.blueletterbible.org/niv/mat/24/27/s_953027), [40-41](https://www.blueletterbible.org/niv/mat/24/40/s_953040)
+2. the resurrection of ***the saints*** who had fallen asleep 
+[1Co15:51-52](https://www.blueletterbible.org/niv/1co/15/51/s_1077051), [1Th4:14-17](https://www.blueletterbible.org/niv/1th/4/14/s_1115014) (from paradise)
 
-2. the resurrection of ***the saints*** who had fallen asleep (1Co15:51-52, 1Th4:14-17)
+3. transformed into spiritual bodies [1Co15:51-54](https://www.blueletterbible.org/niv/1co/15/51/s_1077051), [1Th4:15](https://www.blueletterbible.org/niv/1th/4/15/s_1115015)
 
-3. transformed into spiritual bodies (1Co15:51-54, 1Th4:15)
+4. welcoming Jesus in the air: ***the rapture*** [2Th1:10](https://www.blueletterbible.org/niv/2th/1/10/s_1117010)
 
-4. welcoming Jesus in the air: ***the rapture*** (2Th1:10)
-
-5. after the rapture of saints, tribulation begins in the world (Tm24:21)
+5. after the rapture of saints, tribulation begins in the world [Mt24:21](https://www.blueletterbible.org/niv/mat/24/21/s_953021)
 
     the duration of ***the tribulation*** (under the working of the antichrist)
+    1. [Rev11:2](https://www.blueletterbible.org/niv/rev/11/2/s_1178002), [13:15](https://www.blueletterbible.org/niv/rev/13/15/s_1180015)
+    2. [Rev12:14](https://www.blueletterbible.org/niv/rev/12/14/s_1179014)
+    3. [Rev9:5](https://www.blueletterbible.org/niv/rev/9/5/s_1176005), [10](https://www.blueletterbible.org/niv/rev/9/10/s_1176010)
 
-   1. Rev11:2, 13:5
-   2. Rev12:14
-   3. Rev9:10
+6. the appearance of ***the antichrist***
+   - [Rev13:3-6](https://www.blueletterbible.org/niv/rev/13/3/s_1180003), [16-17](https://www.blueletterbible.org/niv/rev/13/16/s_1180016)
+   - [Rev14:9-11](https://www.blueletterbible.org/niv/rev/14/9/s_1181009)
 
-6. the appearance of t***he antichrist***
+7. the great tribulation [Rev6:12-17](https://www.blueletterbible.org/niv/rev/6/12/s_1173012), [9:5-6](https://www.blueletterbible.org/niv/rev/9/5/s_1176005)
 
-   - Rev13:3-6, 16-17
-   - Rev14:9-11
+8. God shortens suffering of ***the elect*** [Mt24:21-22](https://www.blueletterbible.org/niv/mat/24/21/s_953021), [Rm11:28](https://www.blueletterbible.org/niv/rom/11/28/s_1057028)
 
-7. the great tribulation (Rev6:12-17, 9:5-6)
+9. the Second Coming of the Son of Man to ***the earth*** [Mt24:29-31](https://www.blueletterbible.org/niv/mat/24/29/s_953029)
 
-8. he shortens suffering for ***the elect*** (Mt24:21-22, Rm11:28)
+10. the beast and the false prophet thrown into hell first [Rev19:11-14](https://www.blueletterbible.org/niv/rev/19/11/s_1186011), [20](https://www.blueletterbible.org/niv/rev/19/20/s_1186020)
 
-9. the second coming of the son of man to the earth (Mt24:29-31)
+11. simultaneously the devil is thrown into the Abyss [Rev20:1-3](https://www.blueletterbible.org/niv/rev/20/1/s_1187001)
 
-10. the beast and the false prophet thrown into hell first (Rev19:11-14, 20)
+12. the Millennium [Is65:17-25](https://www.blueletterbible.org/niv/isa/65/17/s_744017), [Rev14:1-3](https://www.blueletterbible.org/niv/rev/14/1/s_1181001) two types of people
+    1. Israel in flesh
+    1. "royal priests" the people participated in the 1st resurrection
 
-11. simultaneously the devil is thrown into the abyss (Rev20:1-3)
+13. the ***last*** temptation of the devil [Rev20:7-8](https://www.blueletterbible.org/niv/rev/20/7/s_1187007), [1Co15:24-28](https://www.blueletterbible.org/niv/1co/15/24/s_1077024)
 
-12. the millennium (Is65:17-25, Rev14:1-3)
+## XXI. The Great Judgement
 
-13. the ***last*** temptation of the devil (Rev20:7-8, 1Co15:24-28)
+- [Rev20:11-15](https://www.blueletterbible.org/niv/rev/20/11/s_1187011)
 
-## XXI. the great judgement
-
-- Rev20:11-15
-
-|                                     |                                            |
-| ----------------------------------- | ------------------------------------------ |
-| "the books"                         | "another book"                             |
-| the dead                            | the living                                 |
-| their names, deeds                  | rewarded according to their works          |
+| "the books"   |"another book"   |
+| --- | --- |
+| the dead | the living |
+| their names, deeds | rewarded according to their works |
 | the lake of fire (the second death) | outside the city (the second resurrection) |
 
-- 2Co5:10
-- Rev21:9-11. 22-27
-- Rev22:1-5
-- Rev20:4-6
-- Rev21:8
+- [2Co5:10](https://www.blueletterbible.org/niv/2co/5/10/s_1083010)
+- [Rev21:9-11](https://www.blueletterbible.org/niv/rev/21/9/s_1188009), [22-27](https://www.blueletterbible.org/niv/rev/21/22/s_1188022)
+- [Rev22:1-5](https://www.blueletterbible.org/niv/rev/22/1/s_1189001)
+- [Rev20:4-6](https://www.blueletterbible.org/niv/rev/20/4/s_1187004)
+- [Rev21:8](https://www.blueletterbible.org/niv/rev/21/8/s_1188008)
 
 ---
 

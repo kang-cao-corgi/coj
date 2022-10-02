@@ -2849,90 +2849,87 @@ the "antichrist", "rebellion", apostesy / defection
 
 ---
 
-# Chapter 3: spiritual beings / towards the end
+# Chapter 3: Spiritual beings
 
-# Lec 26
+## Lec 26
 
-## I. the theory of angels
+## I. The theory of angels
 
-- Co4:19-20
-- Ac1:8
+- [1Co4:19-20](https://www.blueletterbible.org/niv/1co/4/19/s_1066019)
+- [Ac1:8](https://www.blueletterbible.org/niv/act/1/8/s_1019008)
 
 rev HS -> power
 "power" = angels
 
-## 1. the beginning of angels
+### 1. The beginning of angels
 
-- Eze28:15,
-  angels ("stars") = living spirits, angels live by life giving spirit
+- [Eze28:15](https://www.blueletterbible.org/niv/eze/28/15/s_830015) <br>
+  "you" = angels ("stars") = "living spirits", live by the life-giving spirit
 
-how do they live?
+#### How do they live?
 
-|                    |                                                                             |
-| ------------------ | --------------------------------------------------------------------------- |
-| for angels to live | keep their proper positions and duties, their position = life-giving spirit |
-| the angel's sin    | leaving his proper domain: "I will ascend my throne"                        |
-| to live again      | absolutely none                                                             |
+|   |   |
+| --- | --- |
+| for angels to live | - keep their proper positions and duties <br> - ***their position = life-giving spirit*** |
+| the angel's sin | left his proper domain: "I will ascend my throne" |
+| to live again | absolutely none |
 
-|                  |                                                             |
-| ---------------- | ----------------------------------------------------------- |
-| for adam to live | eat thte Word = obey, the Word = life, light                |
-| adam's sin       | disobeyed the Word                                          |
-| to live again    | eat the Word again, eat the flesh and drink the blood of JX |
+|   |   |
+| --- | --- |
+| for Adam to live | - ***eat thte Word = obey*** <br> - the Word = life, light |
+| Adam's sin | disobeyed the Word |
+| to live again | - eat the Word again <br> - eat the flesh and drink the blood of JX |
 
-life = light = the word (Jn1:4)
-|   | cut off from LIFE  |the DEVIL|MAN|
+life = light = the Word [Jn1:4](https://www.blueletterbible.org/niv/jhn/1/4/s_998004)
+
+|   | cut off from life  |the devil| man |
 |---|---|---|---|
-| no light  | none to glorify  |the ruler of adrkness| fear darkness (Mt14:25-27)|
-|no word| none to be governed by| the ruler of death| fear death (He2:15)|
-|no truth| none to be sanctified by| the father of lies| doubt true words(Mt14:31)|
+| no light  | ... to glorify  |the ruler of darkness| fear darkness [Mt14:25-27](https://www.blueletterbible.org/niv/mat/14/25/s_943025)|
+|no word| ... to be governed by| the ruler of death| fear death [He2:15](https://www.blueletterbible.org/niv/heb/2/15/s_1135015)|
+|no truth| ... to be sanctified by| the father of lies| doubt true words [Mt14:31](https://www.blueletterbible.org/niv/mat/14/31/s_943031)|
 
 <br>
 
-|           |                                                                 |
-| --------- | --------------------------------------------------------------- |
-| the devil | left his proper position -> to Hades -> cannot return to heaven |
-| JX        | sent (the Father's command) -> to Hades -> lifted up to heaven  |
+|   |   |
+| --- | --- |
+| the devil | left his proper position &rarr; to Hades &rarr; cannot return to heaven |
+| JX | sent (the Father's command) &rarr; to Hades &rarr; lifted up to heaven |
 
-angels to live = humility (service)
-man to live = faith (obedience)
+angels to live = humility (service) <br>
+man to live = ***faith*** (obedience)
 
-"know your position and stay there"?
+"know your position and stay there"? <br>
 "God hates the proud"
 
-- Col2:18-19
+- [Col2:18-19](https://www.blueletterbible.org/niv/col/2/18/s_1109018)
 
-| at creation        | Genesis 3          | Jesus                              |
-| ------------------ | ------------------ | ---------------------------------- |
+| at creation | Genesis 3 | Jesus |
+| --- | --- | --- |
 | God - Man - Angels | God - Angels - Man | God - JX - Man(Christian) - Angels |
 
-- He1:7
+- [He1:7](https://www.blueletterbible.org/niv/heb/1/7/s_1134007)
 
-## 2. the characteristics of angels
+### 2. The characteristics of angels
 
-### 2.1 spiritual beings (He1:14)
+1. spiritual beings [He1:14](https://www.blueletterbible.org/niv/heb/1/14/s_1134014)
+1. no gender [Mt22:30](https://www.blueletterbible.org/niv/mat/22/30/s_951030), [Ge19:5](https://www.blueletterbible.org/niv/gen/19/5/s_19005), [7-8](https://www.blueletterbible.org/niv/gen/19/7/s_19007), [Jos5:13-14](https://www.blueletterbible.org/niv/jos/5/13/s_192013)
 
-### 2.2 no gender (Mt22:30, Ge19:5, 7-8, Jos5:13-14)
+1. the ***person*** is retained in the spirit
 
-### 2.3 the ***person*** is retain in the spirit
+1. superior to men (in conditions)
+    - surpass time and space to some extent [He2:6-7](https://www.blueletterbible.org/niv/heb/2/6/s_1135006)
+    - no curse from the flesh
+    - knowledge [2Sa14:20](https://www.blueletterbible.org/niv/2sa/14/20/s_281020)
+    - power [Ps103:20](https://www.blueletterbible.org/niv/psa/103/20/s_581020)
 
-### 2.4 superior to men in condition
+1. inferior to men (in status)
+    - no salvation [He2:16](https://www.blueletterbible.org/niv/heb/2/16/s_1135016)
+    - cannot be born again [He1:4-5](https://www.blueletterbible.org/niv/heb/1/4/s_1134004)
+    - no reward [Lk17:7-9](https://www.blueletterbible.org/niv/luk/17/7/s_990007), [He2:5](https://www.blueletterbible.org/niv/heb/2/5/s_1135005)
 
-- surpass time and space to seome extent (He2:6-7)
-- no curse from the flesh
-- knowledge (2Sa14:20)
-- power (Ps103:20)
-
-### 2.5 inferior to men in status
-
-- no salvation (He2:16)
-- cannot be born again (He1:4-5)
-- no reward (Lk17:7-9, He2:5)
-
-### 2.6 praise the glory of God
-
-- Eph1:3-14
-- Rev5:11-12
+1. praise the glory of God
+    - [Eph1:3-14](https://www.blueletterbible.org/niv/eph/1/3/s_1098003)
+    - [Rev5:11-12](https://www.blueletterbible.org/niv/rev/5/11/s_1172011)
 
 ---
 

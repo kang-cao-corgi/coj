@@ -24,7 +24,7 @@ Sheol (Hebrew)
 | living being (All mankind in Adam, one spirit, flesh + spirit)  | life-giving spirit  |
 |disobeyed the word of God|obeyed the commandment to die|
 |the original sin in spirit, the tendency to sin in flesh|no original sin, no tendency to sin|
-|prepared flesh (function) and sin (condition) to die|paied for the price of sin by dying in flesh, His flesh is spirit, in incarnate Word|
+|prepared flesh (function) and sin (condition) to die|paid for the price of sin by dying in flesh, His flesh is spirit, in incarnate Word|
 |When first Adam receive the blood of last Adam(spirit), sin of first Adam is forgiven|Shed blood for first Adam to live|
 
 [about life] [given/giving life?, obey?, sin?, died? blood?]
@@ -113,7 +113,7 @@ God is one being in 3 persons. The 3 persons have the same will and work in one 
 | He established the will | He fulfilled the will | He is still fulfilling the will |
 | the Father that made me | the Father that gave birth to my soul | the Father that nurtures me |
 
-[role, where spawn, when spawn, what did(accomplishment), what it means to me]
+[role, where spawn, when spawn, what did(accomplishment) (according to will), what it means to me]
 
 ## 10. was buddha saved?
 He is not saved. Buddha was born inthe era of the Law. He needs to obey the Law and keep the covenant of blood (animal blood) to be saved.<br>

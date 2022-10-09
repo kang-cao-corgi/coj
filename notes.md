@@ -2933,126 +2933,118 @@ man to live = ***faith*** (obedience)
 
 ---
 
-# Lec 27
+## Lec 27
 
-## 3. different types of angels and their roles
+## 3. Different types of angels and their roles
 
 ### 3.1 One's own angels
 
-- Mt18:10
-
-- Rev8:3-4
-
-    the Holy spirit I must obey
-    -> relieve the life of Christ
-
-    angels I must use to help me to relieve that life
-
-- 1Co12:4-7
-
+- [Mt18:10](https://www.blueletterbible.org/niv/mat/18/10/s_947010)
+- [Rev8:3-4](https://www.blueletterbible.org/niv/rev/8/3/s_1175003)
+    - the Holy Spirit &rarr; I must obey &rarr; re-live the public life of Christ
+    - angels &rarr; I must use them &rarr; to help me to re-live that life
+- [1Co12:4-7](https://www.blueletterbible.org/niv/1co/12/4/s_1074004)
     the person of God -> Holy Spirit
 
-the number of angels varies by the size of one's ***spiritual*** activity (Ac1:11)
+#### The number of angels varies by the size of one's ***spiritual*** activity 
+- [Ac1:11](https://www.blueletterbible.org/niv/act/1/11/s_1019011)
 
-angels help saints
+#### Angels help saints
+- [Da9:23](https://www.blueletterbible.org/niv/dan/9/23/s_859023), [10:12-14](https://www.blueletterbible.org/niv/dan/10/12/s_860012)
+- [Nu20:16](https://www.blueletterbible.org/niv/num/20/16/s_137016)
+- [Ex3:7-8](https://www.blueletterbible.org/niv/exo/3/7/s_53007)
 
-- Da9:23, 10:12-14
-- Nu20:16
-- Ex3:7-8
+#### Praise
+- [Ps22:3](https://www.blueletterbible.org/niv/psa/22/3/s_500003)
+- [Ps34:7](https://www.blueletterbible.org/niv/psa/34/7/s_512007)
+- [1Co4:9](https://www.blueletterbible.org/niv/1co/4/9/s_1066009)
+- [Ps35:5-6](https://www.blueletterbible.org/niv/psa/35/5/s_513005)
 
-### praise
-
-- Ps22:3
-- Ps34:7
-- 1Co4:9
-- Ps35:5-6
-
-the life of saints = angels ministering them
+#### The life of saints = angels ministering(侍候) them
 
 ### 3.2 Jesus and angels
-
-His birth
-
-- Mt1:20-23
-- Lk1:26-38, 2:8-15
-
-the devil's temptation
-
-- Mt4:1-11
-- 1Co10:13
-- Lk22:41-44
-
-His power
-
-- Lk5:17
-- Ac10:38
-
-His resurrection
-
-- Mt28:2-5
-- Ac1:10
-
-His return
-
-- 1Th4:16-17
-- Mt16:47
-- Rev19:14
+- His birth
+    - [Mt1:20-23](https://www.blueletterbible.org/niv/mat/1/20/s_930020)
+    - [Lk1:26-38](https://www.blueletterbible.org/niv/luk/1/26/s_974026), [2:8-15](https://www.blueletterbible.org/niv/luk/2/8/s_975008)
+- the devil's temptation
+    - [Mt4:1-11](https://www.blueletterbible.org/niv/mat/4/1/s_933001)
+    - [1Co10:13](https://www.blueletterbible.org/niv/1co/10/13/s_1072013)
+    - [Lk22:41-44](https://www.blueletterbible.org/niv/luk/22/41/s_995041)
+- His power
+    - [Lk5:17](https://www.blueletterbible.org/niv/luk/5/17/s_978017)
+    - [Ac10:38](https://www.blueletterbible.org/niv/act/10/38/s_1028038)
+- His resurrection
+    - [Mt28:2-5](https://www.blueletterbible.org/niv/mat/28/2/s_957002)
+    - [Ac1:10](https://www.blueletterbible.org/niv/act/1/10/s_1019010)
+- His return
+    - [1Th4:16-17](https://www.blueletterbible.org/niv/1th/4/16/s_1115016)
+    - [Mt16:27](https://www.blueletterbible.org/niv/mat/16/27/s_945027)
+    - [Rev19:14](https://www.blueletterbible.org/niv/rev/19/14/s_1186014)
 
 ### 3.3 Man's death and angel
 
-- Lk16:22
+- [Lk16:22](https://www.blueletterbible.org/niv/luk/16/22/s_989022)
 
-## 4. different titles of evil spirits
+### 4. Different titles of evil spirits
 
-|                                          | times |
-| ---------------------------------------- | ----- |
-| "Satan"                                  | 55    |
-| "the devil"                              | 17    |
+|   | times |
+| --- | --- |
+|"Satan" | 55 |
+| "the devil" | 17 |
 | "Demons", "unclean spirits"              | 90    |
-| pronouns for "demons", "unclean spirits" | 484   |
+| pronouns for "demons", "unclean spirits" | 484 |
 
-### 4.1 symbolic titles
+#### 4.1 Symbolic titles
 
-|               |                                 |
-| ------------- | ------------------------------- |
-| "The dragon"  | The rebel of the air            |
-| "The serpent" | The divider who leads the world |
-| "frogs"       | Demon, unclean spirits          |
+- [Rev12:7-9](https://www.blueletterbible.org/niv/rev/12/7/s_1179007)
+- [Rev16:13](https://www.blueletterbible.org/niv/rev/16/13/s_1183013)
 
-- Rev
+|   |   |   |
+| --- | --- | --- |
+| "The dragon" | The rebel of the air | heaven|
+| "The serpent" | The divider who leads the world astray | earth|
+| "frogs" | Demons, unclean spirits | men|
 
-### 4.2 titles by work
+#### 4.2 Titles by work
 
-| satan                       | the devil                                                                                | demons, unclean spirits  |
-| --------------------------- | ---------------------------------------------------------------------------------------- | ------------------------ |
-| denied authority            | the ruler                                                                                | cursed spirits (Mt25:41) |
-| the rebel, the enemy of God | the ruler of darkness, the ruler of the air, the ruler of death, the prince of the world | bring on curse           |
+| satan | the devil | demons, unclean spirits  |
+| --- | --- | --- |
+| denied authority | the ruler | cursed spirits [Mt25:41](https://www.blueletterbible.org/niv/mat/25/41/s_954041) |
+| the rebel, the enemy of God | the ruler of darkness, the ruler of the air, the ruler of death, the prince of the world | bring on curse |
 
-## 5. the work of satan
+### 5. the work of satan
 
-| satan                   | his angels                              |
-| ----------------------- | --------------------------------------- |
-| singular                | plural                                  |
-| the archangel           | 1/3 of the angels                       |
+- [Rev12:4](https://www.blueletterbible.org/niv/rev/12/4/s_1179004)
+
+| satan | his angels |
+| --- | --- |
+| singular | plural |
+| the archangel | 1/3 of the angels |
 | the prince of the world | the spirits of the world - satanic work |
 
-### Cult vs. Christianity
+#### Cults vs. Christianity
 
-- 2Co11:4
-- Gal1:8-9
+- [2Co11:4](https://www.blueletterbible.org/niv/2co/11/4/s_1089004) Paul worried about church changing
+- [Gal1:8-9](https://www.blueletterbible.org/niv/gal/1/8/s_1092008)
 
-|             | Cults | Christianity                    |
-| ----------- | ----- | ------------------------------- |
-| salvation   | other | be believing the works of Jesus |
-| mdediator   | other | Jesus is the only innocent one  |
-| trinity     | deny  | acknowledge                     |
-| incarnation | deny  | acknowledge                     |
+|   | Cults | Christianity |
+| --- | --- | --- |
+| salvation | other | by believing the works of Jesus |
+| mdediator | other | Jesus is the only innocent one [1Ti2:5](https://www.blueletterbible.org/niv/1ti/2/5/s_1121005)  |
+| trinity | deny | acknowledge |
+| incarnation | deny  | acknowledge |
 
-### well-known cults/heretics
+- [Gal2:14](https://www.blueletterbible.org/niv/gal/2/14/s_1093014)
+- [1Ti4:3-5](https://www.blueletterbible.org/niv/1ti/4/3/s_1123003)
+- [Ac15:20](https://www.blueletterbible.org/niv/act/15/20/s_1033020)
+- [1Co10:23-33](https://www.blueletterbible.org/niv/1co/10/23/s_1072023)
+- [Col2:18](https://www.blueletterbible.org/niv/col/2/18/s_1109018)
+
+#### Well-known cults/heretics
 
 - the Unification Church
 - the Church of Jesus Christ of Latter Day Saints (LDS) or the Mormon Church
-- the Christian Science Church
+- the Christian Science Church (Tom Cruise)
 - Jehovah's Witnesses
 - the Seventh-Day Adventist (SDA) Church
 

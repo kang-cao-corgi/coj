@@ -3131,97 +3131,104 @@ How to deceiving spirits develop
 1. Obey
 ---
 
-# Lec 29
+## Lec 29
 
-## II. demonology
+## II. Demonology
 
-## 1. the identity of demons (Mt25:41)
+### 1. The identity of demons 
+- [Mt25:41](https://www.blueletterbible.org/niv/mat/25/41/s_954041)
 
-the life after death
-
+#### The life after death
 |   |   |
 | --- | --- |
 | "on the left", "who are cursed" (unbelievers) | to eternal fire |
-| "on the right" (believers) | to eternal life |
+| "on the right" (believers) | to eternal life, to the Father's house |
 
-### believers' life-after-death
+#### Believers' life-after-death
+- Old Testment: to Ab's side (bosm)
+- New Testment: to paradise
 
 | the flesh | the soul | after resurrection  |
 | --- | --- | --- |
-| church         | paradise        | the Father's house  |
-| the front yard | the living room | the master bedroom  |
-| the courtyard  | the Holy Place  | the Most Holy Place |
+| church         | paradise        | **the Father's house**  |
+| front yard | living room | master bedroom  |
+| Temple's courtyard  | Holy Place  | Most Holy Place |
 
-- Jn3:13
-- Jn20:17
+- [Jn3:13](https://www.blueletterbible.org/niv/jhn/3/13/s_1000013)
+- [Jn20:17](https://www.blueletterbible.org/niv/jhn/20/17/s_1017017)
 
-### unbelievers' life-after-death
+#### Unbelievers' life-after-death
 
-- Lk6
+- [Lk16](https://www.blueletterbible.org/niv/luk/16/1/s_989001)
 
-  ### 1.1 Sheol
-1. Cast down from heaven
-   (Is14:12-15, Eze28:17, Rev12:8-9)
-2. where the devil exists (2Pe2:4)
-   "hell" = darkness / depts of the pit, (Mt5:22) "hell" the pit
-3. where the power of the devil is (Mt16:18, Hos13:14)
+#### 1.1. Sheol
+1. cast down from heaven
+[Is14:12-15](https://www.blueletterbible.org/niv/isa/14/12/s_693012), [Eze28:17](https://www.blueletterbible.org/niv/eze/12/8/s_814008), [Rev12:8-9](https://www.blueletterbible.org/niv/rev/12/8/s_1179008) sheol/hades != hell
+1. where the devil exists 
+    - [2Pe2:4](https://www.blueletterbible.org/niv/2pe/2/4/s_1158004)
+    "hell" = darkness / depts of the pit, 
+    - [Mt5:22](https://www.blueletterbible.org/niv/mat/5/22/s_934022) "hell" the pit = lake of fire
+1. where the power of the devil is [Mt16:18](https://www.blueletterbible.org/niv/mat/16/18/s_945018), [Hos13:14](https://www.blueletterbible.org/niv/hos/13/14/s_875014)
 
-Hades
-
+1. Hades
 - the universe
-- the world
+- the world that we live in now
 - "the first heacen and the first earth"
-- the Abyss
-- the lake of fire
+- the world &rarr; the Abyss &rarr; the lake of fire
 
-1.3 the order of entering HELL
+#### The order of entering *HELL*
+1. the beast and the false prophet [Rev19:20](https://www.blueletterbible.org/niv/rev/19/20/s_1186020)
+1. the devil [Rev20:10](https://www.blueletterbible.org/niv/rev/20/10/s_1187010)
+1. the dead [Rev20:13-15](https://www.blueletterbible.org/niv/rev/20/13/s_1187013)
+1. Death and Hades [Rev20:14](https://www.blueletterbible.org/niv/rev/20/14/s_1187014)
 
-1. the beast and the false prophet (Rev19:20)
-2. the devil (Rev20:10)
-3. the dead (Rev20:13-15)
-4. Death and Hades (Rev20:14)
+#### 1.2. the dead
 
-### 1.2 the dead
+- [Is8:19](https://www.blueletterbible.org/niv/isa/8/19/s_687019) mediums + spiritists &rarr; living people speak on be half of the dead (be possessed by the spirits of the dead)
+- [Ac16:16](https://www.blueletterbible.org/niv/act/16/16/s_1034016)
 
-- Is8:19
-- Ac16:16
+meadiums = the spirit of the dead = the spirit of the medium(spiritist) = demons
 
-the spirit of the dead = the spirit of the medium(spiritist) = demons
+- [1Sa28:5-7](https://www.blueletterbible.org/niv/1sa/28/5/s_264005), [13-14](https://www.blueletterbible.org/niv/1sa/28/13/s_264013), [19](https://www.blueletterbible.org/niv/1sa/28/19/s_264019)
+- [1Sa31:4](https://www.blueletterbible.org/niv/1sa/31/4/s_267004)
+- [Ps106:28-29](https://www.blueletterbible.org/niv/psa/106/28/s_584028)
+- [1Co10:20](https://www.blueletterbible.org/niv/1co/10/20/s_1072020)
 
-- 1Sa28:5-7, 13-14, 19
-- 1Sa31:4
-- Ps106:28-29
-- 1Co10:20
+sacrifices to lifeless gods = sacrifices to pagans/demons = all to the dead
 
-"the dead" = the demons = the spirit of dead people
+"the dead" = the demons = the spirit of dead unbelievers
 
-- Mk1:23-24
-- Jn13:8
+- [Mk1:23-24](https://www.blueletterbible.org/niv/mar/1/23/s_958023)
+- [Jn13:8](https://www.blueletterbible.org/niv/jhn/13/8/s_1010008)
 
 demons = no part with Jesus = not washed by Jesus
 
-demons = unclean spirit = have no part with Jesus = the dead = their names are not found in the book of life = the sprits of dead unbelievers
+Demons <br>
+= unclean spirit <br> 
+= have no part with Jesus <br>
+= the dead <br>
+= their names are not found in the book of life <br>
+= the sprits of dead unbelievers
 
-### 1.3 the natural lifespan
+#### 1.3. the natural lifespan
+- [Ge6:3](https://www.blueletterbible.org/niv/gen/6/3/s_6003) 120 years
 
-where is the devil now?
+#### Where is the devil now?
+- [Rev12:7-9](https://www.blueletterbible.org/niv/rev/12/7/s_1179007) the earth
+- [Lk16:19-31](https://www.blueletterbible.org/niv/luk/16/19/s_989019)
+- [Jn5:28-29](https://www.blueletterbible.org/niv/jhn/5/28/s_1002028)
+- [Mt8:28-32](https://www.blueletterbible.org/niv/mat/8/28/s_937028)
+- [Lk8:30-31](https://www.blueletterbible.org/niv/luk/8/30/s_981030) materialized to be seen
+- [Mt12:43-44](https://www.blueletterbible.org/niv/mat/12/43/s_941043)
 
-- Lk16:19-31
-- Jn5:28-29
-- Mt8:28-32
-- Lk8:30-31
-- Mt12:43-44
-
-## 2. the activity of demons
-
-- Mt8:16
-
-- Lk4:38-39
-
-- Mk9:25-27
-
-  the spirit = where God dwells
-  the flesh = where I the spirit dwells
+### 2. The activities of demons
+Angels - the person is retained in the spirit <br>
+Men - the person is developed from the flesh
+- [Mt8:16](https://www.blueletterbible.org/niv/mat/8/16/s_937016)
+- [Lk4:38-39](https://www.blueletterbible.org/niv/luk/4/38/s_977038) rebuke the spirit that brings the fever
+- [Mk9:25-27](https://www.blueletterbible.org/niv/mar/9/25/s_966025)
+<br>the spirit = where God dwells 
+<br>the flesh = where I the spirit dwell
 
 ---
 

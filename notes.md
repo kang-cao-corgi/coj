@@ -3012,7 +3012,7 @@ man to live = ***faith*** (obedience)
 | denied authority | the ruler | cursed spirits [Mt25:41](https://www.blueletterbible.org/niv/mat/25/41/s_954041) |
 | the rebel, the enemy of God | the ruler of darkness, the ruler of the air, the ruler of death, the prince of the world | bring on curse |
 
-### 5. the work of satan
+### 5. The work of satan
 
 - [Rev12:4](https://www.blueletterbible.org/niv/rev/12/4/s_1179004)
 
@@ -3050,8 +3050,85 @@ man to live = ***faith*** (obedience)
 
 ---
 
-# Lec 28
+## Lec 28
 
+### 6. the organization of Satan
+- [Eph6:10-12](https://www.blueletterbible.org/niv/eph/6/10/s_1103010) organized world under the rule of Satan
+
+***Luciel*** &rarr; Lucifer, the prince of evil &rarr; ruling ***1/3 of angels*** &rarr; ruling men &rarr; ruling kingdom &rarr; ruling societies &rarr; ruling families
+
+|   |   |
+|---|---|
+| Principalities  |  ideologies, arguments |
+| powers| political, religious powers|
+| rulers of darkness| idolatry, sorcery, psychic, pagan religions|
+|evil spirits in the heavenly places| cults, deceiving spirits|
+
+1. principalities ("-isms"): 
+    - evolutionism
+    - communism
+    - socialism
+    - democracy
+    - materialism(唯物主义)
+1.  powers: 
+    - political power
+    - religious power (ecclesiastical authority) (the chuch of the state/nation)
+1. rulers of darkness
+    - Jim Jones and the Proples Temple (1955 - 1978)
+    - Heaven's Gate (1974 - 1997) "UFO cult"
+1. Evil spirits in heavenly places
+
+- [Job1:6](https://www.blueletterbible.org/niv/job/1/6/s_437006)
+- [Eph6:13-18](https://www.blueletterbible.org/niv/eph/6/13/s_1103013)
+- [Rev12:9-17](https://www.blueletterbible.org/niv/rev/12/9/s_1179009), [13:1](https://www.blueletterbible.org/niv/rev/13/1/s_1180001)
+
+### 7. Deceiving spirits
+- [1Ti4:1](https://www.blueletterbible.org/niv/1ti/4/1/s_1123001)
+
+deceiving spirit = one's own-angels-changed = "seducing spirits", "lying spirits"
+
+#### Angels
+|The unchnageables   |  The chaneables | The corruptibles|
+|---|---|---|
+| archangels  | angels, hosts, spirits, gods, deceiving spirits  | Satan and his angels, the antichrist, the false prophet (1/3 of heaven) |
+
+How to deceiving spirits develop
+
+#### King Saul
+- [1Sa15:24](https://www.blueletterbible.org/niv/1sa/15/24/s_251024)
+- [1Sa16:14](https://www.blueletterbible.org/niv/1sa/16/14/s_252014)
+- [1Sa18:7-11](https://www.blueletterbible.org/niv/1sa/18/7-11/s_254007)
+- [1Sa19:22-24](https://www.blueletterbible.org/niv/1sa/19/22/s_255022)
+- [1Sa28:6-7](https://www.blueletterbible.org/niv/1sa/28/6/s_264006)
+
+#### King Ahab
+- [1Ki16:31-33](https://www.blueletterbible.org/niv/1ki/16/31-33/s_307031)
+- [1Ki22:19-23](https://www.blueletterbible.org/niv/1ki/22/19-23/s_313019)
+
+#### Balaam
+- [Num22:8-13](https://www.blueletterbible.org/niv/num/22/8/s_139008)
+- [Num22:15-18](https://www.blueletterbible.org/niv/num/22/15/s_139015)
+- [Num22:19-20](https://www.blueletterbible.org/niv/num/22/19/s_139019)
+- [Num22:21](https://www.blueletterbible.org/niv/num/22/21/s_139021), [25-33](https://www.blueletterbible.org/niv/num/22/25/s_139025), [35](https://www.blueletterbible.org/niv/num/22/35/s_139035)
+- [Num23:11](https://www.blueletterbible.org/niv/num/23/11/s_140011)
+
+<br>
+
+- [2Pe2:15-16](https://www.blueletterbible.org/niv/2pe/2/15/s_1158015)
+- [Eze14:9-10](https://www.blueletterbible.org/niv/eze/14/9/s_816009)
+- [Is66:3-4](https://www.blueletterbible.org/niv/isa/66/3/s_745003)
+
+#### Works of deceiving spirits
+- [Rm1:28-31](https://www.blueletterbible.org/niv/rom/1/28/s_1047028)
+- [2Th2:9-12](https://www.blueletterbible.org/niv/2th/2/9/s_1118009)
+- [Rev22:11](https://www.blueletterbible.org/niv/rev/22/11/s_1189011)
+- [1Ti5:12](https://www.blueletterbible.org/niv/1ti/5/12/s_1124012)
+- [Dt30:19](https://www.blueletterbible.org/niv/deu/30/19/s_183019)
+
+#### How can we resist deceiving spirits
+1. cut off all wicked habits [Mk9:43](https://www.blueletterbible.org/niv/mar/9/43/s_966043)
+1. Pray
+1. Obey
 ---
 
 # Lec 29
@@ -3062,15 +3139,15 @@ man to live = ***faith*** (obedience)
 
 the life after death
 
-|                                               |                 |
-| --------------------------------------------- | --------------- |
+|   |   |
+| --- | --- |
 | "on the left", "who are cursed" (unbelievers) | to eternal fire |
-| "on the right" (believers)                    | to eternal life |
+| "on the right" (believers) | to eternal life |
 
 ### believers' life-after-death
 
-| the flesh      | the soul        | after resurrection  |
-| -------------- | --------------- | ------------------- |
+| the flesh | the soul | after resurrection  |
+| --- | --- | --- |
 | church         | paradise        | the Father's house  |
 | the front yard | the living room | the master bedroom  |
 | the courtyard  | the Holy Place  | the Most Holy Place |

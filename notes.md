@@ -3232,85 +3232,87 @@ Men - the person is developed from the flesh
 
 ---
 
-# Lec 30
+## Lec 30
 
-## 3. the characteristics of demons
+### 3. The characteristics of demons
 
-### 3.1 they display the character and the knowledge they had in life
+#### 3.1. They display the character and the knowledge they had in life
+- [Nu14:18](https://www.blueletterbible.org/niv/num/14/18/s_131018)
 
 they are not transcendent
 
 they ***repeat*** the process of their death
 
-### 3.2 they want to be ***consoled***
+#### 3.2. They want to be ***consoled***
+- [Mt12:43](https://www.blueletterbible.org/niv/mat/12/43/s_941043)
+- [Lk16:24](https://www.blueletterbible.org/niv/luk/16/24/s_989024)
 
-- Mt12:43
-- Lk16:24
+#### 3.3. Their characteristics are the same as those of the devil
+- [Jn10:10](https://www.blueletterbible.org/niv/jhn/10/10/s_1007010)
 
-### 3.3 their characteristics are the same as those of the devil
+#### 3.4. They enter by ***my*** free will
+- [1Co7:14](https://www.blueletterbible.org/niv/1co/7/14/s_1069014)
+- [Mt8:6](https://www.blueletterbible.org/niv/mat/8/6/s_937006) "servant" = child
 
-- Jn10:10
-
-### 3.4 they enter by ***my*** free will
-
-- 1Co7:14
-- Mt8:6
-
-"Baal-Zebub" - "lord of the flies" or "the lord of the dung" (2Ki1:2)
+"Baal-Zebub" - "lord of the flies" or "the lord of the dung" [2Ki1:2](https://www.blueletterbible.org/niv/2ki/1/2/s_314002)
 
 "Beelzebul" - "lord of the house" or "lord of the dung house"
-(Mt12:24)
+[Mt12:24](https://www.blueletterbible.org/niv/mat/12/24/s_941024)
 
-### 3.5 their weapon is the denial of their existence
+#### 3.5. their weapon is the denial of their existence
 
-## 4. the method of demon's invasion
+### 4. The method of demon's invasion
 
-### 4.1 follows man's ***free will***
+#### 4.1 Follows man's ***free will***
+- [Is66:3-4](https://www.blueletterbible.org/niv/isa/66/3/s_745003)
 
-- Is66:3-4
-
-Judas Iscariot
-
-- the thought of betraying Jesus (Jn13:2)
-- "What you are about to do, do quickly" (Jn13:27)
+Judas Iscariot <br>
+- the thought of betraying Jesus [Jn13:2](https://www.blueletterbible.org/niv/jhn/13/2/s_1010002)
+- "What you are about to do, do quickly" [Jn13:27](https://www.blueletterbible.org/niv/jhn/13/27/s_1010027)
 - took his own life
 
-### 4.2 puts ***deceiving spirits*** into motion
+#### 4.2 Puts ***deceiving spirits*** into motion
+- [Jn3:13](https://www.blueletterbible.org/niv/jhn/3/13/s_1000013)
+- [Jn20:17](https://www.blueletterbible.org/niv/jhn/20/17/s_1017017)
 
-- Jn3:13
-- Jn20:17
+#### The process of demon's invasion
+1. ***evil thoughts*** &rarr;
+2. attached &rarr;
+3. depression &rarr;
+4. self-negligence, despair, helplessness &rarr;
+5. ***total oppression*** 
 
-the process of demon's invasion
+- [Ge6:5](https://www.blueletterbible.org/niv/gen/6/5/s_6005)
+- [Ac5:3](https://www.blueletterbible.org/niv/act/5/3/s_1023003)
 
-1. evil thoughts -> 2. attached -> 3. depression -> 4. self-negligence, despair -> 5. total oppression
+### the remedy for healing is ***repentance***
+[Lev16:20-22](https://www.blueletterbible.org/niv/lev/16/20/s_106020)
 
-the remedy for healing is ***repentance***
-Lev16:20-22
+#### Destroy fixed ideas
 
-destroy fixed ideas
+### 5. Demons cause sickness
+- [Jn11:4](https://www.blueletterbible.org/niv/jhn/11/4/s_1008004)
+- [Jn9:1-3](https://www.blueletterbible.org/niv/jhn/9/1/s_1006001)
 
-## 5. demons cause sickness
+#### The devil causes sickness
 
-- Jn11:4
-- Jn9:1-3
+- [Ge3:14](https://www.blueletterbible.org/niv/gen/3/14/s_3014)
+- [Job2:7](https://www.blueletterbible.org/niv/job/2/7/s_438007)
+- [Ac10:38](https://www.blueletterbible.org/niv/act/10/38/s_1028038)
+- [Lk4:33-35](https://www.blueletterbible.org/niv/luk/4/33/s_977033)
+- [Mk9:20](https://www.blueletterbible.org/niv/mar/9/20/s_966020)
+- [Lk13:11](https://www.blueletterbible.org/niv/luk/13/11/s_986011)
+- [Mt8:16](https://www.blueletterbible.org/niv/mat/8/16/s_937016)
+- [Lk4:40-41](https://www.blueletterbible.org/niv/luk/4/40/s_977040)
+- [Is53:5](https://www.blueletterbible.org/niv/isa/53/5/s_732005)
+- [1Pe2:24](https://www.blueletterbible.org/niv/1pe/2/24/s_1153024)
 
-"the devil causes sickness"
+Do demons make bacteria? No
 
-- Ge3:14
-- Job2:7
-- Ac10:38
-- Lk4:33-35
-- Mk9:20
-- Lk13:11
-- Mt8:16
-- Lk4:40-41
-- Is53:5
-- 1Pe2:24
-
-Demons display the characteristics they had when they died - Mt12:29
-
-- Mal4:2
-- Jn8:12
+Demons display the characteristics they had when they died
+- [Mt12:29](https://www.blueletterbible.org/niv/mat/12/29/s_941029)
+- [Mal4:2](https://www.blueletterbible.org/niv/mal/4/2/s_929002)
+- [Jn8:12](https://www.blueletterbible.org/niv/jhn/8/12/s_1005012)
 
 ---
 

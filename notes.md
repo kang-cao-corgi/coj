@@ -3316,115 +3316,113 @@ Demons display the characteristics they had when they died
 
 ---
 
-# Lec31
+## Lec 31
 
-## 6. casting out demons is a exercising authority
+### 6. Casting out demons is exercising authority
 
-- Mt28:18
-- Mk16:17
+- [Mt28:18](https://www.blueletterbible.org/niv/mat/28/18/s_957018)
+- [Mk16:17](https://www.blueletterbible.org/niv/mar/16/17/s_973017)
 
-### miracles
+The name of Yeshua = the name of the Father, the Son, the Holy Spirit = the Name of God = the Authority of God
 
-- the prophets - by the power of God
-- JX - by the authority of God
+#### Miracles
 
-| Majesty                    | Authority                | Power                          |
-| -------------------------- | ------------------------ | ------------------------------ |
-| throne, king - God Himself | the authortity of a king | the power, the works of a king |
+- the prophets - by the power of God (robing the prophets temporarily)
+- Jesus - by the authority of God (possess the authority)
 
-- Rm13:1
-- He1:3
-- Jn12:31
-- Mt21:23-24
+| Majesty | Authority | Power |
+| --- | --- | --- |
+| throne, king - God Himself | the authortity of a king | the works of a ruler |
 
-### the authority of JX
+- [Rm13:1](https://www.blueletterbible.org/niv/rom/13/1/s_1059001)
+- [He1:3](https://www.blueletterbible.org/niv/heb/1/3/s_1134003)
+- [Jn12:31](https://www.blueletterbible.org/niv/jhn/12/31/s_1009031)
+- [Mt21:23-24](https://www.blueletterbible.org/niv/mat/21/23/s_950023)
 
-- Jn10:18
+#### The authority of JX
 
-(JX) the kingdom of heaven (the authority of live and die)-> the devil = the prince of the world (the ruler of death, to kill)
+- [Jn10:18](https://www.blueletterbible.org/niv/jhn/10/18/s_1007018)
 
-| JX                | the devil         |
-| ----------------- | ----------------- |
+(JX) the kingdom of heaven (the authority of live and die) &rarr; the devil = the prince of the world (the ruler of death, to kill)
+
+| JX | the devil |
+| --- | --- |
 | authority to die  | authority to kill |
-| authority to live |                   |
-| - Mt12:26-28      |                   |
+| authority to live |  |
+| [Mt12:26-28](https://www.blueletterbible.org/niv/mat/12/26/s_941026)      |  |
 
-### Holy Spirit the ruler
+#### The Holy Spirit the Ruler
 
-- Mk9:1
-- Ac1:8
+- [Mk9:1](https://www.blueletterbible.org/niv/mar/9/1/s_966001)
+- [Ac1:8](https://www.blueletterbible.org/niv/act/1/8/s_1019008)
 
-### the name of Yeshua is authority
+#### The name of ***Yeshua*** is authority
 
-- Lk10:17-20
-- Lk13:32
-- Mk1:21-27
+- [Lk10:17-20](https://www.blueletterbible.org/niv/luk/10/17/s_983017)
+- [Lk13:32](https://www.blueletterbible.org/niv/luk/13/32/s_986032)
+- [Mk1:21-27](https://www.blueletterbible.org/niv/mar/1/21/s_958021)
 
-### spiritual authority
+#### Spiritual authority
+- [Mk3:13-15](https://www.blueletterbible.org/niv/mar/3/13/s_960013)
 
-- Mk3:13-15
+#### Follow-up
+1. Give thanks [Mt8:4](https://www.blueletterbible.org/niv/mat/8/4/s_937004)
+1. Testify [Mk5:19](https://www.blueletterbible.org/niv/mar/5/19/s_962019)
+1. Keep the Lord's Day [Jn5:14](https://www.blueletterbible.org/niv/jhn/5/14/s_1002014)
+1. Read the Bible [Jn10:35](https://www.blueletterbible.org/niv/jhn/10/35/s_1007035)
+1. Pray [Mt26:41](https://www.blueletterbible.org/niv/mat/26/41/s_955041), [Mk9:29](https://www.blueletterbible.org/niv/mar/9/29/s_966029)
 
-### follow-up
+## III. The theory of the Holy Spirit (pneumatology)
 
-1. give thanks (Mt8:4)
-2. testify (Mk5:19)
-3. keep the Lord's Day (Jn5:14)
-4. read the Bible (Jn10:35)
-5. pray (Mt26:41; Mk9:29)
-
-## III. the theory of the Holy Spirit (pneumatology)
-
-- Jn14:16-20
-
-JX - in history - visibly - to the world
-HS - as Spirit - invisbly - to the souls (of believers)
+- [Jn14:16-20](https://www.blueletterbible.org/niv/jhn/14/16/s_1011016)
+<br>
+- JX - in history - visibly - to the - world
+- HS - as Spirit - invisbly - to souls (of believers)
 
 ### 1. the Holy Spirit is the person of God
+- ***Intelligence***: knows lies [Ac5:3](https://www.blueletterbible.org/niv/act/5/3/s_1023003) and deep things [2Co2:10](https://www.blueletterbible.org/niv/2co/2/10/s_1080010)
+- ***Emotion***: He groams [Rm8:26](https://www.blueletterbible.org/niv/rom/8/26/s_1054026) and rejoices [Lk10:21](https://www.blueletterbible.org/niv/luk/10/21/s_983021)
+- ***Free will***: He is in accordance with God's will [Rm8:27](https://www.blueletterbible.org/niv/rom/8/27/s_1054027)
 
-intelligence: knows lies (Ac5;3) and deep things (2Co2:10)
+- [Jn14:16](https://www.blueletterbible.org/niv/jhn/14/16/s_1011016)
+- [Jn16:7-8](https://www.blueletterbible.org/niv/jhn/16/7/s_1013007)
 
-emotion: groams (Rm8:26) nad rejoices (Lk10:21)
+#### Jesus honored the Holy Spirit
 
-free will: in accordance with God's will (Rm8:27)
+- [Rm8:9](https://www.blueletterbible.org/niv/rom/8/9/s_1054009)
+- [Jn12:47-48](https://www.blueletterbible.org/niv/jhn/12/47/s_1009047)
+- [Ac1:2](https://www.blueletterbible.org/niv/act/1/2/s_1019002)
 
-- Jn14:26
-- 16:7-8
+The Word became flesh &rarr; the Word became blood &rarr; the Spirit become blood
 
-Jesus honored the Holy Spirit
 
-- Rm8:9
-
-| "the spirit of God"     | "the spirit of Christ" "the sprit of the Word" |
-| ----------------------- | ---------------------------------------------- |
-| the person of God (HS)) | the blood of Christ                            |
-
-- Jn12:47-48
+| "the spirit of God" | "the spirit of Christ" "the sprit of the Word" |
+| --- | --- |
+| the person of God (HS)) | the blood of Christ |
 
 the command of JX = the command of Father = the command of HS
 
-- Mt12:31-32, 36-37
-- He10:28-29
+- [Mt12:31-32](https://www.blueletterbible.org/niv/mat/12/31/s_941031), [36-37](https://www.blueletterbible.org/niv/mat/12/36/s_941036)
+- [He10:28-29](https://www.blueletterbible.org/niv/heb/10/28/s_1143028)
 
-the HS is confined in His work
+#### the HS is confined in His work
+- [1Co3:16-17](https://www.blueletterbible.org/niv/1co/3/16/s_1065016)
 
-- 1Co3:16-17
-
-#### 1.1 Do not disobey the HS
-
-- Gal5:17
-
-  #### 1.2 Do not blaspheme against the HS
-
-  disobey HS - passive - one's own problem<br>vs.<br>
-  blaspheme against HS - active - external
-1. the blasphemy against ***the Truth, the Gospel***
-   - 2Ti2:8
-   - Ac5:38-39
-2. the blasphemy against ***the Church***
-   - Ac20:28
-   - Mt12:30
-
-     #### 1.3 Do not limit the HS
+1. Do not disobey the HS
+    - [Gal5:17](https://www.blueletterbible.org/niv/gal/5/17/s_1096017)
+1. Do not blaspheme against the HS
+    <br>
+    disobey HS - passive - one's own problem
+    <br>vs.<br>
+    ***blasphemy*** against HS - active - external
+    1. the blasphemy against ***the Truth, the Gospel***
+        - [2Ti2:8](https://www.blueletterbible.org/niv/2ti/2/8/s_1127008)
+        - [Ac5:38-39](https://www.blueletterbible.org/niv/act/5/38/s_1023038)
+    2. the blasphemy against ***the Church***
+        - [Ac20:28](https://www.blueletterbible.org/niv/act/20/28/s_1038028)
+        - [Mt12:30](https://www.blueletterbible.org/niv/mat/12/30/s_941030)
+1. Do not limit the HS
+- [1Co12:4-7](https://www.blueletterbible.org/niv/1co/12/4/s_1074004)
 
 ---
 

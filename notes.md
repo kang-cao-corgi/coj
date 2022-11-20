@@ -3426,70 +3426,69 @@ the command of JX = the command of Father = the command of HS
 
 ---
 
-# Lec 32
+## Lec 32
 
-## 2. the HS is one person of the triune God
-He is one with God
-- Mt28:19
-- Ac2:38
+### 2. the Holy Spirit is one person of the triune(trinity) God
+#### He is one with God
+- [Mt28:19](https://www.blueletterbible.org/niv/mat/28/19/s_957019)
+- [Ac2:38](https://www.blueletterbible.org/niv/act/2/38/s_1020038)
+- [Ac19:5](https://www.blueletterbible.org/niv/act/19/5/s_1037005)
 
-|Father   |Son   |HS|
+| Father | Son | HS |
 |---|---|---|
-|The ground being of ***esseence***   |the ground being of ***form***   | the ground being of ***spirit***|
-|the Creator| the Redeemer| the Counselor|
-|to the created| ***to the sinner***| ***to the saint***|
+| The ground being of ***esseence*** |the ground being of ***form*** | the ground being of ***spirit*** |
+|the Creator| the Redeemer | the Counselor |
+|to the created | ***to the sinner*** | ***to the saint*** |
 
-- Jn14:16-20
+ground being: the origin / source of beings
 
-> 16 And I will ask the Father, and he will give you another advocate to help you and be with you forever— 17 the Spirit of truth. The world cannot accept him, because it neither sees him nor knows him. But you know him, for he lives with you and will be in you. 18 I will not leave you as orphans; I will come to you. 19 Before long, the world will not see me anymore, but you will see me. Because I live, you also will live. 20 On that day you will realize that I am in my Father, and you are in me, and I am in you.
+- [Jn14:16-20](https://www.blueletterbible.org/niv/jhn/14/16/s_1011016) talking to the disciples <br>
+    "I am in My Father" &rarr; Son in Father, <br>
+    "and you are in me" &rarr; saint in HS, <br>
+    "and I am in you" &rarr; HS in saint &rarr; interlocked
 
-    "I am in My Father"
-    "and you are in me"
-    "and I am in you"
+The One who made me &rarr; the Father <br>
+The One who gave birth in His Blood &rarr; the Son <br>
+the One who nurtures me the spirit &rarr; the HS
 
-interlocked
+The three persons are ***NOT*** ranked
+- [Mt28:19](https://www.blueletterbible.org/niv/mat/28/19/s_957019)
+- [2Co13:14](https://www.blueletterbible.org/niv/2co/13/14/s_1091014)
 
-The One who made me  = the Father
-The One who gave birth in His Blook = The Son
-the One who nurtures me the spirit = The HS
-
-the three persons are ***NOT*** ranked
-- Mt29:19
-- 2Co13:14
-
-|Father   |Son   |HS|
+| Father | Son | HS |
 |---|---|---|
-|before history   |  in history |in history|
-|heard from| visible| invisible|
-|object of admiration| rejected and killed | into the souls that welcome|
+| before history | in history | in history |
+| heard from | visible | invisible |
+| object of admiration | rejected and killed | into the souls that welcome |
 
 The Father established,
 the Son fullfilled,
-HS is fullfilling,
+the HS is ***fullfilling***,
 the will.
 
-- 1Jn5:6-8 (NKJV)
-- Jn16:13
-- 1Jn5:9
+- [1Jn5:6-8 (NKJV)](https://www.blueletterbible.org/nkjv/1jo/5/6/s_1164006) extra sentence: *the Father, the Word, and the Holy Spirit; and these three are one*
+- [Jn16:13](https://www.blueletterbible.org/niv/jhn/16/13/s_1013013)
+- [1Jn5:9](https://www.blueletterbible.org/niv/1jo/5/9/s_1164009)
 
-## 3. the HS is the counselor
-- Jn14:16
-### 3.1 the Counselor (Defender)
-- Ac2:32-33
-- Ac3:14-15
-- AC5:30-32
+### 3. The Holy Spirit is the counselor
+- [Jn14:16](https://www.blueletterbible.org/niv/jhn/14/16/s_1011016)
+#### 3.1 the Counselor (Defender)
+- [Ac2:32-33](https://www.blueletterbible.org/niv/act/2/32/s_1020032)
+- [Ac3:14-15](https://www.blueletterbible.org/niv/act/3/14/s_1021014)
+- [Ac5:30-32](https://www.blueletterbible.org/niv/act/5/30/s_1023030)
 
-### Why we must defend Jesus
+#### Why we must defend Jesus
+- the world &rarr; found JX guilty &rarr; execution
+- the cross &rarr; the cursed tree &rarr; total death
+- HS &rarr; defends the innocence of JX (JX = the Righteousness)
 
-- the world - found JX guilty - execution
-- the cross - the cursed tree - total death
-- HS - defends the innocence of JX (JX = the righteousness)
+#### 3.2 the Comforter
+- [Mt1:18](https://www.blueletterbible.org/niv/mat/1/18/s_930018)
 
-### 3.2 the Comforter
-- Mt1:18
-### 3.3 the Advocate
-Jesus Himself is a Counselor
-- 1Jn2:1
+#### 3.3 the Advocate (pro bono counselor)
+
+#### Jesus Himself is a Counselor
+- [1Jn2:1](https://www.blueletterbible.org/niv/1jo/2/1/s_1161001)
 
 ***counselor***
 <br>

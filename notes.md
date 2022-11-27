@@ -3497,68 +3497,68 @@ HS - defends JX - on earth
 JX - defends saints - in heaven
 
 ---
-# Lec 33
-## 4. the counselor HS and Baptism
-- Rm6:3-5
+
+## Lec 33
+### 4. the counselor Holy Spirit and Baptism
+- [Rm6:3-5](https://www.blueletterbible.org/niv/rom/6/3/s_1052003)
 
 baptism = uniting with Christ = the act of belonging to Christ = fulfilling righteousness (law)
 
-### 4.1 John's baptism
-- Jn1:31
-- Mt3:11, 13-14
+#### 4.1 John's baptism
+- [Jn1:31](https://www.blueletterbible.org/niv/jhn/1/31/s_998031)
+- [Mt3:11](https://www.blueletterbible.org/niv/mat/3/11/s_932011), [13-14](https://www.blueletterbible.org/niv/mat/3/13/s_932013)
 
-### 4.2 the baptism of JX
-- Lk12:49
-- Rm3:25-26
+#### 4.2 the baptism of JX
+- [Lk12:49-50](https://www.blueletterbible.org/niv/luk/12/49/s_985049)
+- [Rm3:25-26](https://www.blueletterbible.org/niv/rom/3/25/s_1049025) justice &hArr; righteous
 
-### 4.3 baptism in the name of Yeshua
+#### 4.3 Baptism in the name of Yeshua
 
-### 4.4 baptism with the HS
-- Ac1:5
+#### 4.4 Baptism with the Holy Spirit
+- [Ac1:5](https://www.blueletterbible.org/niv/act/1/5/s_1019005)
 
+***John*** testified the righteousness of JX with ***water*** <br>
+***JX*** testified the righteousness of the Father with ***blood*** <br>
+***The Holy Spirit*** testified the righteousness of JX with ***Spirit***
 
-John testified the righteousness of JX with water
-JX testified the righteousness of the Father with blood
-HS testified the righteousness of os JX with spirit
+## IV. The holy spirit and the church
+- [Ac20:28](https://www.blueletterbible.org/niv/act/20/28/s_1038028)
 
-## IV. the holy spirit and the church
-- Ac20:28
+#### What the spirit says to the churches
+1. to the Church in Ephesus [Rev2:1-7](https://www.blueletterbible.org/niv/rev/2/1/s_1169001)
+    - [Ac2:32-33](https://www.blueletterbible.org/niv/act/2/32/s_1020032)
+    - [Ac3:14-15](https://www.blueletterbible.org/niv/act/3/14/s_1021014)
+    - [Ac5:30-32](https://www.blueletterbible.org/niv/act/5/30/s_1023030)
+1. to the Church in Smyrna [Rev2:8-11](https://www.blueletterbible.org/niv/rev/2/8/s_1169008)
+    - [Mt1:18](https://www.blueletterbible.org/niv/mat/1/18/s_930018)
+1. to the Church in Pergamum [Rev2:12-17](https://www.blueletterbible.org/niv/rev/2/12/s_1169012)
+1. to the Church in Thyatira [Rev2:18-29](https://www.blueletterbible.org/niv/rev/2/18/s_1169018)
+1. to the Church in Sardis [Rev3:1-6](https://www.blueletterbible.org/niv/rev/3/1/s_1170001)
+1. to the Church in Philadelphia [Rev3:7-13](https://www.blueletterbible.org/niv/rev/3/7/s_1170007)
+1. to the Church in Laodicea [Rev3:14-22](https://www.blueletterbible.org/niv/rev/3/14/s_1170014)
 
-what the spirit says to the churches
-1. to the Church in Ephesus
-    - Rev2:1-7
-1. to the Church in Smyrna
-    - Rev2:8-11
-1. to the Church in Pergamum
-    - Rev2:12-17
-1. to the Church in Thyatira
-    - Rev2:18-29
-1. to the Church in Sardis
-    - Rev3:1-6
-1. to the Church in Philadelphia
-    - Rev3:7-13
-1. to the Church in Laodicea
-    - Rev3:14-22
+- [Rev22:18-19](https://www.blueletterbible.org/niv/rev/22/18/s_1189018)
+- [1Jn4:6](https://www.blueletterbible.org/niv/1jo/4/6/s_1163006)
 
-- Rev22:18-19
-- 1Jn4:6
+## V. Being filled with the HS
+- [Ac2:4](https://www.blueletterbible.org/niv/act/2/4/s_1020004) tongues
+- [Ac4:8](https://www.blueletterbible.org/niv/act/4/8/s_1022008), [13](https://www.blueletterbible.org/niv/act/4/13/s_1022013), [31](https://www.blueletterbible.org/niv/act/4/31/s_1022031) "filled with ***the Holy Spirit***"
+- [Ac7:55](https://www.blueletterbible.org/niv/act/7/55/s_1025055)
+- [Ac13:9](https://www.blueletterbible.org/niv/act/13/9/s_1031009), [12](https://www.blueletterbible.org/niv/act/13/12/s_1031012)
+- [Gal5:16](https://www.blueletterbible.org/niv/gal/5/16/s_1096016)
+- [Eph5:18-21](https://www.blueletterbible.org/niv/eph/5/18/s_1102018)
+- [Jn16:20-22](https://www.blueletterbible.org/niv/jhn/16/20/s_1013020)
 
-## V. being filled with the HS
-- Ac2:4
-- Ac4:8, 13, 31
-- Ac7:55
-- Ac13:9, 12
-- Gal5:15
-- Eph5:18-21
+#### The state of being filled with the HS
+- [Gal5:22-26](https://www.blueletterbible.org/niv/gal/5/22/s_1096022)
+- [Jn16:7-11](https://www.blueletterbible.org/niv/jhn/16/7/s_1013007)
+- [Mt3:11-12](https://www.blueletterbible.org/niv/mat/3/11/s_932011)
+- [Ac6:5-6](https://www.blueletterbible.org/niv/act/6/5/s_1024005)
+- [Rev2:6](https://www.blueletterbible.org/niv/rev/2/6/s_1169006)
+- [Jude1:19](https://www.blueletterbible.org/niv/jde/1/19/s_1167019)
 
-the state of being filled with the HS
-- Gal5:22-26
-- Jn16:7-11
-- Mt3:11-12
-- Ac6:5-6
-- Rev2:6
-- Jude1:19
 ---
+
 # Lec 34
 ## VI. the HS and His gifts
 - 1Co12:3

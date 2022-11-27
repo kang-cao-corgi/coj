@@ -3559,96 +3559,97 @@ baptism = uniting with Christ = the act of belonging to Christ = fulfilling righ
 
 ---
 
-# Lec 34
-## VI. the HS and His gifts
-- 1Co12:3
+## Lec 34
+## VI. the Holy Spirit and gifts
+- [1Co12:3](https://www.blueletterbible.org/niv/1co/12/3/s_1074003)
 
-the gift HS and the counselor HS
-|the gift HS   | the counselor HS  |
+#### The ***gift*** Holy Spirit and the ***counselor*** Holy Spirit
+|the Gift HS (OT) | the Counselor HS (NT) |
 |---|---|
-|gift|dwells   |
+|gift  | dwells |
 |worked|the counselor|
 |***a shadow***|the true form|
 |inspired|the person|
 |on-time|***forvever***|
 |outside the body|inside the body|
 
-- Jn7:38-39 "filled with the Holy Spirit"
-- Lk1:15, 41, 67
-- Ps51:11
-- Ac2:17
-- 2Pe1:21
+- [Jn7:38-39](https://www.blueletterbible.org/niv/jhn/7/38/s_1004038) 
 
-***the Words*** of the Bible to be given authority
-- the prophecies of the prophets (He1:1)
-- the words of JX (He1:2)
-- the words of the HS (Mt10:20)
+"Filled with the Holy Spirit"
+- [Lk1:15](https://www.blueletterbible.org/niv/luk/1/15/s_974015), [41](https://www.blueletterbible.org/niv/luk/1/41/s_974041), [67](https://www.blueletterbible.org/niv/luk/1/67/s_974067)
+- [Ps51:11](https://www.blueletterbible.org/niv/psa/51/11/s_529011)
+- [Ac2:17](https://www.blueletterbible.org/niv/act/2/17/s_1020017)
+- [2Pe1:21](https://www.blueletterbible.org/niv/2pe/1/21/s_1157021)
+
+#### ***the words*** of the Bible to be given authority
+- the prophecies of the prophets were heard through the ears [He1:1](https://www.blueletterbible.org/niv/heb/1/1/s_1134001)
+- the words of JX. They saw JX [He1:2](https://www.blueletterbible.org/niv/heb/1/2/s_1134002)
+- the words of the HS through the believers [Mt10:20](https://www.blueletterbible.org/niv/mat/10/20/s_939020)
 
 <br>
 
-- Mt11:13
-### signs
+- [Mt11:13](https://www.blueletterbible.org/niv/mat/11/13/s_940013)
+#### signs
+A sign is that nobody has ever done / been seen until it came
 - prophets - prophecies
 - JX - drove out demons
-- HS - speaking in tongues
+- HS - speaking in tongues (tangible proof???)
 
 <br>
 
-- Lk10:20
+- [Lk10:20](https://www.blueletterbible.org/niv/luk/10/20/s_983020)
 
-## 1. speaking in tongues
-- Ac2:1-11
-- 1Co14:2
+#### 1.speaking in tongues
+- [Ac2:1-11](https://www.blueletterbible.org/niv/act/2/1/s_1020001)
+- [1Co14:2](https://www.blueletterbible.org/niv/1co/14/2/s_1076002) "If I myself don't understand it, it's okay"?
 
-### the content of tongues
+#### the content of tongues
 1. praising God
-    - Ac2:11,
-    - 10:46
+    - [Ac2:11](https://www.blueletterbible.org/niv/act/2/11/s_1020011), [10:46](https://www.blueletterbible.org/niv/act/10/46/s_1028046)
 1. uttering mysteries with the spirit
-    - 1Co14:2, 15, 27-28, 39-40
+    - [1Co14:2](https://www.blueletterbible.org/niv/1co/14/2/s_1076002), [14-15](https://www.blueletterbible.org/niv/1co/14/14/s_1076014), [27-28](https://www.blueletterbible.org/niv/1co/14/27/s_1076027), [39-40](https://www.blueletterbible.org/niv/1co/14/39/s_1076039) in gathering, speak in tongue is not allowed unless interpreted
 
-## 2. Gifts of healing
-- 1Co12:8-11, 28
+#### 2. Gifts of healing
+- [1Co12:8-11](https://www.blueletterbible.org/niv/1co/12/8/s_1074008), [28](https://www.blueletterbible.org/niv/1co/12/28/s_1074028)
 
 God: by mercy -> the one who uses power: by prayer/fasting -> the sick: by faith
 
-### 3. prophecy
-- 2Pe1:19-21
+#### 3. Prophecy
+- [2Pe1:19-21](https://www.blueletterbible.org/niv/2pe/1/19/s_1157019)
 
-|prophecy   | "fortune telling"|
+|prophecy | "fortune telling" |
 |---|---|
-|edifies the church (1Co14:4) for the common good not interpreted according to one's own (2Pe1:20)  | benefits the individual (Ac16:16) for one's own (Eze14:7) personally interpreted  |
-|revealed (1Pe1:12) visions and revelations|out of their own imagination (Eze13:1-3) False visions and divinations (Eze13:6)|
-|not dissuaded (Ac21:11-14)|expect their words to be fulfilled (Eze13:6)|
+|***edifies the church*** [1Co14:4](https://www.blueletterbible.org/niv/1co/14/4/s_1076004)<br> - for the common good<br>- not interpreted according to one's own [2Pe1:20](https://www.blueletterbible.org/niv/2pe/1/20/s_1157020)| ***benefits the individual*** [Ac16:16](https://www.blueletterbible.org/niv/act/16/16/s_1034016)<br> - for one's own [Eze14:7](https://www.blueletterbible.org/niv/eze/14/7/s_816007)<br> - personally interpreted |
+|***revealed*** [1Pe1:12](https://www.blueletterbible.org/niv/1pe/1/12/s_1152012)<br>- visions and revelations |***out of their own imagination*** [Eze13:1-3](https://www.blueletterbible.org/niv/eze/13/1/s_815001)<br>- False visions and divinations [Eze13:6](https://www.blueletterbible.org/niv/eze/13/6/s_815006) |
+|not dissuaded [Ac21:11-14](https://www.blueletterbible.org/niv/act/21/11/s_1039011) |expect their words to be fulfilled [Eze13:6](https://www.blueletterbible.org/niv/eze/13/6/s_815006) |
 
+- [Eze13:19](https://www.blueletterbible.org/niv/eze/13/19/s_815019)
+- [Eze14:7-10](https://www.blueletterbible.org/niv/eze/14/7/s_816007)
 
-- Eze13:19
-- Eze14:7-10
+#### ***positive*** sides to prophecies
+#### ***negative*** sides to prophecies
+- [1Ti4:1-2](https://www.blueletterbible.org/niv/1ti/4/1/s_1123001)
 
-### ***positive*** sides to prophecies
-### ***negative*** sides to prophecies
-- 1Ti4:1-2
+1. visions
+    - [2Co12:1-4](https://www.blueletterbible.org/niv/2co/12/1/s_1090001)
+    - [Ac5:3-4](https://www.blueletterbible.org/niv/act/5/3/s_1023003)
+    - [Jer23:35-38](https://www.blueletterbible.org/niv/jer/23/35/s_768035)
 
-### visions
-- 2Co12:1-4
-- Ac5:3-4
-- Jer23:35-38
+1. "spiritual shaking"
+    - [Ac4:31](https://www.blueletterbible.org/niv/act/4/31/s_1022031)
+    - [Ac16:26](https://www.blueletterbible.org/niv/act/16/26/s_1034026)
 
-"spiritual shaking"
-- Ac4:31
-- Ac16:26
+1. "Fire" (judgement, wraith of God)
+    - [Lk3:16](https://www.blueletterbible.org/niv/luk/3/16/s_976016)
+    - [Is4:4](https://www.blueletterbible.org/niv/isa/4/4/s_683004)
+    - [Eze22:21](https://www.blueletterbible.org/niv/eze/22/21/s_824021)
+    - [He12:29](https://www.blueletterbible.org/niv/heb/12/29/s_1145029)
+    - [Lk16:24](https://www.blueletterbible.org/niv/luk/16/24/s_989024)
+    - [Rev8:7](https://www.blueletterbible.org/niv/rev/8/7/s_1175007)
 
-"Fire" (judgement, wraith of God)
-- Lk3:16
-- Is4:4
-- Eze22:21
-- He12:29
-- Lk16:24
-- Rev8:7
-
-"slain in the spirit" or "receiving spirit" (and falling)
-- Jn18:5-6
-- Mk9:26
+1. "slain in the spirit" or "receiving spirit" (and falling)
+    - [Jn18:5-6](https://www.blueletterbible.org/niv/jhn/18/5/s_1015005)
+    - [Mk9:26](https://www.blueletterbible.org/niv/mar/9/26/s_966026)
 
 ---
 # Lec 35

@@ -3652,15 +3652,17 @@ God: by mercy -> the one who uses power: by prayer/fasting -> the sick: by faith
     - [Mk9:26](https://www.blueletterbible.org/niv/mar/9/26/s_966026)
 
 ---
-# Lec 35
-## Chapter 4 the gospel
-- Rm1:2
-- Mk1:1
-- 1Co2:4
+
+## Lec 35
+# Chapter 4 The gospel
+- [Rm1:2](https://www.blueletterbible.org/niv/rom/1/2/s_1047002)
+- [Mk1:1](https://www.blueletterbible.org/niv/mar/1/1/s_958001)
+- [1Co2:4](https://www.blueletterbible.org/niv/1co/2/4/s_1064004)
 
 the gospel = the son of God + His works + His words
 
-|God   |the son of God   |
+#### God and the Son of God
+|God |the son of God |
 |:---:|:---:|
 |  Deity, Spirit |Man, flesh   |
 |Heaven|Earth|
@@ -3669,93 +3671,99 @@ the gospel = the son of God + His works + His words
 |peace|suffering|
 |glory|shame|
 
-all things are for the sone of God (1Co15:27-28)
+#### All things are for the Son of God [1Co15:27-28](https://www.blueletterbible.org/niv/1co/15/27/s_1077027)
 
 ## I. sin is being deceived
-- Ps78:57
-- Hos7:16
-- Zec1:3
-- Jas4:8
+- [Ps78:57](https://www.blueletterbible.org/niv/psa/78/57/s_556057)
+- [Hos7:16](https://www.blueletterbible.org/niv/hos/7/16/s_869016)
+- [Rm7:11](https://www.blueletterbible.org/niv/rom/7/11/s_1053011)
+- [Zec1:3](https://www.blueletterbible.org/niv/zec/1/3/s_912003)
+- [Jas4:8](https://www.blueletterbible.org/niv/jas/4/8/s_1150008)
 
-OT: sin = "a faulty bow"
-NT: sin = "a missed arrow"
+OT: sin &rarr; "a faulty bow" [Ps78:57](https://www.blueletterbible.org/niv/psa/78/57/s_556057) [Hos7:16](https://www.blueletterbible.org/niv/hos/7/16/s_869016) <br>
+NT: sin &rarr; "a missed arrow"
 
-Satan deceived himself
-- Jn8:44
-- 2Co2:11
+#### Satan deceived himself
+- [Jn8:44](https://www.blueletterbible.org/niv/jhn/8/44/s_1005044)
+- [2Co2:11](https://www.blueletterbible.org/niv/2co/2/11/s_1080011)
 
-pride is deceiving oneself (Ps1:1-6)
-God punishes the proud
-- Jer49:16
-- Ob1:3-4
+#### Pride is deceiving oneself 
+- [Ps1:1-6](https://www.blueletterbible.org/niv/psa/1/1/s_479001)
+#### God punishes the proud
+- [Jer49:16](https://www.blueletterbible.org/niv/jer/49/16/s_794016)
+- [Ob1:3-4](https://www.blueletterbible.org/niv/oba/1/3/s_889003)
 
-### 1. God hates sin
-- Ps5:4-5
- sin = pride = lies = deceived
-### 2. fools are deceived
-- Pr14:8
-- 2Ti3:13)
-### 3. the antichrist deceives
-- 2Th2:9-10
-### 4. corruption is deception
-- Jas1:14-15
-- 1Ti4:1-2
-### 5. the truth does not deceive
-- Jn8:40
-- Rev3:14
-- Rev21:5
-### 6. the Israel God wants is a " reliable stock" (a people not deceived)
-- Jer2:21-23
-### 7. the real food that God wants to give
-- Jn6:55
-### 8. God alone is true
-- Jn17:3
-- Rm3:4
-- Rev6:10
+1. God hates sin
+    - [Ps5:4-5](https://www.blueletterbible.org/niv/psa/5/4/s_483004)
+    sin = pride = lies = deceived
+1. fools are deceived
+    - [Pr14:8](https://www.blueletterbible.org/niv/pro/14/8/s_642008)
+    - [2Ti3:13](https://www.blueletterbible.org/niv/2ti/3/13/s_1128013)
+1. the antichrist deceives
+    - [2Th2:9-10](https://www.blueletterbible.org/niv/2th/2/9/s_1118009)
+1. corruption is deception
+    - [Jas1:14-15](https://www.blueletterbible.org/niv/jas/1/14/s_1147014)
+    - [1Ti4:1-2](https://www.blueletterbible.org/niv/1ti/4/1/s_1123001)
+1. the truth does not deceive
+    - [Jn8:40](https://www.blueletterbible.org/niv/jhn/8/40/s_1005040)
+    - [Rev3:14](https://www.blueletterbible.org/niv/rev/3/14/s_1170014), [21:5](https://www.blueletterbible.org/niv/rev/21/5/s_1188005)
+1. the Israel God wants is a " reliable stock" (a people not deceived)
+    - [Jer2:21-33](https://www.blueletterbible.org/niv/jer/2/21/s_747021)
+1. the real food that God wants to give
+    - [Jn6:55](https://www.blueletterbible.org/niv/jhn/6/55/s_1003055)
+1. God alone is true
+    - [Jn17:3](https://www.blueletterbible.org/niv/jhn/17/3/s_1014003)
+    - [Rm3:4](https://www.blueletterbible.org/niv/rom/3/4/s_1049004)
+    - [Rev6:10](https://www.blueletterbible.org/niv/rev/6/10/s_1173010)
 
-### summary
-1. satan deceived himself
+### Summary
+1. Satan deceived himself
     1. to think that he could live on his own
     1. to think that he could be equal to God
     1. blinded by his own pride
-1. Satan deceived man (Ge3:4, 1Col1:3, Rm7:11)
-1. the image of God was deceived (Ge3:13)
-1. Jesus was not deceived (Mt4:3-11)
-    the reason why God gave the Law: ***do not be deceived***
+1. Satan deceived man [Ge3:4](https://www.blueletterbible.org/niv/gen/3/4/s_3004), [1Co1:3](https://www.blueletterbible.org/niv/1co/1/3/s_1063003), [Rm7:11](https://www.blueletterbible.org/niv/rom/7/11/s_1053011)
+1. the image of God was deceived [Ge3:13](https://www.blueletterbible.org/niv/gen/3/13/s_3013)
+1. Jesus was not deceived [Mt4:3-11](https://www.blueletterbible.org/niv/mat/4/3/s_933003) <br>the reason why God gave the Law: ***do not be deceived***
 1. the Church is the image of God that is not deceived
 
-## II. the fruit of the knowledge of good and evil and the perfect script of the gospel
+## II. The fruit of the knowledge of good and evil and the perfect script of the gospel
 the fruit of knowledge of good and evil
-- Ge1:26
-- G22:17
-- Ge3:15, 22
+- [Ge1:26](https://www.blueletterbible.org/niv/gen/1/26/s_1026)
+- [Ge22:17](https://www.blueletterbible.org/niv/gen/22/17/s_22017)
+- [Ge3:15](https://www.blueletterbible.org/niv/gen/3/15/s_3015), [22](https://www.blueletterbible.org/niv/gen/3/22/s_3022)
 
-### the fall of the devil
+#### the fall of the devil
 - the first Adam - the devil made him eat the fruit
-- the last Adam - the devil killed Him
+- the last Adam - the devil ***killed*** Him
 
-## III. proclaiming the gospel
-### 1. proclaiming the gospel is proclaiming the purpose of God
+## III. Proclaiming the gospel
+### 1. Proclaiming the gospel is proclaiming the purpose of God
 
-the Law vs the Gospel
-- the law - through Moses - devrees and the law
+#### The Law vs the Gospel
+- the law - through Moses - decrees and the law
 - ***the Gospel*** - through JX - the works of JX - ***grace and truth***
 
 "law-centered" (Legalism)
-- Gal1:7-10
-- Gal2:4, 11-14
+- [Gal1:7-10](https://www.blueletterbible.org/niv/gal/1/7/s_1092007)
+- [Gal2:4](https://www.blueletterbible.org/niv/gal/2/4/s_1093004), [11-14](https://www.blueletterbible.org/niv/gal/2/11/s_1093011)
 
 "Gospel-centered" (Antinomianism) (lawlessness)
-- Rm5:13, 20
-- Mt5:17-20
+- [Rm5:13](https://www.blueletterbible.org/niv/rom/5/13/s_1051013), [20](https://www.blueletterbible.org/niv/rom/5/20/s_1051020)
+- [Mt5:17-20](https://www.blueletterbible.org/niv/mat/5/17/s_934017)
+
+#### The law is good
+- [Lk18:18-23](https://www.blueletterbible.org/niv/luk/18/18/s_991018)
+- [Mt22:37-40](https://www.blueletterbible.org/niv/mat/22/37/s_951037)
+- [1Co13:2-3](https://www.blueletterbible.org/niv/1co/13/2/s_1075002)
+- [Jn15:12-13](https://www.blueletterbible.org/niv/jhn/15/12/s_1012012)
+
 ---
+
 # Lec 36
-- Lk18:18-23
-- Mt22:37-40
-- 1Col3:2-3
-- Jn15:12-13
 ### the law is good
 ### the gospel emphasizes the grace of the blood
+- [Lev4:16-17](https://www.blueletterbible.org/niv/lev/4/16/s_94016)
+- [He9:12](https://www.blueletterbible.org/niv/heb/9/12/s_1142012)
 ## 2. the ears that heard the gospel are equal
 - Rm1:16
 the men and angels are created for different purposes

@@ -3759,77 +3759,95 @@ the fruit of knowledge of good and evil
 
 ---
 
-# Lec 36
+## Lec 36
 ### the law is good
 ### the gospel emphasizes the grace of the blood
 - [Lev4:16-17](https://www.blueletterbible.org/niv/lev/4/16/s_94016)
 - [He9:12](https://www.blueletterbible.org/niv/heb/9/12/s_1142012)
-## 2. the ears that heard the gospel are equal
-- Rm1:16
+
+### 2. The ears that heard the gospel are equal
+- [Rm1:16](https://www.blueletterbible.org/niv/rom/1/16/s_1047016)
 the men and angels are created for different purposes
 
-|the Law   | theh Gospel  |
+|the Law   | the Gospel  |
 |---|---|
 |   Mount Sinai| Jerusalem  |
-|Moses|JX|
+|Moses|Jesus|
 |Israel|Samaria, to the ends of the earth|
 
-- Eph2:11-12
-## 3. the attitude for receiving the gospel
+- [Eph2:11-15](https://www.blueletterbible.org/niv/eph/2/11/s_1099011)
 
+### 3. The attitude for receiving the gospel
 the cross is ***not*** a symbol of the gospel
-- Gal3:13
+- [Gal3:13](https://www.blueletterbible.org/niv/gal/3/13/s_1094013)
 
-### circumcision
-- Gal5:2-6
-- Rm2:25
-- Col2:11-12
+#### Circumcision
+- [Gal5:2-6](https://www.blueletterbible.org/niv/gal/5/2/s_1096002)
+- [Rm2:25](https://www.blueletterbible.org/niv/rom/2/25/s_1048025)
+- [Col2:11-12](https://www.blueletterbible.org/niv/col/2/11/s_1109011)
 
-### dietary customs
-- 1Col8:4-10
-- Ac15:20
-- 1Col10:23-31
-- 1Ti4:4-5
+#### Dietary customs
+- [1Col8:4-10](https://www.blueletterbible.org/niv/1co/8/4/s_1070004)
+- [Ac15:20](https://www.blueletterbible.org/niv/act/15/20/s_1033020)
+- [1Col10:23-31](https://www.blueletterbible.org/niv/1co/10/23/s_1072023)
+- [1Ti4:4-5](https://www.blueletterbible.org/niv/1ti/4/4/s_1123004)
 
-### blessings
-- Moses- the flesh - to multiply, longevity (Dt29:4-6)
-- JX - the soul - the kingdom of heaven (Mt5:3-11)
+    drinking - not beneficiary, not constructive
 
-## 4. the condemnation under the gospel
-- 1Co9:21
-- He2:1-4
-- Mt12:32, 36-37
-- Jn12:47-48
-- Mt11:6
-- He6:4-6
-- Mt13:47-50
-- Lk12:47-48
+#### Blessings
+- Moses- the flesh - to multiply, longevity [Dt29:4-6](https://www.blueletterbible.org/niv/deu/29/4/s_182004)
+- JX - the soul - the kingdom of heaven [Mt5:3-11](https://www.blueletterbible.org/niv/mat/5/3/s_934003)
 
-## 5. preaching the gospel is reminding of the past
+### 4. The condemnation under the gospel
+- [1Co9:21](https://www.blueletterbible.org/niv/1co/9/21/s_1071021)
+- [He2:1-4](https://www.blueletterbible.org/niv/heb/2/1/s_1135001)
+- [Mt12:32](https://www.blueletterbible.org/niv/mat/12/32/s_941032), [36-37](https://www.blueletterbible.org/niv/mat/12/36/s_941036)
+- [Jn12:47-48](https://www.blueletterbible.org/niv/jhn/12/47/s_1009047)
+- [Mt11:6](https://www.blueletterbible.org/niv/mat/11/6/s_940006)
+- [He6:4-6](https://www.blueletterbible.org/niv/heb/6/4/s_1139004)
+- [He10:26-29](https://www.blueletterbible.org/niv/heb/10/26/s_1143026)
+- [Mt13:47-50](https://www.blueletterbible.org/niv/mat/13/47/s_942047)
+- [Lk12:47-48](https://www.blueletterbible.org/niv/luk/12/47/s_985047)
+
+### 5. Preaching the gospel is reminding of the past
 - JX called out the dead from the tomb
 - Peter raised the dead widow
-- Nothing is impossible by the prayers of believers
-## 6. preaching the gospel is transforming
-transformation
+- Nothing is impossible by the prayer of believers
+
+#### Women in the early church
+- [Ac16:15](https://www.blueletterbible.org/niv/act/16/15/s_1034015)
+- [Rm16:1-4](https://www.blueletterbible.org/niv/rom/16/1/s_1062001), [6-7](https://www.blueletterbible.org/niv/rom/16/6/s_1062006), [15](https://www.blueletterbible.org/niv/rom/16/15/s_1062015)
+- [1Co16:19](https://www.blueletterbible.org/niv/1co/16/19/s_1078019)
+- [Php4:2-3](https://www.blueletterbible.org/niv/phl/4/2/s_1107002)
+- [Col4:15](https://www.blueletterbible.org/niv/col/4/15/s_1111015)
+
+<br>
+
+- [1Co11:1-16](https://www.blueletterbible.org/niv/1co/11/1/s_1073001)
+- [1Ti5:23](https://www.blueletterbible.org/niv/1ti/5/23/s_1124023)
+
+### 6. Preaching the gospel is transforming
+#### Transformation
 1. the creation of heavens and the earth - from nothing
-1. all events are about tranformatoin - tehe creatation of all thinks/ the exodus etc
+1. all events are about tranformation - the creaation of all things/ the exodus etc.
 1. salvation is the change in essence
-- borm again - one time
-1. obedience is transformation - unconditional obedience to the word of Christ
+    - born-again - one time change - in essence
+    - sanctification - continuous change - in form
+1. obedience is transformation - unconditionally to the word of Christ
 1. miracle is change -  the lame walking, the dead rising
-1. the natural man to the spiritual - hopes in heaven
+1. the natural man to the ***spiritual*** - hopes in heaven
 1. the foolish to the wise - the excellence of the knowledge of Christ
 
-## 7. preaching the gospel is ***breathing*** the power of God into them
+### 7. Preaching the gospel is ***breathing*** the power of God into them
+#### God breathed into them
+- blessing [Ge1:28](https://www.blueletterbible.org/niv/gen/1/28/s_1028)
+- breath of life [Ge2:7](https://www.blueletterbible.org/niv/gen/2/7/s_2007)
+- power [Ge3:15](https://www.blueletterbible.org/niv/gen/3/15/s_3015)
+- the authority of blessing [Ge12:1-2](https://www.blueletterbible.org/niv/gen/12/1/s_12001)
 
-God breath into them
-- blessing (Ge1:28)
-- breath of life (Ge2:7)
-- power (Ge3:15)
-- the authority of blessing (Ge12:1-2)
+<br>
 
- <br>
- - Mt10:29-30
+- [Mt10:29-30](https://www.blueletterbible.org/niv/mat/10/29/s_939029)
 
 ---
 # Lec 37

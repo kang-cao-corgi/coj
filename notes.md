@@ -3850,75 +3850,85 @@ the cross is ***not*** a symbol of the gospel
 - [Mt10:29-30](https://www.blueletterbible.org/niv/mat/10/29/s_939029)
 
 ---
-# Lec 37
-## Chapter 5 mediating the gospel
-## I. worship mediates the gospel
-## 1. definition
+
+## Lec 37
+# Chapter 5 Mediating the gospel
+## I. ***Worship*** mediates the gospel
+### 1. Definition
 1. Encountering God, kissing the hand of God
-    - Ge32:29-30
-    worship (greek: to fall at another's feet) postulate
+    - [Ge32:29-30](https://www.blueletterbible.org/niv/gen/32/29/s_32029)
+    to worship (greek: to fall at another's feet, to prostratem kneel, to meet with God closely)
 
 1. Service is carrying our one's duty
     - worship = to serve (a hired servant)
 
-### 1. the sacrifice in the OT
-three elements of sacrifice:
-- the santuary
-- the offering
-- the priest
+### 1. the sacrifice in the OT 
+- [He1:14](https://www.blueletterbible.org/niv/heb/1/14/s_1134014)
 <br>
-- He9:1, 9-10
+Three elements of sacrifice:
+    - the santuary
+    - the offering
+    - the priest
+<br>
+- [He9:1](https://www.blueletterbible.org/niv/heb/9/1/s_1142001), [9-10](https://www.blueletterbible.org/niv/heb/9/9/s_1142009)
+- [He7:23-28](https://www.blueletterbible.org/niv/heb/7/23/s_1140023)　
+- [He10:4](https://www.blueletterbible.org/niv/heb/10/4/s_1143004)
 
 ### 2. the living sacrifice of NT
-- Rm12:1
+- [Rm12:1](https://www.blueletterbible.org/niv/rom/12/1/s_1058001)
 
-worship in spirit and in truth
-- Jn4:20-26
-- 1Ki12:1-13
+#### Worship in spirit and in truth
+- [Jn4:20-26](https://www.blueletterbible.org/niv/jhn/4/20/s_1001020)
+- [1Ki12:1-13](https://www.blueletterbible.org/niv/1ki/12/1/s_303001)
 
-the northen kingdom (Israel), worship at bethel.
-the southen kingdom (Juda), worship in the temple of Jeruselem
+the northen kingdom (Israel - 10 tribes), worship at The high place of bethel - spirit
+<br>
+the southen kingdom (Juda - 2 tribes), worship in the temple of Jeruselem - do accroding to the law(truth)
 
-Moses saw the back of God
-- Ex33:20-23
-- He10:19-25
+#### Moses saw the back of God
+- [Ex33:20-23](https://www.blueletterbible.org/niv/exo/33/20/s_83020)
+- [He10:19-25](https://www.blueletterbible.org/niv/heb/10/19/s_1143019)
 
-### 3. the history
+### 3. The history of worship
 1. the first worship
-    - Ge4:1-12
+    - [Ge4:1-12](https://www.blueletterbible.org/niv/gen/4/1/s_4001)
 1. the instructed worship
-    - Ge22:1-18
-1. the regulation for worship
-    - He9:1
-    - He8:5
+    - [Ge22:1-18](https://www.blueletterbible.org/niv/gen/22/1/s_22001)
+1. the regulations for worship
+    - [He9:1](https://www.blueletterbible.org/niv/heb/9/1/s_1142001)
+    - [He8:5](https://www.blueletterbible.org/niv/heb/8/5/s_1141005)
 1. the spiritual worship
-    - Jn2:19-22
+    - [Jn2:19-22](https://www.blueletterbible.org/niv/jhn/2/19/s_999019)
 
-"In spirit and in truth"
-worship is holy "chaos"
+#### "In spirit and in truth"
+spiritual doesn't mean you do outside-of-body things
 
-### 4. the elements of worship
-1. the contents for entering
+#### worship is holy "chaos"
+
+### 4. The elements of worship
+1. the contents for entering the presence of God
     - praise
-        praise = lifting up God, His name + His works.
+        - praise = lifting up God, His name + His works.
         <br>
-        worship = put on the garment (grace)
-    - Ps22:3
-    - Ps100:4
+        - worship = put on a garment of praise + enter his courts of praise
+        - [Ps22:3](https://www.blueletterbible.org/niv/psa/22/3/s_500003)
+        - [Ps100:4](https://www.blueletterbible.org/niv/psa/100/4/s_578004)
+        - [Is61:3](https://www.blueletterbible.org/niv/isa/61/3/s_740003)
+        - [Ps47:1](https://www.blueletterbible.org/niv/psa/47/1/s_525001), [150:3-5](https://www.blueletterbible.org/niv/psa/150/3/s_628003)
 
 1. the corporate worship
-    - 1Co14:26-33
+    - [1Co14:26-33](https://www.blueletterbible.org/niv/1co/14/26/s_1076026)
 
-### 5. the content
+### 5. The content of worship
 1. holiness
-    - He12:4
-    - Eph5:26-27
+    - [He12:4](https://www.blueletterbible.org/niv/heb/12/4/s_1145004)
+    - [Eph5:26-27](https://www.blueletterbible.org/niv/eph/5/26/s_1102026)
 1. offering
-    - Lk21:1-4
-    - Dt16:16
-    - Ps96:8-9
+    - [Lk21:1-4](https://www.blueletterbible.org/niv/luk/21/1/s_994001)
+    - [Dt16:16](https://www.blueletterbible.org/niv/deu/16/16/s_169016)
+    - [Ps96:8-9](https://www.blueletterbible.org/niv/psa/96/8/s_574008)
 1. faith
-    - He11:6
+    - [He11:6](https://www.blueletterbible.org/niv/heb/11/6/s_1144006)
 1.  martyrdom (to surrender)
 
 ---

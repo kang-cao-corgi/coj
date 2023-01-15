@@ -3932,64 +3932,69 @@ spiritual doesn't mean you do outside-of-body things
 1.  martyrdom (to surrender)
 
 ---
-# Lec 38
-## II. sacraments - mediate the gospel
 
-## the method of God's salf-manifestation
-- JX: the incarnation Word
-- Sacraments: the regulations that God instructed (OT, under the law, given by Angels; NT, under the gospel - the Son)
+## Lec 38
+## II. Sacraments - mediate the gospel
+through sacramants we can experience invisible God
+#### The method of God's salf-manifestation
+- JX: the incarnate Word
+- Sacraments: the regulations that God instructed <br> (OT, under the law, given by Angels; NT, under the gospel - the Son)
 
-## communion and baptism
+### Communion and baptism
 |communion|baptism|
 |---|---|
-Commandment fefore the death of JX| Commandment after the resurrection of JX|
+Commandment <u>before</u> the death of JX| Commandment <u>after</u> the resurrection of JX|
 |commemorating the flesh and the blood of JX|uniting with the death and the resurrection of JX|
 
-- Mk16:16 (to immerse)
-- Mt28:19-20
-- Ac16:29-34
+- [Mk16:16](https://www.blueletterbible.org/niv/mar/16/16/s_973016) "to immerse"
+- [Mt28:19-20](https://www.blueletterbible.org/niv/mat/28/19/s_957019)
+- [Ac16:29-34](https://www.blueletterbible.org/niv/act/16/29/s_1034029)
 
-### importance of baptism
-1. Yeshua Humself was baotized (Mt3:11, 13-17)
-1. the sacrament in the name of God (Mt28:19, Ac2:38, Ac19:5)
-1. Christ's command (Jn12:48-50)
+### Importance of baptism
+1. Yeshua Himself was baptized [Mt4:11](https://www.blueletterbible.org/niv/mat/4/11/s_933011), [13-17](https://www.blueletterbible.org/niv/mat/4/13/s_933013)
+1. The sacrament in the name of God [Mt28:19](https://www.blueletterbible.org/niv/mat/28/19/s_957019), [Ac2:38](https://www.blueletterbible.org/niv/act/2/38/s_1020038), [Ac19:5](https://www.blueletterbible.org/niv/act/19/5/s_1037005)
+1. Christ's command [Jn12:48-50](https://www.blueletterbible.org/niv/jhn/12/48/s_1009048)
 
-### 4. the meaning
-- the mark of salvation (1Pe3:20-21)
-- uniting with Christ (Rm6:36)
-- belonging to Christ (1Co10:2, Gal3:27)
-- the sign of the covenant (Ge17:11; Col2:11-12)
-- a seal of the righteousness (Rm4:11)
+### 4. The meaning
+- the mark of salvation [1Pe3:20-21](https://www.blueletterbible.org/niv/1pe/3/20/s_1154020)
+- uniting with Christ [Rm6:3-6](https://www.blueletterbible.org/niv/rom/6/3/s_1052003)
+- belonging to Christ [1Co10:2](https://www.blueletterbible.org/niv/1co/10/2/s_1072002), [Gal3:27](https://www.blueletterbible.org/niv/gal/3/27/s_1094027)
+- the sign of the covenant [Ge17:11](https://www.blueletterbible.org/niv/gen/17/11/s_17011), [Col2:11-12](https://www.blueletterbible.org/niv/col/2/11/s_1109011)
+- a seal of the righteousness [Rm4:11](https://www.blueletterbible.org/niv/rom/4/11/s_1050011)
 
-### 5. the method
-- Mt3:16
-- Ac8:36
+### 5. The method
+- [Mt3:16](https://www.blueletterbible.org/niv/mat/3/16/s_932016)
+- [Ac8:36](https://www.blueletterbible.org/niv/act/8/36/s_1026036)
 
-### baptism necessary for salvation?
-- Mk16:16
-- Ac2:38
-- Ac22:16
-- Mk9:1
-- Rev20:4-5
-- Jn12:50
-- Jn14:24
-- Jn17:11
-- Rev22:18-19
+#### Is baptism necessary for ***salvation***?
+- [Mk16:16](https://www.blueletterbible.org/niv/mar/16/16/s_973016)
+- [Ac2:38](https://www.blueletterbible.org/niv/act/2/38/s_1020038)
+- [Ac22:16](https://www.blueletterbible.org/niv/act/22/16/s_1040016)
+- [Mk9:1](https://www.blueletterbible.org/niv/mar/9/1/s_966001)
+- [Rev20:4-5](https://www.blueletterbible.org/niv/rev/20/4/s_1187004)
+- [Jn12:50](https://www.blueletterbible.org/niv/jhn/12/50/s_1009050)
+- [Jn14:24](https://www.blueletterbible.org/niv/jhn/14/24/s_1011024)
+- [Jn17:11](https://www.blueletterbible.org/niv/jhn/17/11/s_1014011)
+- [Rev22:18-19](https://www.blueletterbible.org/niv/rev/22/18/s_1189018)
 
-## Communion (1Co11:23-26)
-partaking in the Lord's table supper
+### Communion 
+- [1Co11:23-26](https://www.blueletterbible.org/niv/1co/11/23/s_1073023)
+Partaking in the Lord's table supper
 
-### 1. the content
+1. The content <br>
 bread and water (wine)
-- Ex17:6
-- Mt26:27
-- Jn6:55
+    - [Ex17:6](https://www.blueletterbible.org/niv/exo/17/6/s_67006)
+    - [Mt26:27](https://www.blueletterbible.org/niv/mat/26/27/s_955027)
+    - [Jn6:55](https://www.blueletterbible.org/niv/jhn/6/55/s_1003055)
 
-### 2. significance
-- communion is life (Jn6:54)
-- purpose: remembrance (1Co11:24-25)
-- definition: sharing Christ
-- communion is a communal event
+2. Significance
+    - communion is ***life*** [Jn6:54](https://www.blueletterbible.org/niv/jhn/6/54/s_1003054)
+    - purpose: ***remembrance*** [1Co11:24-25](https://www.blueletterbible.org/niv/1co/11/24/s_1073024)
+    - definition: ***sharing Christ***
+
+#### Communion is a ***communal*** event
+- [Ac20:7](https://www.blueletterbible.org/niv/act/20/7/s_1038007)
+- [1Co11:33](https://www.blueletterbible.org/niv/1co/11/33/s_1073033)
 
 ---
 # Lec 39

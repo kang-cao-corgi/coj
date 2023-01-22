@@ -3998,12 +3998,12 @@ bread and water (wine)
 
 ---
 # Lec 39
-## III. feasts mediate the gospel
-- Gal4:10
-- Col2:16-17
+## III. ***Feasts*** mediate the gospel
+- [Gal4:10](https://www.blueletterbible.org/niv/gal/4/10/s_1095010)
+- [Col2:16-17](https://www.blueletterbible.org/niv/col/2/16/s_1109016)
 
-### the feasts in OT
-- passover
+### The feasts in the Old Testment
+- the passover
 - the feast of unleavened bread
 - the feast of ingathering
 - the feast of Wheat Harvest
@@ -4016,106 +4016,112 @@ bread and water (wine)
 - Good Fridat
 - resurection day
 - the Pentecost
+- the Lord's Day
 
-### the historicity and the meaning of feasts
+### The historicity and the meaning of feasts
 
-1. feasts are# relevant to spiritual growth (Ecc3:1-5)
-1. the significance: the promised life does not change
-1. the definition: makes new (for remembrance
-1. the power of faith is remembering the past
+The pole is the feast(temple), the donkey is Israel which is tied to the pole.
+
+1. feasts are relevant to spiritual growth [Ecc3:1-5](https://www.blueletterbible.org/niv/ecc/3/1/s_662001)
+1. the significance: the promise life does not change
+1. the definition: makes new (for remembrance)
+    - the power of faith is remembering the past
 1. the purpose: the solidarity of
-Israel and is separation from gentiles
-### types of feasts:
-1. passover
-1. the feast of Unleanvened Bread (Ex12:17-18, 39)
-1. the feast of weeks (Shavuot)
-    Other names of the Feast of Weeks
-    - the Feast of Ingathering
-    - Ex34;22
-    - Dt16:8-10
-    - Lev23:10
-    Two days of giving first fruits
-    - the day the sheaf of he first batlet grain harvest was given
-    - the day te sheaf of the first wheat grain was given (5-th day after giving the first barley grain)
-1. feast of Trumpets (Rosh hashanah Lev23:24)
-1. the day of Atonement (Yom Kippus Lev25:9-12)
+Israel and its separation from gentiles
+1. types of feasts:
+    1. passover - between the 3rd and 4th month [Lev23:5-6](https://www.blueletterbible.org/niv/lev/23/5/s_113005)
+    1. the feast of Unleanvened Bread [Ex12:17-18](https://www.blueletterbible.org/niv/exo/12/17/s_62017), [39](https://www.blueletterbible.org/niv/exo/12/39/s_62039)
+    1. the feast of weeks (Shavuot) - between the 5th and 6th month
+        Other names of the Feast of Weeks
+        - "the Feast of Ingathering"
+        - "The Feast of Wheat Harvest"
+        - [Ex34:22](https://www.blueletterbible.org/niv/exo/34/22/s_84022)
+        - [Dt16:8-10](https://www.blueletterbible.org/niv/deu/16/8/s_169008)
+        - [Lev23:10](https://www.blueletterbible.org/niv/lev/23/10/s_113010)
+        - [Lev23:15-16](https://www.blueletterbible.org/niv/lev/23/15/s_113015)
+        - Two days of giving first fruits
+        - the day the sheaf of he first barley grain harvest was given
+        - the day te sheaf of the first wheat grain was given (50th day after giving the first barley grain) (at 50th days after Jesus' resurrection, the day is the Pentecost &rarr; 1st wheat grain &rarr; the Holy Spirit)
+    1. feast of Trumpets (Rosh Hashanah [Lev23:24](https://www.blueletterbible.org/niv/lev/23/24/s_113024) - the 1st day of the 7th month (9th + 10th)
+    1. the day of Atonement (Yom Kippus [Lev25:9-12](https://www.blueletterbible.org/niv/lev/25/9/s_115009) - the 10th day of the 7th month
 
     |sin offering   |the day of atonemnet  |
     |---|---|
     |each year   | once a year  |
     |an ordinary sacrifice that everyone gave|the savrifice given as a nation|
 
-1. the feast of Tabernacles (Sukkot Lev23:33-44)
-1. the feast of Ingathering (Lev23:16)
-1. the Sabbath (Shabbat Ex20:8-11) keep it holy
+1. the feast of Tabernacles (Sukkot) [Lev23:33-44](https://www.blueletterbible.org/niv/lev/23/33/s_113033) - the 15th day of the 7th month
+1. the feast of Ingathering [Lev23:16](https://www.blueletterbible.org/niv/lev/23/16/s_113016)
+1. the Sabbath (Shabbat) [Ex20:8-11](https://www.blueletterbible.org/niv/exo/20/8/s_70008) keep it holy
 
-### the essence of the santuary is holiness
-- He9:10
-- He10:3-4, 14
+### The essence of the santuary is holiness
+- [He9:10](https://www.blueletterbible.org/niv/heb/9/10/s_1142010)
+- [He10:3-4](https://www.blueletterbible.org/niv/heb/10/3/s_1143003), [14](https://www.blueletterbible.org/niv/heb/10/14/s_1143014)
 
-### the Lord's day
-Jesus is the Lord of Sabbath
-- Mk2:28
-- He4:9-11
+### The Lord's day
+to remember the redeemer God <br>
+Yeshua is the Lord of Sabbath
+- [Mk2:28](https://www.blueletterbible.org/niv/mar/2/28/s_959028)
+- [He4:9-11](https://www.blueletterbible.org/niv/heb/4/9/s_1137009)
 
-## IV. Blood
+## IV. ***Blood*** mediate the godpel
 from Genesis to Revelation the theme of the entire Bible is ***blood***
-- Able (Ge4:4, He11:4)
-- Moses (Ex4:24-26)
-- The passover (Ex12:13)
-- The first covenant (Ex24:8, He9:18)
-- The new covenant (Lk22:20)
+- Able [Ge4:4](https://www.blueletterbible.org/niv/gen/4/4/s_4004), [He11:4](https://www.blueletterbible.org/niv/heb/11/4/s_1144004)
+- Moses [Ex4:24-26](https://www.blueletterbible.org/niv/exo/4/24/s_54024)
+- The passover [Ex12:13](https://www.blueletterbible.org/niv/exo/12/13/s_62013)
+- The first covenant [Ex24:8](https://www.blueletterbible.org/niv/exo/24/8/s_74008), [He9:18-22](https://www.blueletterbible.org/niv/heb/9/18/s_1142018)
+- The new covenant [Lk22:20](https://www.blueletterbible.org/niv/luk/22/20/s_995020)
 
 |the first covenant   |the new covenant   |
 |---|---|
-|the blood of calves (1 y-o)   |  the blood of JX (eternal) |
+|the blood of calves (1 year-old)   |  the blood of Jesus (eternal) |
 |once every year|once for all|
 
-the book of Hebrews illustrates the completion of the heart of the OT
-- He1 - difference between JX and angels
-- He2 - men and angels
-- He3-4 - the law and the gospel
-- He9 - regulations for worshipping God
-- He10:19 - entering the sanctuary by the blood
-- He10:23 - gather around the blood
-- He10:29 - denying HS who came to testify the blood is curse
+the book of *Hebrews* illustrates the completion of the heart of the Old Testment
+- [He1](https://www.blueletterbible.org/niv/heb/1/1/s_1134001) - the difference between JX and angels
+- [He2](https://www.blueletterbible.org/niv/heb/2/1/s_1135001) - the difference between men and angels
+- [He3](https://www.blueletterbible.org/niv/heb/3/1/s_1136001), [4](https://www.blueletterbible.org/niv/heb/4/1/s_1137001) - the Law and the Gospel
+- [He9](https://www.blueletterbible.org/niv/heb/9/1/s_1142001) - the regulations for worship
+- [He10:19](https://www.blueletterbible.org/niv/heb/10/19/s_1143019) - entering the sanctuary by the blood
+- [He10:23](https://www.blueletterbible.org/niv/heb/10/23/s_1143023) - gather around the blood
+- [He10:29](https://www.blueletterbible.org/niv/heb/10/29/s_1143029) - denying HS who came to testify the blood is curse
 
-1. the life of flesh is in its blood - shedding it is surrendering life (Lev17:11)
+1. the life of flesh is in its blood - shedding it is surrendering life [Lev17:11](https://www.blueletterbible.org/niv/lev/17/11/s_107011)
 1. Offering blood at the altar is returning life to God
-1. The blood of JX is the life that men must drink (Mt26:28; Jn5:56)
-1. Man without the Spirit of Christ is not a man of God (Rm8:9)
+1. The blood of Jesus is the life that men must drink [Mt26:28](https://www.blueletterbible.org/niv/mat/26/28/s_955028); [Jn6:56](https://www.blueletterbible.org/niv/jhn/6/56/s_1003056)
+1. Man without the Spirit of Christ is not a man of God [Rm8:9](https://www.blueletterbible.org/niv/rom/8/9/s_1054009)
 
-### 1. the covenant of blood
-1. blood is for God to see (Ex12:13)
-1. the blood of JX is the power of God to forget (Is1:18, He8:12, Jer31:34)
-    - the ***first*** covenant is the conscience of God ***remember*** sin (He10:3)
-    - The ***new*** covenant is the power of God to forget sin (He8:12-13)
+### 1. The covenant of blood
+1. blood is for God to see [Ex12:13](https://www.blueletterbible.org/niv/exo/12/13/s_62013)
+1. the blood of JX is the power of God to forget [Is1:18](https://www.blueletterbible.org/niv/isa/1/18/s_680018), [He8:12](https://www.blueletterbible.org/niv/heb/8/12/s_1141012), [Jer31:34](https://www.blueletterbible.org/niv/jer/31/34/s_776034)
+    - the ***first*** covenant is the conscience of God ***remember*** sin [He10:3](https://www.blueletterbible.org/niv/heb/10/3/s_1143003)
+    - The ***new*** covenant is the power of God to ***forget*** sin [He8:12-13](https://www.blueletterbible.org/niv/heb/8/12/s_1141012)
     <br>
 
     Grace is God granting Himself
 
-God is more interested in blood than sin
-- Eze33:11
-- Zec1:3
+#### God is more interested in blood than sin
+- [Eze33:11](https://www.blueletterbible.org/niv/eze/33/11/s_835011)
+- [Zec1:3](https://www.blueletterbible.org/niv/zec/1/3/s_912003)
 
-### 2. the works of blood
+### 2. The works of blood
 1. blood's work in the law
     - condems
-        - murderer (Ge4:11, Eze33:8)
-        - Those who do not give blood to the Lord God (Lev7:3-4)
-        - those who curse their parents etc. (Lev20:9-16)
-    - cleanses (He9:22)
-    - returnsds to God (Ge9:5, He9:12, 10:19)
+        - murderer [Ge4:11](https://www.blueletterbible.org/niv/gen/4/11/s_4011), [Eze33:8](https://www.blueletterbible.org/niv/eze/33/8/s_835008)
+        - Those who do not give blood to the Lord God [Lev7:3-4](https://www.blueletterbible.org/niv/lev/7/3/s_97003)
+        - those who curse their parents etc. [Lev20:9-16](https://www.blueletterbible.org/niv/lev/20/9/s_110009)
+    - cleanses [He9:22](https://www.blueletterbible.org/niv/heb/9/22/s_1142022)
+    - returns to God [Ge9:5](https://www.blueletterbible.org/niv/gen/9/5/s_9005), [He9:12](https://www.blueletterbible.org/niv/heb/9/12/s_1142012), [10:19](https://www.blueletterbible.org/niv/heb/10/19/s_1143019)
 1. blood's work in the gospel
-- the covenant of blood (Mt26:28)
-- the blood of JX is the new covenant (Lk22:20)
-- the Church was bought by the blood of JX (Ac20:28, 1Pe1:18)
-- life in the blood of JX
-- the blood of JX redeems (He9:12, Eph1:7)
-- the blood of JX sanctifies the soul (He13:12, Rev7:14)
-- the blood of JX testifies (He12:24, 1Jn5:708, Rev12:11)
+    - the covenant of blood [Mt26:28](https://www.blueletterbible.org/niv/mat/26/28/s_955028)
+    - the blood of JX is the new covenant [Lk22:20](https://www.blueletterbible.org/niv/luk/22/20/s_995020)
+    - the Church was bought by the blood of JX (Ac20:28, 1Pe1:18)
+    - life in the blood of JX [Lev17:11](https://www.blueletterbible.org/niv/lev/17/11/s_107011) [Jn6:54](https://www.blueletterbible.org/niv/jhn/6/54/s_1003054)
+    - the blood of JX redeems [He9:12](https://www.blueletterbible.org/niv/heb/9/12/s_1142012), [Eph1:7](https://www.blueletterbible.org/niv/eph/1/7/s_1098007)
+    - the blood of JX sanctifies the soul [He13:12](https://www.blueletterbible.org/niv/heb/13/12/s_1146012), [Rev7:14](https://www.blueletterbible.org/niv/rev/7/14/s_1174014)
+    - the blood of JX testifies [He12:24](https://www.blueletterbible.org/niv/heb/12/24/s_1145024), [1Jn5:7-8](https://www.blueletterbible.org/niv/1jo/5/7/s_1164007), [Rev12:11](https://www.blueletterbible.org/niv/rev/12/11/s_1179011)
 
-redeem -> sanctifies -> life
+The blood of Christ &rarr; redeem &rarr; sanctifies/cleanses &rarr; life
 
 ---
  # Lec 40

@@ -4124,95 +4124,101 @@ the book of *Hebrews* illustrates the completion of the heart of the Old Testmen
 The blood of Christ &rarr; redeem &rarr; sanctifies/cleanses &rarr; life
 
 ---
- # Lec 40
- 1. God mediating the gospel through characters
-    1. God does not deliver the gospel through angels1
-    1. men are God's fellow workers, partners - 1Co3:5
-    1. God used the prophets - Jn3:30, Mt17:5
-1. the history of characters
-    1. the genealogy of JX is an anomaly - Mt1
-    1. the characters for whom God has great expectation
-    1. characters and the community
-    1. preachers (who sermonize) are the best mediators of the gospel
-        - 1Jn1:1-3
-        - Mt10:18-20
+## Lec 40
+## V. God mediating the gospel through ***characters***
+1. God does <u>not</u> deliver the Gospel through angels
+1. Men are God's fellow workers, partners - [1Co3:5](https://www.blueletterbible.org/niv/1co/3/5/s_1065005)
+1. God used the prophets - [Jn3:30](https://www.blueletterbible.org/niv/jhn/3/30/s_1000030), [Mt17:5](https://www.blueletterbible.org/niv/mat/17/5/s_946005)
 
-
-5. Servants of God
-    1. servants (individuals) as the mediators of the gospel
-        - Ge26:64
-        - Ex14:31
-        - 2Sa:18
-        - Jer27:6
-        - Ac4:27, 30
-    1. "servants" in human relationships
-    <br>
-        a servant:
-        1. by age: little boy  (Mt18:3, Lk18:17)
-        1. by blood relation: son (Mt8:6)
-        1. by social relation: slave, low class (Lk1:38)
-    1.
-        1. men are God's servants (Ac4:25, Th1:1, Jas1:1)
-        1. Christ' relationship with God (Is42:1, Mt12:18, Ac2:34-35, 3:13, 4:27)
-        1. Israel is God's servant (1Ki8:23, Ps69:36, 102:14)
-
+### the history of characters
+1. The genealogy of Jesus is an anomaly - [Mt1](https://www.blueletterbible.org/niv/mat/1/1/s_930001)
+1. The characters for whom God has great expectation
+1. Characters and the community
+    - Adam - All men [Rm5:12](https://www.blueletterbible.org/niv/rom/5/12/s_1051012)
+    - Abraham = him + his descendents
+    - Jacob = Israel = 12 tribes
+    - The Church = the body of Christ = members
+1. Preachers (who sermonize) are the best mediators of the gospel
+    - [1Jn1:1-3](https://www.blueletterbible.org/niv/1jo/1/1/s_1160001)
+    - [Mt10:18-20](https://www.blueletterbible.org/niv/mat/10/18/s_939018)
+1. The servants of God
+    1. servants as the mediators of the gospel (individual)
+        - [Ge26:24](https://www.blueletterbible.org/niv/gen/26/24/s_26024)
+        - [Ex14:31](https://www.blueletterbible.org/niv/exo/14/31/s_64031)
+        - [2Sa3:18](https://www.blueletterbible.org/niv/2sa/3/18/s_270018)
+        - [Jer27:6](https://www.blueletterbible.org/niv/jer/27/6/s_772006)
+        - [Ac4:27](https://www.blueletterbible.org/niv/act/4/27/s_1022027), [30](https://www.blueletterbible.org/niv/act/4/30/s_1022030)
+    1. "servants" in human relationships <br> A servant:
+        1. by age: little boy  [Mt18:3](https://www.blueletterbible.org/niv/mat/18/3/s_947003), [Lk18:17](https://www.blueletterbible.org/niv/luk/18/17/s_991017)
+        1. by blood relation: son [Mt8:6](https://www.blueletterbible.org/niv/mat/8/6/s_937006)
+        1. by social relation: slave, low class [Lk1:38](https://www.blueletterbible.org/niv/luk/1/38/s_974038)
+    1. servants in the relationship with God
+        1. men are God's servants [Ac4:25](https://www.blueletterbible.org/niv/act/4/25/s_1022025), [Tit1:1](https://www.blueletterbible.org/niv/tit/1/1/s_1130001), [Jas1:1](https://www.blueletterbible.org/niv/jas/1/1/s_1147001)
+        1. Christ' relationship with God [Is42:1](https://www.blueletterbible.org/niv/isa/42/1/s_721001), [Mt12:18](https://www.blueletterbible.org/niv/mat/12/18/s_941018), [Ac2:34-35](https://www.blueletterbible.org/niv/act/2/34/s_1020034), [3:13](https://www.blueletterbible.org/niv/act/3/13/s_1021013), [4:27](https://www.blueletterbible.org/niv/act/4/27/s_1022027)
+        1. Israel is God's servant [1Ki8:23](https://www.blueletterbible.org/niv/1ki/8/23/s_299023), [Ps69:36](https://www.blueletterbible.org/niv/psa/69/36/s_547036), [102:14](https://www.blueletterbible.org/niv/psa/102/14/s_580014)
     1. Israel is a servant of suffering
-    1. JX is a servant of the greatest suffering (Is53:5, Mt10:25)
-    1. church is a servant of suffering - Col1:24
+    1. Jesus is a servant of the greatest suffering [Is53:5](https://www.blueletterbible.org/niv/isa/53/5/s_732005), [Mt10:25](https://www.blueletterbible.org/niv/mat/10/25/s_939025)
+    1. church is a servant of suffering [Col1:24](https://www.blueletterbible.org/niv/col/1/24/s_1108024)
 
-    who is a servant(preacher)?
-    - knows that he belongs to Christ (Rm14:7-9)
-    - in charge of Christ's work (Rm1:1, 1Co1:1, 2Pe1:1)
-    - knows that testifying the gospel is life (Ac20:23-24)
-    - considers the suffering with Christ as joy (He11:24-25)
-    - not ashamed (Php1:20-22)
-    - works for the profit of the Master (Mt25:14-30)
-    - has given up to be praised (Lk17:7-10)
+#### Who is a servant(preacher)?
+- knows that he belongs to Christ [Rm14:7-9](https://www.blueletterbible.org/niv/rom/14/7/s_1060007)
+- in charge of Christ's work Rm1:1, [1Co1:1](https://www.blueletterbible.org/niv/1co/1/1/s_1063001), [2Pe1:1](https://www.blueletterbible.org/niv/2pe/1/1/s_1157001)
+- knows that testifying the gospel is ***life*** [Ac20:23-24](https://www.blueletterbible.org/niv/act/20/23/s_1038023)
+- considers the suffering with Christ as joy [He11:24-25](https://www.blueletterbible.org/niv/heb/11/24/s_1144024)
+- ***not ashamed*** [Php1:20-22](https://www.blueletterbible.org/niv/phl/1/20/s_1104020)
+- works for the profit of the Master [Mt25:14-30](https://www.blueletterbible.org/niv/mat/25/14/s_954014)
+- has given up to be praised [Lk17:7-10](https://www.blueletterbible.org/niv/luk/17/7/s_990007)
 
-## IV. Healing mediates the gospel
+## VI. ***Healing*** mediates the gospel
 1. healing is God's character
-- Ex15:26
-- Mal4:2
-- Mt8:3
-- Is53:5
-- 1Pe2:24
+- [Ex15:26](https://www.blueletterbible.org/niv/exo/15/26/s_65026)
+- [Mal4:2](https://www.blueletterbible.org/niv/mal/4/2/s_929002)
+- [Mt8:3](https://www.blueletterbible.org/niv/mat/8/3/s_937003)
+- [Is53:5](https://www.blueletterbible.org/niv/isa/53/5/s_732005)
+- [1Pe2:24](https://www.blueletterbible.org/niv/1pe/2/24/s_1153024)
 
-"the sick = sinner" (Jn9:1-7)
-the ground = dust = man's flesh
-- JX is the light of ***life*** (Jn8:12)
-- Healing is the public work, the visible ***redemption*** of JX (Ps147:2-3, Mt9:2-7)
-<br>
+The sick = sinner [Jn9:1-7](https://www.blueletterbible.org/niv/jhn/9/17/s_1006017) <br>
+The ground = dust = man's flesh (cursed [Ge3:17](https://www.blueletterbible.org/niv/gen/3/17/s_3017))
+- JX is ***the light of life*** [Jn8:12](https://www.blueletterbible.org/niv/jhn/8/12/s_1005012)
+- Healing is the public work, the visible ***redemption*** of Jesus [Ps147:2-3](https://www.blueletterbible.org/niv/psa/147/2/s_625002), [Mt9:2-7](https://www.blueletterbible.org/niv/mat/9/2/s_938002)
+
 JX took up sin and disease on to His body; Healing is one of the purposes of His incarnation
-- Mt8:17
-- Jn14:12
-- Mk16:20
+- [Mt8:17](https://www.blueletterbible.org/niv/mat/8/17/s_937017)
+- [Jn14:12](https://www.blueletterbible.org/niv/jhn/14/12/s_1011012)
+- [Mk16:20](https://www.blueletterbible.org/niv/mar/16/20/s_973020)
+- [Mt10:7-8](https://www.blueletterbible.org/niv/mat/10/7/s_939007)
 
-the public work of JX is the work He did in his flesh - Lk13:32
-1. God curses with hdisease the sin of breaking His word
-- Nu21:6, 25:1-9
-- Ps106:28-29
-- 2Sa24:10-17
-"the sick = sinner"
+#### The public work of Jesus is the work He did in His flesh 
+- [Lk13:32](https://www.blueletterbible.org/niv/luk/13/32/s_986032)
+1. God curses with disease the sin of breaking the word
+    - [Nu21:6](https://www.blueletterbible.org/niv/num/21/6/s_138006), [25:1-9](https://www.blueletterbible.org/niv/num/25/1/s_142001)
+    - [Ps106:28-29](https://www.blueletterbible.org/niv/psa/106/28/s_584028)
+    - [2Sa24:10-17](https://www.blueletterbible.org/niv/2sa/24/10/s_291010)
 
-Healing is a sign of the forgiveness of sin
-- Ps103:3
-- Mt9:1-8
-2. the healing of JX is the principle of removing the wrathful hand of God (Ps47:3
-)
-3. Christ's self-manifestation is confirmed by healing
-- Mt11:2-5
-- Mk1:23-27
-4. the word of God accompanies healing
-- Ps107:20
-- Mt8:17
-- Mt10:7-8
-- Mk16:20
-5. healing is the absolute work of JX
-- Mt8:3
-- Lk5:15
-- Lk8:43-44
-- Jn11:6-13, 47-48, 53
-- Ac10:38
+    "the sick = sinner"
+
+    #### Healing is a sign of the forgiveness of sin
+    - [Ps103:3](https://www.blueletterbible.org/niv/psa/103/3/s_581003)
+    - [Mt9:1-8](https://www.blueletterbible.org/niv/mat/9/1/s_938001)
+1. The healing of Jesus is the principle of removing the wrathful hand of God [Ps147:2-3](https://www.blueletterbible.org/niv/psa/147/2/s_625002)
+1. The Christ's self-manifestation is confirmed by healing
+    - [Mt11:2-5](https://www.blueletterbible.org/niv/mat/11/2/s_940002)
+    - [Mk1:23-27](https://www.blueletterbible.org/niv/mar/1/23/s_958023)
+1. The word of God accompanies healing
+    - [Ps107:20](https://www.blueletterbible.org/niv/psa/107/20/s_585020)
+    - [Mt8:17](https://www.blueletterbible.org/niv/mat/8/17/s_937017)
+    - [Jn14:12](https://www.blueletterbible.org/niv/jhn/14/12/s_1011012)
+    - [Mk16:20](https://www.blueletterbible.org/niv/mar/16/20/s_973020)
+1. Healing is the absolute work of Jesus
+    - [Mt8:3](https://www.blueletterbible.org/niv/mat/8/3/s_937003)
+    - [Lk5:15](https://www.blueletterbible.org/niv/luk/5/15/s_978015)
+    - [Lk8:43-44](https://www.blueletterbible.org/niv/luk/8/43/s_981043)
+    - [Jn11:6-13](https://www.blueletterbible.org/niv/jhn/11/6/s_1008006), [47-48](https://www.blueletterbible.org/niv/jhn/11/47/s_1008047), [50](https://www.blueletterbible.org/niv/jhn/11/50/s_1008050)
+    - [Ac10:38](https://www.blueletterbible.org/niv/act/10/38/s_1028038)
+
+
+
+
 
 ### 2. Healing is God's power
 - Jehovah Rapha (Ex15:26)

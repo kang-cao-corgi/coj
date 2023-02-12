@@ -4216,121 +4216,129 @@ JX took up sin and disease on to His body; Healing is one of the purposes of His
     - [Jn11:6-13](https://www.blueletterbible.org/niv/jhn/11/6/s_1008006), [47-48](https://www.blueletterbible.org/niv/jhn/11/47/s_1008047), [50](https://www.blueletterbible.org/niv/jhn/11/50/s_1008050)
     - [Ac10:38](https://www.blueletterbible.org/niv/act/10/38/s_1028038)
 
-
-
-
-
 ### 2. Healing is God's power
-- Jehovah Rapha (Ex15:26)
-- JX (Ac10:38)
-- The disciples (Mt10:1)
-- The apostles (2Co12:12)
-- Believers (Mk16:17-20)
+- Jehovah Rapha [Ex15:26](https://www.blueletterbible.org/niv/exo/15/26/s_65026)
+- JX [Ac10:38](https://www.blueletterbible.org/niv/act/10/38/s_1028038)
+- The disciples [Mt10:1](https://www.blueletterbible.org/niv/mat/10/1/s_939001)
+- The apostles [2Co12:12](https://www.blueletterbible.org/niv/2co/12/12/s_1090012)
+- Believers [Mk16:17-20](https://www.blueletterbible.org/niv/mar/16/17/s_973017)
 
 ### 3. Healing is encountering God
-- Mk10:44-52
-- Jn5:2-9
-- Jn9:1-32
-- Lk8:27-33
+- [Mk10:44-52](https://www.blueletterbible.org/niv/mar/10/44/s_967044)
+- [Jn5:2-9](https://www.blueletterbible.org/niv/jhn/5/2/s_1002002)
+- [Jn9:1-32](https://www.blueletterbible.org/niv/jhn/9/1/s_1006001)
+- [Lk8:27-33](https://www.blueletterbible.org/niv/luk/8/27/s_981027)
 
-not seeking God's healing is curse
-- 2Ki1:2-4
-- 2Ch:16:12-13
+#### Not seeking God's healing is curse
+- [2Ki1:2-4](https://www.blueletterbible.org/niv/2ki/1/2/s_314002)
+- [2Ch:16:12-13](https://www.blueletterbible.org/niv/2ch/16/12/s_383012)
 
-those who return to God encounter healing
-- Is1:18, 25
+#### Those who return to God encounter healing
+- [Is1:18](https://www.blueletterbible.org/niv/isa/1/18/s_680018), [25](https://www.blueletterbible.org/niv/isa/1/25/s_680025)
 
 ### 4. healing is a portion of salvation
-- Is53:5
-- Mt8:17
-- 1Pe2:24
+- [Is53:5](https://www.blueletterbible.org/niv/isa/53/5/s_732005)
+- [Mt8:17](https://www.blueletterbible.org/niv/mat/8/17/s_937017)
+- [1Pe2:24](https://www.blueletterbible.org/niv/1pe/2/24/s_1153024)
 
-the words of JX are spiritual: the life supplied to the spirit
-- Jn6:63
+#### The words of JX are spiritual: the life supplied to the spirit
+- [Jn6:63](https://www.blueletterbible.org/niv/jhn/6/63/s_1003063)
+- [Ac4:29-30](https://www.blueletterbible.org/niv/act/4/29/s_1022029)
 
-## VII Spiritual inspiration mediates the gospel
-- 2Pe1:21
+## VII. ***Spiritual inspiration*** mediates the gospel
+- [2Pe1:21](https://www.blueletterbible.org/niv/2pe/1/21/s_1157021)
+- [Jn3:8](https://www.blueletterbible.org/niv/jhn/3/8/s_1000008)
 
-the writing expression varies by spiritual inspiration
-"declares the lord" (is66:2) - direct
-"the word of the load came to me" (Jer1:4)
-"I looked" (Eze10:1) prophetic
+the writing expression varies by spiritual inspiration:<br>
+"declares the lord" [is66:2](https://www.blueletterbible.org/niv/isa/66/2/s_745002) - direct <br>
+"the word of the load came to me" [Jer1:4](https://www.blueletterbible.org/niv/jer/1/4/s_746004) - speaker <br>
+"I looked" [Eze10:1](https://www.blueletterbible.org/niv/eze/10/1/s_812001) - prophetic
 
-- Mt13:14-15
-- Is6:9-10
+- [Mt13:14-15](https://www.blueletterbible.org/niv/mat/13/14/s_942014)
+- [Is6:9-10](https://www.blueletterbible.org/niv/isa/6/9/s_685009)
 
-saints must have greater inspiration than the Israelites
-- Adam (ge3:9-10)
-- Moses (Ex3:4)
-- Samuel (1Sa3:10)
-- John the Baptist (Jn1:33-34)
-- Peter, John (Mt17:5)
-- Paul (Ac9:4)
+#### Saints must have ***greater*** inspiration than the Israelites
+- Adam [Ge3:9-10](https://www.blueletterbible.org/niv/gen/3/9/s_3009)
+- Moses [Ex3:4](https://www.blueletterbible.org/niv/exo/3/4/s_53004)
+- Samuel [1Sa3:10](https://www.blueletterbible.org/niv/1sa/3/10/s_239010)
+- John the Baptist [Jn1:33-34](https://www.blueletterbible.org/niv/jhn/1/33/s_998033)
+- Peter, John [Mt17:5](https://www.blueletterbible.org/niv/mat/17/5/s_946005)
+- Paul [Ac9:4](https://www.blueletterbible.org/niv/act/9/4/s_1027004)
 
-The word of the Lord is declared by ***spiritual inspiration*** and enters the spirit
-- Ps51:7, 10-11
+The word is declared ny soiritual i***spiritual inspiration*** and enters the spirit
+- [Ps51:7](https://www.blueletterbible.org/niv/psa/51/7/s_529007), [10-11](https://www.blueletterbible.org/niv/psa/51/10/s_529010)
 
-how do we acquire spiritual inspiration?
+#### How do we acquire spiritual inspiration?
 
-- 2Ki2:5-14
+- [2Ki2:5-14](https://www.blueletterbible.org/niv/2ki/2/5/s_315005)
 
-spiritual inpiration = surpass
-- Mt6:6
+spiritual inpiration &harr; surpass
+- [Mt6:6](https://www.blueletterbible.org/niv/mat/6/6/s_935006)
 
-humility is spiritual qualification
+#### ***Humility*** is a spiritual qualification
 
-spiritual inspiration is the power to ***submit oneself***
-- Jas2:18-20
-- Is57:15
+#### Spiritual inspiration is the power to ***submit oneself***
+- [Jas2:18-20](https://www.blueletterbible.org/niv/jas/2/18/s_1148018)
+- [Is57:15](https://www.blueletterbible.org/niv/isa/57/15/s_736015)
 
 1. All God's work is spiritual
-    - Jn4:24
+    - [Jn4:24](https://www.blueletterbible.org/niv/jhn/4/24/s_1001024)
 1. All God's power is spiritual
-    - Ac10:38
-    - Job64
+    - [Ac10:38](https://www.blueletterbible.org/niv/act/10/38/s_1028038)
+    - [Job6:4](https://www.blueletterbible.org/niv/job/6/4/s_442004)
+    - [Eze36:26](https://www.blueletterbible.org/niv/eze/36/26/s_838026)
+    - [Ps51:10](https://www.blueletterbible.org/niv/psa/51/10/s_529010)
 1. the created Adam is a spiritual being
 1. the spirit gives life
-    - Jn6:63
+    - [Jn6:63](https://www.blueletterbible.org/niv/jhn/6/63/s_1003063)
     JX and the HS
-    - conceived by HS (Mt1:18)
-    - Received power by HS (Mt3:16)
-    - Worked by HS (Mt12:28)
-    -
-    -
-1. servants who preach must do it spiritually
-    - 1Co2:15
-    - Mt10:18-20
+    - Conceived by HS [Mt1:18](https://www.blueletterbible.org/niv/mat/1/18/s_930018)
+    - Received power by HS [Mt3:16](https://www.blueletterbible.org/niv/mat/3/16/s_932016)
+    - Worked by HS [Mt12:28](https://www.blueletterbible.org/niv/mat/12/28/s_941028)
+    - Led by the HS [Mt4:1](https://www.blueletterbible.org/niv/mat/4/1/s_933001)
+    - Raised by the HS [Rm8:11](https://www.blueletterbible.org/niv/rom/8/11/s_1054011)
+    - Sent the HS [Jn14:16](https://www.blueletterbible.org/niv/jhn/14/16/s_1011016)
+1. servants must preach spiritually
+    - [1Co2:15](https://www.blueletterbible.org/niv/1co/2/15/s_1064015)
+    - [Mt10:18-20](https://www.blueletterbible.org/niv/mat/10/18/s_939018)
 1. the sevants whom God uses are filled with the spirit
-    - Ac2:17
-    - Ac6:3
-    - Ac11:24
-    - Ac13:2-4
+    - [Ac2:17](https://www.blueletterbible.org/niv/act/2/17/s_1020017)
+    - [Ac6:3](https://www.blueletterbible.org/niv/act/6/3/s_1024003)
+    - [Ac11:24](https://www.blueletterbible.org/niv/act/11/24/s_1029024)
+    - [Ac13:2-4](https://www.blueletterbible.org/niv/act/13/2/s_1031002)
 1. as the soul gets along well, all else goes well
-    - 3Jn1:2
+    - [3Jn1:2](https://www.blueletterbible.org/niv/3jo/1/2/s_1166002)
 1. God judges and rebukes with the spirit
-    - Is4:4
+    - [Is4:4](https://www.blueletterbible.org/niv/isa/4/4/s_683004)
+    - [Jn16:8](https://www.blueletterbible.org/niv/jhn/16/8/s_1013008)
 1. pray in the spirit
-    - Eph6:18
-    - Jude1:20
-    - Rm8:26
-    - Ac2:4
+    - [Eph6:18](https://www.blueletterbible.org/niv/eph/6/18/s_1103018)
+    - [Jude1:20](https://www.blueletterbible.org/niv/jde/1/20/s_1167020)
+    - [Rm8:26](https://www.blueletterbible.org/niv/rom/8/26/s_1054026)
+    - [Ac2:4](https://www.blueletterbible.org/niv/act/2/4/s_1020004)
+    - [2Co14:14-15]()
 1. the church must be filled with the spirit
-    - 1Co3:16
-    the church must follow the model of the early chuch
-    - the church in Jrusalem (Ac2:14)
-    - the church in Samaria (Ac9:31)
-    - the church in Antioch (Ac11:19-21, 13:1-3)
-    - The church in Ephesus (Ac19:1-7)
-    - Ac9:31
-    - Rev1:20
+    - [1Co3:16](https://www.blueletterbible.org/niv/1co/3/16/s_1065016)
+    #### The church must follow the model of the early chuch
+    - the church in Jrusalem [Ac2:14](https://www.blueletterbible.org/niv/act/2/14/s_1020014)
+    - the church in Samaria [Ac9:31](https://www.blueletterbible.org/niv/act/9/31/s_1027031)
+    - the church in Antioch [Ac11:19-21](https://www.blueletterbible.org/niv/act/11/19/s_1029019), [13:1-3](https://www.blueletterbible.org/niv/act/13/1/s_1031001)
+    - The church in Ephesus [Ac19:1-7](https://www.blueletterbible.org/niv/act/19/1/s_1037001)
+    
+    <br>
+    
+    - [Ac9:31](https://www.blueletterbible.org/niv/act/9/31/s_1027031)
+    - [Rev1:20](https://www.blueletterbible.org/niv/rev/1/20/s_1168020)
 1. households must be filled with the spirit
+    - [Ac10:44-48](https://www.blueletterbible.org/niv/act/10/44/s_1028044)
 1. individuals must be filled with the spirit
-    - 3Jn1:2
+    - [3Jn1:2](https://www.blueletterbible.org/niv/3jo/1/2/s_1166002)
+    - [Eph5:18](https://www.blueletterbible.org/niv/eph/5/18/s_1102018)
 1. power reveals the fullness of the spirit
-    - Mt12:28
-    - Ac1:8
+    - [Mt12:28](https://www.blueletterbible.org/niv/mat/12/28/s_941028)
+    - [Ac1:8](https://www.blueletterbible.org/niv/act/1/8/s_1019008)
 1. the words which the HS speaks to the churches
-    - Rev2-3
+    - [Rev2](https://www.blueletterbible.org/niv/rev/2/1/s_1169001)-[3](https://www.blueletterbible.org/niv/rev/3/1/s_1170001)
 1. the church and God's servants must open spiritual eyes
 
 ---

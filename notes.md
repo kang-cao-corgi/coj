@@ -4342,127 +4342,150 @@ spiritual inpiration &harr; surpass
 1. the church and God's servants must open spiritual eyes
 
 ---
-# Lec 42
-## VIII. writings mediate the gospel
-- 1Jn2:12-14
+
+## Lec 42
+## VIII. ***Writings*** mediate the gospel
+- [1Jn2:12-14](https://www.blueletterbible.org/niv/1jo/2/12/s_1161012)
 the purpose of writings
-    - to the "children"
-    - to the "fathers"
-    - to the "young men"
+    - to the "children" - to know the Redeemer
+    - to the "fathers" - to know the Creator
+    - to the "young men" - to know the King
 
-### the Bible and the epistles
-the Bible
+### The Bible and the Epistles
+#### The Bible
 - the writing of the revealed word of God, either heard of seen directly
-- the Pentateuch (OT) + the gospel books (NT)
+- the Pentateuch (OT), the Gospel books (NT)
 
-the epistles
+#### The Epistles (宗徒书信)
 - the supplementary writing of indirectly observed events
-- OT: the chronicles, the psalms, the prophetic books
-- NT: Acts, the Epistles, Revelation
+- OT: ***the chronicles, the psalms, the prophetic books***
+- NT: ***Acts, the Epistles, Revelation***
 
-the Bible was written by those inspired by the HS
-- 2Ti3:16-17
-- 2Pe1:20-21
+#### The Bible was written by those ***inspired*** by the HS
+- [2Ti3:16-17](https://www.blueletterbible.org/niv/2ti/3/16/s_1128016) God-breathed &rarr; by inspiration of God
+- [2Pe1:20-21](https://www.blueletterbible.org/niv/2pe/1/20/s_1157020)
 
-three levels of God's revelation
-- 1st level: JX (Jn14:9)
-- 2nd level: the Bible (Jn5:39)
-- 3rd level: sermons and testimonies (Jn15:27)
+#### Three levels of God's revelation
+- 1st level: ***JX*** [Jn14:9](https://www.blueletterbible.org/niv/jhn/14/9/s_1011009)
+- 2nd level: ***the Bible*** [Jn5:39](https://www.blueletterbible.org/niv/jhn/5/39/s_1002039)
+- 3rd level: sermons and testimonies [Jn15:27](https://www.blueletterbible.org/niv/jhn/15/27/s_1012027) "What makes a true testimony?"
 
-The writing of the Bible: Hebrew (OT) and Greek
-the Hebrew language
-- strength: it does not change (Mt5:18, Ge11:1-9)
-- Weakness: it is restricted
-the Greek language
+### The writing of the Bible: Hebrew (OT) and Greek
+#### The Hebrew language
+- strength: it does ***not*** change [Mt5:18](https://www.blueletterbible.org/niv/mat/5/18/), [Ge11:1-9](https://www.blueletterbible.org/niv/gen/11/1/s_11001)
+- Weakness: it is ***restricted***
+#### The Greek language
 - Strength: it is open, active, diverse and widespread
-- weakness: it can easily change
+- weakness: it can easily ***change***
 
-1. the bible does not deliver talk but events
+### 1. the Bible does not deliver talk but events
+- [1Co4:20](https://www.blueletterbible.org/niv/1co/4/20/s_1066020)
 1. the ***authority*** of the Bible: it was written by numerous different writters
 1. the Bible is the roadmap to return to the Father's house
 
-### 1. the common point of the bible
-the Bible's view of God
-1. the only true God
-1. the almighty God
-1. the Redeemer God
-1. the righteous God the Judge
+    1. the common point of the Bible <br>
+        the Bible's view of God
+        1. the only true God
+        1. the almighty God
+        1. the Redeemer God
+        1. the righteous God the Judge
 
-The Bible's application
-1. to give faith
-1. to give power
-1. to treat men as ***spiritual*** beings
-1. Eze3:1-3
+        The Bible's application
+        1. to give faith
+        1. to give power
+        1. to treat men as ***spiritual*** beings
+        1. [Eze3:1-3](https://www.blueletterbible.org/niv/eze/3/1/s_805001) "eat scroll"
 
-The Bible gives God's promises
-The synopsis of the Bible is the development of God's promises
+    1. The Bible gives God's promises <br>
+        God: the Lord of covenant <br>
+        JX: the Seed of covenant <br>
+        HS: the Spirit of covenant <br>
+        
+        The synopsis(概要) of the Bible is the development of God's promises <br>
 
 ### The content of the entire Bible
-1. God nurtures the people who received his promise (Ex19:4)
+1. God nurtures the people who received his promise [Ex19:4](https://www.blueletterbible.org/niv/exo/19/4/s_69004)
 1. The people of Israel were sent
-1. God's work is the smae yeterday and today (He13:8)
+1. God's work is the same yeterday and today [He13:8](https://www.blueletterbible.org/niv/heb/13/8/s_1146008)
 
-the unique quality of the bible
+#### The unique quality of the Bible
 1. it is holy
 1. it has life
 1. it has promises
-1. it is a mirror (1Co10:11, Ex38:8, Eph5:25)
+1. it is a mirror [1Co10:11](https://www.blueletterbible.org/niv/1co/10/11/s_1072011), [Ex38:8](https://www.blueletterbible.org/niv/exo/38/8/s_88008), [Tit3:5](https://www.blueletterbible.org/niv/tit/3/5/s_1132005), [Eph5:25](https://www.blueletterbible.org/niv/eph/5/25/s_1102025)
 
-### 2. the bible cannot be broken (Jn10:35)
-Bible = heard from God = what HS says = written by the inspiration by HS (1Pe1:21)
+### 2. the Bible cannot be broken 
+- [Jn10:35](https://www.blueletterbible.org/niv/jhn/10/35/s_1007035)
 
-1. God's command is eternal life (Jn12:50)
-1. those who received God's word have God's authority (Jn10:35)
-1. what is written in the bible has absolute authority
-1. The Bible was written to be fulfilled (Jn12:14-15, 13:18, 18:82)
-1. JX came to leave as written
-1. JX came to fulfille the Bible (Mt26:54, Lk1:1-4, 2Pe3:1-2)
+    #### 1. The writing of the Bible
+    the Bible is <br> &rarr; heard from God [Jn15:26](https://www.blueletterbible.org/niv/jhn/15/26/s_1012026) <br> &rarr; what the HS says [Jn16:13](https://www.blueletterbible.org/niv/jhn/16/13/s_1013013) <br> &rarr; written by those inspired by HS [2Pe1:21](https://www.blueletterbible.org/niv/2pe/1/21/s_1157021)
 
-    The writings of the Bible is in accordance of the works of Christ
-    - Jn15:25
-    - Jn17:12
-1. The HS reminds what is written
-1. writings are for remembrance
-1. writings are to mkae one believe
-1. what is written can be believed only after it is fulfilled
-1. events were fulfilled according to what was written
+    #### 2. The word of God is life
+    - God's command is eternal life [Jn12:50](https://www.blueletterbible.org/niv/jhn/12/50/s_1009050)
+    - those who received God's word have godly authority [Jn10:35](https://www.blueletterbible.org/niv/jhn/10/35/s_1007035)
+    #### 3. What is written in the Bible has absolute authority
+    1. The Bible was written to be fulfilled [Jn12:14-15](https://www.blueletterbible.org/niv/jhn/12/14/s_1009014), [13:18](https://www.blueletterbible.org/niv/jhn/13/18/s_1010018), [18:32](https://www.blueletterbible.org/niv/jhn/18/32/s_1015032)
+    1. JX came to leave as written [Mt26:24](https://www.blueletterbible.org/niv/mat/26/24/s_955024)
+    1. JX came to fulfille the Bible [Mt26:54](https://www.blueletterbible.org/niv/mat/26/54/s_955054), [Lk1:1-4](https://www.blueletterbible.org/niv/luk/1/1/s_974001), [2Pe3:1-2](https://www.blueletterbible.org/niv/2pe/3/1/s_1159001) The writings existed before His fulfilling (later)<br>
 
-1. the conception of the virgin (is7:14, 11:1, Mt1:23)
-1. the messenger prepared the way before hum (Mal3:1, Lk1:76)
-1. the birth of JX (Mi5:2, Mt2:5-6)
-1. the betrayal of his disciples (Ps41:9, Ac1:16)
-1. "I am thirsty" (Ps22:15, Jn19:28)
-1. his side pierced with a spear (Zec12:10, Jn19:34, 37)
-1. Not breaking his legs (Ex12:46, Jn19:33, 36)
+    #### 4. The writings of the Bible is in accordance of the works of Christ
+    - [Jn15:25](https://www.blueletterbible.org/niv/jhn/15/25/s_1012025), [17:12](https://www.blueletterbible.org/niv/jhn/17/12/s_1014012), [19:28](https://www.blueletterbible.org/niv/jhn/19/28/s_1016028)
+    #### 5. The HS reminds what is written
+    1. writings are for remembrance
+    1. writings are to mkae one believe
+    1. what is written can be believed only <u>after</u> it is fulfilled
+    #### 6. Events were fulfilled according to what was written
+    1. the conception of the virgin [Is7:14](https://www.blueletterbible.org/niv/isa/7/14/s_686014), [11:1](https://www.blueletterbible.org/niv/isa/11/1/s_690001), [Mt1:23](https://www.blueletterbible.org/niv/mat/1/23/s_930023)
+    1. the messenger prepared the way before hum [Mal3:1](https://www.blueletterbible.org/niv/mal/3/1/s_928001), [Lk1:76](https://www.blueletterbible.org/niv/luk/1/76/s_974076)
+    1. the birth of JX [Mi5:2](https://www.blueletterbible.org/niv/mic/5/2/s_898002), [Mt2:5-6](https://www.blueletterbible.org/niv/mat/2/5/s_931005)
+    1. His journey to Egypt and return [Hos11:1](https://www.blueletterbible.org/niv/hos/11/1/s_873001), [Mt2:14-15](https://www.blueletterbible.org/niv/mat/2/14/s_931014)
+    1. the betrayal of his disciples [Ps41:9](https://www.blueletterbible.org/niv/psa/41/9/s_519009), [Ac1:16](https://www.blueletterbible.org/niv/act/1/16/s_1019016)
+    1. "I am thirsty" [Ps22:15](https://www.blueletterbible.org/niv/psa/22/15/s_500015), [Jn19:28](https://www.blueletterbible.org/niv/jhn/19/28/s_1016028)
+    1. his side pierced with a spear [Zec12:10], [Jn19:34](https://www.blueletterbible.org/niv/jhn/19/34/s_1016034), [37](https://www.blueletterbible.org/niv/jhn/19/37/s_1016037)
+    1. Not breaking his legs [Ex12:46](https://www.blueletterbible.org/niv/exo/12/46/s_62046), [Jn19:33](https://www.blueletterbible.org/niv/jhn/19/33/s_1016033), [36](https://www.blueletterbible.org/niv/jhn/19/36/s_1016036)
 
-### 7. the authority of JX was based on the writing (Mt4:3-11)
-If you want to encounter JX follow the writing - Ac8:30-36
-### 8. the devil also uses the writings
-### 9. the writings preach to the churches
+    #### 7. The authority of JX was based on the writing 
+    - [Mt4:3-11](https://www.blueletterbible.org/niv/mat/4/3/s_933003)
+    - [Is11:1](https://www.blueletterbible.org/niv/isa/11/1/s_690001)
 
-### the mothods of the
-- the stone tablets - God Himself (Dt9:10)
-- the scrolls - the prophets (Jer36:2)
-- The parchments - the apostles (2Ti4:13)
-- The letters - the saints (Eph1:1)
+    <u>If you want to encounter JX, follow the writings</u>
+    - [Ac8:30-36](https://www.blueletterbible.org/niv/act/8/30/s_1026030)
 
-### 5. to preach the word, we must read the writings
-### 6.
-- Ps127:14
-- Zec5:1
+    #### 8. The devil also uses the writings
+### 3. The writings preach to the churches
+- [Rev2](https://www.blueletterbible.org/niv/rev/2/1/s_1169001)-[3](https://www.blueletterbible.org/niv/rev/3/1/s_1170001)
+- [Jas1:1](https://www.blueletterbible.org/niv/jas/1/1/s_1147001)
+- [2Co1:1](https://www.blueletterbible.org/niv/2co/1/1/s_1079001)
+- [Php1:1](https://www.blueletterbible.org/niv/phl/1/1/s_1104001)
+### 4. The methods of the writing
+- the stone tablets - God Himself [Dt9:10](https://www.blueletterbible.org/niv/deu/9/10/s_162010)
+- the scrolls - the prophets [Jer36:2](https://www.blueletterbible.org/niv/jer/36/2/s_781002)
+- The parchments - the apostles [2Ti4:13](https://www.blueletterbible.org/niv/2ti/4/13/s_1129013)
+- The letters - the saints [Eph1:1](https://www.blueletterbible.org/niv/eph/1/1/s_1098001)
 
-### 7. those who studied the writings
-- Ps1:2
-- Ac8:28
-- Jn5:39
+### 5. To preach the word, read the writings
+- [Ac8:32](https://www.blueletterbible.org/niv/act/8/32/s_1026032)
+- 
+### 6. The writing is spread quickly
+- [Ps127:14](https://www.blueletterbible.org/niv/psa/127/1/s_605001)
+- [Zec5:1](https://www.blueletterbible.org/niv/zec/5/1/s_916001)
+
+### 7. Those who studied the writings
+- [Ps1:2](https://www.blueletterbible.org/niv/psa/1/2/s_479002)
+- [Ac8:28](https://www.blueletterbible.org/niv/act/8/28/s_1026028)
+- [Jn5:39](https://www.blueletterbible.org/niv/jhn/5/39/s_1002039)
 
 Can the Bible be the basis of the Christian faith
 
-God is the God of revelation
-- the writing L the OT is written in the Hebrew language thata does not change
-- the
-- JX fulfilled all scrioptures (Jn10:30)
-- to this day, the covenant and the prophecies of JX are being fulfilled
+The Hebrew Bible (Tanakt) and the Masoretic Text (MT)
+
+#### The basis of the Christian faith
+
+- God is the God of revelation
+- the writing: the OT is written in the Hebrew language that does not change
+- the content: covenants and prophecies (32,500)
+- JX fulfilled all scriptures [Jn10:30](https://www.blueletterbible.org/niv/jhn/10/30/s_1007030)
+- to this day, the covenants and the prophecies of JX are being fulfilled
 
 ---
 # Lec 43

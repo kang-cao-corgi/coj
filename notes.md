@@ -4488,26 +4488,28 @@ The Hebrew Bible (Tanakt) and the Masoretic Text (MT)
 - to this day, the covenants and the prophecies of JX are being fulfilled
 
 ---
-# Lec 43
+## Lec 43
 ## IX. Man (flesh) mediates the gospel
-### 1. the plan of God - Rm1:1
-|circumcision   |baptism   |
-|---|---|
-|   the mark of obedience tot the law|  the mark of obedience to Christ |
-|sevants of the Lord God|servants of Christ|
-|By parent's faith|By one's own faith|
+### 1. the plan of God 
+- [Rm1:1](https://www.blueletterbible.org/niv/rom/1/1/s_1047001)
 
-Ge1:27 - man to rule over all things
-Ge2:7-25 - Ad to rule over the
-1. man was created to prepare the way for JX - Mk1:2-3
+| circumcision | baptism |
+|---|---|
+| the mark of obedience tot the law | the mark of obedience to Christ |
+| sevants of the Lord God | servants of Christ |
+|  parent's faith | By one's own faith |
+
+- [Ge1:27](https://www.blueletterbible.org/niv/gen/1/27/s_1027) - man to rule over all things
+- [Ge2:7-25](https://www.blueletterbible.org/niv/gen/2/7/s_2007) - Ad to rule over the
+1. man was created to prepare the way for JX - [Mk1:2-3](https://www.blueletterbible.org/niv/mar/1/2/s_958002)
 <br>
 man provided the way for
-    1. JX's birth (Ge3:15, 18:14, Mt1:21)
-    1. JX's death (Rm5:12-14, He2:9), the first of Adam's sin was prepared for the last Adam's death
+    1. JX's birth [Ge3:15](https://www.blueletterbible.org/niv/gen/3/15/s_3015), [18:14](https://www.blueletterbible.org/niv/gen/18/14/s_18014), [Mt1:21](https://www.blueletterbible.org/niv/mat/1/21/s_930021)
+    1. JX's death [Rm5:12-14](https://www.blueletterbible.org/niv/rom/5/12/s_1051012), [He2:9](https://www.blueletterbible.org/niv/heb/2/9/s_1135009), the first of Adam's sin was prepared for the last Adam's death
     1. delivering the name Yeshua (the way to expand the kingdom of God)
 1. the birth of JX
-- Mt1:16, 20
-- Jn1:14
+- [Mt1:16](https://www.blueletterbible.org/niv/mat/1/16/s_930016), [20](https://www.blueletterbible.org/niv/mat/1/20/s_930020)
+- [Jn1:14](https://www.blueletterbible.org/niv/jhn/1/14/s_998014)
 
 the immaculate conception dogma is satanic
 1. the condition of JX's flesh is the same as that of man
@@ -4516,72 +4518,72 @@ the immaculate conception dogma is satanic
 ### 2. the victory of God
 - Rm1:1
 1. the judgement on this world arrived
-    - Jn12:31
+    - [Jn12:31](https://www.blueletterbible.org/niv/jhn/12/31/s_1009031)
 1. the prince of this world will be driven out
-    - Jn16:11
+    - [Jn16:11](https://www.blueletterbible.org/niv/jhn/16/11/s_1013011)
 1. through His resurrection JX overcame the world
-    - 1Co15:55-57
+    - [1Co15:55-57](https://www.blueletterbible.org/niv/1co/15/55/s_1077055)
     the world
     - the kingdom of the devil: JX destroyed
     - men: JX saved (n3:16, 12:47)
-    - materuals: JX nullified (1Jn2:15)
+    - materuals: JX nullified [1Jn2:15](https://www.blueletterbible.org/niv/1jo/2/15/s_1161015)
 1. the devil was banished from heaven
 1. the devil attacks those who betrayed him
-    - Rev12:17-13:1
+    - [Rev12:17](https://www.blueletterbible.org/niv/rev/12/17/s_1179017), [13:1](https://www.blueletterbible.org/niv/rev/13/1/s_1180001)
 ### 3. Gods sends saints out
-- Jn17:18-19
+- [Jn17:18-19](https://www.blueletterbible.org/niv/jhn/17/18/s_1014018)
 1. God pours out the HS on the felsh
-    - Ac2:17, 33
-    - Rm8:9, 14-16
+    - [Ac2:17](https://www.blueletterbible.org/niv/act/2/17/s_1020017), [33](https://www.blueletterbible.org/niv/act/2/33/s_1020033)
+    - [Rm8:9](https://www.blueletterbible.org/niv/rom/8/9/s_1054009), [14-16](https://www.blueletterbible.org/niv/rom/8/14/s_1054014)
 
-|HS   |the spirit of Christ   |the spirit of adoption|
+| HS | the spirit of Christ | the spirit of adoption |
 |---|---|---|
-|   the spirit of God (Rm8:9| the spirit of the word (Rm8:9)  |the gospel (Rm8:15)|
+|   the spirit of God [Rm8:9](https://www.blueletterbible.org/niv/rom/8/9/s_1054009)| the spirit of the word (Rm8:9)  |the gospel [Rm8:15](https://www.blueletterbible.org/niv/rom/8/15/s_1054015)|
 |the person of God|the blood of Christ|the spirit of the Son|
 
 positions of those who believe: apostles, saints, believers
-- 1Co1:2
-- Jn16:8-11
+- [1Co1:2](https://www.blueletterbible.org/niv/1co/1/2/s_1063002)
+- [Jn16:8-11](https://www.blueletterbible.org/niv/jhn/16/8/s_1013008)
 1. the HS uses the flesh
-    - 1Jn5:16-17
+    - [1Jn5:16-17](https://www.blueletterbible.org/niv/1jo/5/16/s_1164016)
     <br>
     God uses those who sanctify themselves
-    - 2Ti2:20-21
-    - He6:4-6
-    - Jude1:9
-    - Rev2:6
+    - [2Ti2:20-21](https://www.blueletterbible.org/niv/2ti/2/20/s_1127020)
+    - [He6:4-6](https://www.blueletterbible.org/niv/heb/6/4/s_1139004)
+    - [Jude1:9](https://www.blueletterbible.org/niv/jde/1/9/s_1167009)
+    - [Rev2:6](https://www.blueletterbible.org/niv/rev/2/6/s_1169006)
 1. sickness attacks the flesh
-    - "you will eat dust" (Ge3:14)
-    - "the flesh and body are spent" (Pr5;11)
-    - like the grace life withers (1Pe1:24)
+    - "you will eat dust" [Ge3:14](https://www.blueletterbible.org/niv/gen/3/14/s_3014)
+    - "the flesh and body are spent" [Pr5:11](https://www.blueletterbible.org/niv/pro/5/11/s_633011)
+    - like the grace life withers [1Pe1:24](https://www.blueletterbible.org/niv/1pe/1/24/s_1152024)
 1. no flesh is righteous
-    - Jer25:31
-    - Rm7:18
-    - Gal2:6
-    - 1Ti4:8
+    - [Jer25:31](https://www.blueletterbible.org/niv/jer/25/31/s_770031)
+    - [Rm7:18](https://www.blueletterbible.org/niv/rom/7/18/s_1053018)
+    - [Gal2:6](https://www.blueletterbible.org/niv/gal/2/6/s_1093006)
+    - [1Ti4:8](https://www.blueletterbible.org/niv/1ti/4/8/s_1123008)
 1. return the righteousness of flesh to God
-    - Rm6:12-13
-    - 1Pe4:2k
+    - [Rm6:12-13](https://www.blueletterbible.org/niv/rom/6/12/s_1052012)
+    - [1Pe4:2](https://www.blueletterbible.org/niv/1pe/4/2/s_1155002)
 1. the flesh is talent
-    - Mt25:14-30
+    - [Mt25:14-30](https://www.blueletterbible.org/niv/mat/25/14/s_954014)
 
     the flesh is an opportunity
-    - to receive grace (2Co6:2)
-    - to repent (He12:27)
-    - to be born as children of God (Jn3:5)
-    - to work for reward, the crown (2Ti4:6-8)
+    - to receive grace [2Co6:2](https://www.blueletterbible.org/niv/2co/6/2/s_1084002)
+    - to repent [He12:27](https://www.blueletterbible.org/niv/heb/12/27/s_1145027)
+    - to be born as children of God [Jn3:5](https://www.blueletterbible.org/niv/jhn/3/5/s_1000005)
+    - to work for reward, the crown [2Ti4:6-8](https://www.blueletterbible.org/niv/2ti/4/6/s_1129006)
 
 1. the flesh transforms to an immortal body
-    - 1Co15:53
-    life and the life-after-death in the parable of the rich man and Lazarus (Lk16:24-26, 31)
+    - [1Co15:53](https://www.blueletterbible.org/niv/1co/15/53/s_1077053)
+    life and the life-after-death in the parable of the rich man and Lazarus [Lk16:24-26](https://www.blueletterbible.org/niv/luk/16/24/s_989024), [31](https://www.blueletterbible.org/niv/luk/16/31/s_989031)
 
 1. the human flesh is the crown of all creation
     the human flesh is the greatest creation
 
-- He3:1, 8-11
-- Mt11:28
-- He3:12-13
-- 2Ti4:6-8
+- [He3:1](https://www.blueletterbible.org/niv/heb/3/1/s_1136001), [8-11](https://www.blueletterbible.org/niv/heb/3/8/s_1136008)
+- [Mt11:28](https://www.blueletterbible.org/niv/mat/11/28/s_940028)
+- [He3:12-13](https://www.blueletterbible.org/niv/heb/3/12/s_1136012)
+- [2Ti4:6-8](https://www.blueletterbible.org/niv/2ti/4/6/s_1129006)
 
 ---
 # Lec 44. Materials mediaate the gospel

@@ -2231,7 +2231,7 @@ The truth = the law that does <u>not</u> deceive - disobedience
 
 First Adam is a boat, attach to God. When Adam sinned, sin and death entered all men [Rm5:12](https://www.blueletterbible.org/niv/rom/5/12/s_1051012), [1Co15:22](https://www.blueletterbible.org/niv/1co/15/22/s_1077022), the anker broke and boat is going backwards down to a waterfall(hell, lake of fire) [Rev20:15](https://www.blueletterbible.org/niv/rev/20/15/s_1187015). God sent His Son as the last Adam, coming to die and send the Holy Spirit (as another boat going up forward) to ask them to repent [Ac2:38](https://www.blueletterbible.org/niv/act/2/38/s_1020038) and jump off the first boat to join the second boat.
 
-## XIII. The spirit of man is transmitted 
+## XIII. The spirit of man is transmitted
 #### (the spirit of man and the redemption of Christ)
 - [Ge2:18-25](https://www.blueletterbible.org/niv/gen/2/18/s_2018)
 
@@ -2414,7 +2414,7 @@ the souls, sanctified by the blood of JX, who put effort to resurrect with Chris
 
 1. Adam &lrhar; Noah [Ge4:26](https://www.blueletterbible.org/niv/gen/4/26/s_4026); [1Pe3:19-20](https://www.blueletterbible.org/niv/1pe/3/19/s_1154019)
    (the original sin) no other commandment received.
-2. Noah &lrhar; Moses [Ge9:4](https://www.blueletterbible.org/niv/gen/9/4/s_9004) given commandment, original sin, spiritual sin, 
+2. Noah &lrhar; Moses [Ge9:4](https://www.blueletterbible.org/niv/gen/9/4/s_9004) given commandment, original sin, spiritual sin,
 3. Moses &lrhar; Jesus [Ex24:6-8](https://www.blueletterbible.org/niv/exo/24/6/s_74006); [Lev17:11-13](https://www.blueletterbible.org/niv/lev/17/11/s_107011) given commandment(do not each blood, do shed blood of animal for sacrifice)
 4. Jesus &lrhar; the second coming  [Mt26:27-28](https://www.blueletterbible.org/niv/mat/26/27/s_955027) given commandment(drink the blood)
 
@@ -2429,7 +2429,7 @@ resurrection starts from Noah
     1. people before Noah, no resurrection &rarr; became angels
     1. believers from Noah to Jesus (in OT), go to Abraham's side, will come to 2nd resurrection &rarr; servants of God
     1. believers after Jesus &rarr; paradise, eligible for 1st resurrection &rarr; heirs of God
-    
+
 
 1. Noah &lrhar; Jesus [Lk16:23](https://www.blueletterbible.org/niv/luk/16/23/s_989023)
    who died in this period is only qualified for second resurrection, going to paradise, as servants
@@ -2443,8 +2443,8 @@ resurrection starts from Noah
 - [1Co15:21-24](https://www.blueletterbible.org/niv/1co/15/21/s_1077021), [41-44](https://www.blueletterbible.org/niv/1co/15/41/s_1077041)
 - [Rm8:17](https://www.blueletterbible.org/niv/rom/8/17/s_1054017)
 
-### Orders of resurrection: 
-1. Jesus, "the firstfruits" 
+### Orders of resurrection:
+1. Jesus, "the firstfruits"
 2. the children/heirs of God, 1st resurrection
 3. after millennium "1000 years", 2nd resurrection
 
@@ -2684,7 +2684,7 @@ Grace received (freely given)
 - [1Th5:1-3](https://www.blueletterbible.org/niv/1th/5/1/s_1116001
 )
 
-The dispensation of God = 
+The dispensation of God =
 God's schedule / timetable devided within history
 
 ### The timetable of God
@@ -2797,7 +2797,7 @@ the "antichrist", "rebellion", apostesy / defection
 ### The order of the second coming
 
 1. the Second Coming of JX to the air [Mt24:27](https://www.blueletterbible.org/niv/mat/24/27/s_953027), [40-41](https://www.blueletterbible.org/niv/mat/24/40/s_953040)
-2. the resurrection of ***the saints*** who had fallen asleep 
+2. the resurrection of ***the saints*** who had fallen asleep
 [1Co15:51-52](https://www.blueletterbible.org/niv/1co/15/51/s_1077051), [1Th4:14-17](https://www.blueletterbible.org/niv/1th/4/14/s_1115014) (from paradise)
 
 3. transformed into spiritual bodies [1Co15:51-54](https://www.blueletterbible.org/niv/1co/15/51/s_1077051), [1Th4:15](https://www.blueletterbible.org/niv/1th/4/15/s_1115015)
@@ -2946,7 +2946,7 @@ man to live = ***faith*** (obedience)
 - [1Co12:4-7](https://www.blueletterbible.org/niv/1co/12/4/s_1074004)
     the person of God -> Holy Spirit
 
-#### The number of angels varies by the size of one's ***spiritual*** activity 
+#### The number of angels varies by the size of one's ***spiritual*** activity
 - [Ac1:11](https://www.blueletterbible.org/niv/act/1/11/s_1019011)
 
 #### Angels help saints
@@ -3064,13 +3064,13 @@ man to live = ***faith*** (obedience)
 | rulers of darkness| idolatry, sorcery, psychic, pagan religions|
 |evil spirits in the heavenly places| cults, deceiving spirits|
 
-1. principalities ("-isms"): 
+1. principalities ("-isms"):
     - evolutionism
     - communism
     - socialism
     - democracy
     - materialism(唯物主义)
-1.  powers: 
+1.  powers:
     - political power
     - religious power (ecclesiastical authority) (the chuch of the state/nation)
 1. rulers of darkness
@@ -3135,7 +3135,7 @@ How to deceiving spirits develop
 
 ## II. Demonology
 
-### 1. The identity of demons 
+### 1. The identity of demons
 - [Mt25:41](https://www.blueletterbible.org/niv/mat/25/41/s_954041)
 
 #### The life after death
@@ -3164,9 +3164,9 @@ How to deceiving spirits develop
 #### 1.1. Sheol
 1. cast down from heaven
 [Is14:12-15](https://www.blueletterbible.org/niv/isa/14/12/s_693012), [Eze28:17](https://www.blueletterbible.org/niv/eze/12/8/s_814008), [Rev12:8-9](https://www.blueletterbible.org/niv/rev/12/8/s_1179008) sheol/hades != hell
-1. where the devil exists 
+1. where the devil exists
     - [2Pe2:4](https://www.blueletterbible.org/niv/2pe/2/4/s_1158004)
-    "hell" = darkness / depts of the pit, 
+    "hell" = darkness / depts of the pit,
     - [Mt5:22](https://www.blueletterbible.org/niv/mat/5/22/s_934022) "hell" the pit = lake of fire
 1. where the power of the devil is [Mt16:18](https://www.blueletterbible.org/niv/mat/16/18/s_945018), [Hos13:14](https://www.blueletterbible.org/niv/hos/13/14/s_875014)
 
@@ -3204,7 +3204,7 @@ sacrifices to lifeless gods = sacrifices to pagans/demons = all to the dead
 demons = no part with Jesus = not washed by Jesus
 
 Demons <br>
-= unclean spirit <br> 
+= unclean spirit <br>
 = have no part with Jesus <br>
 = the dead <br>
 = their names are not found in the book of life <br>
@@ -3227,7 +3227,7 @@ Men - the person is developed from the flesh
 - [Mt8:16](https://www.blueletterbible.org/niv/mat/8/16/s_937016)
 - [Lk4:38-39](https://www.blueletterbible.org/niv/luk/4/38/s_977038) rebuke the spirit that brings the fever
 - [Mk9:25-27](https://www.blueletterbible.org/niv/mar/9/25/s_966025)
-<br>the spirit = where God dwells 
+<br>the spirit = where God dwells
 <br>the flesh = where I the spirit dwell
 
 ---
@@ -3280,7 +3280,7 @@ Judas Iscariot <br>
 2. attached &rarr;
 3. depression &rarr;
 4. self-negligence, despair, helplessness &rarr;
-5. ***total oppression*** 
+5. ***total oppression***
 
 - [Ge6:5](https://www.blueletterbible.org/niv/gen/6/5/s_6005)
 - [Ac5:3](https://www.blueletterbible.org/niv/act/5/3/s_1023003)
@@ -3573,7 +3573,7 @@ baptism = uniting with Christ = the act of belonging to Christ = fulfilling righ
 |on-time|***forvever***|
 |outside the body|inside the body|
 
-- [Jn7:38-39](https://www.blueletterbible.org/niv/jhn/7/38/s_1004038) 
+- [Jn7:38-39](https://www.blueletterbible.org/niv/jhn/7/38/s_1004038)
 
 "Filled with the Holy Spirit"
 - [Lk1:15](https://www.blueletterbible.org/niv/luk/1/15/s_974015), [41](https://www.blueletterbible.org/niv/luk/1/41/s_974041), [67](https://www.blueletterbible.org/niv/luk/1/67/s_974067)
@@ -3687,7 +3687,7 @@ NT: sin &rarr; "a missed arrow"
 - [Jn8:44](https://www.blueletterbible.org/niv/jhn/8/44/s_1005044)
 - [2Co2:11](https://www.blueletterbible.org/niv/2co/2/11/s_1080011)
 
-#### Pride is deceiving oneself 
+#### Pride is deceiving oneself
 - [Ps1:1-6](https://www.blueletterbible.org/niv/psa/1/1/s_479001)
 #### God punishes the proud
 - [Jer49:16](https://www.blueletterbible.org/niv/jer/49/16/s_794016)
@@ -3862,7 +3862,7 @@ the cross is ***not*** a symbol of the gospel
 1. Service is carrying our one's duty
     - worship = to serve (a hired servant)
 
-### 1. the sacrifice in the OT 
+### 1. the sacrifice in the OT
 - [He1:14](https://www.blueletterbible.org/niv/heb/1/14/s_1134014)
 <br>
 Three elements of sacrifice:
@@ -3977,7 +3977,7 @@ Commandment <u>before</u> the death of JX| Commandment <u>after</u> the resurrec
 - [Jn17:11](https://www.blueletterbible.org/niv/jhn/17/11/s_1014011)
 - [Rev22:18-19](https://www.blueletterbible.org/niv/rev/22/18/s_1189018)
 
-### Communion 
+### Communion
 - [1Co11:23-26](https://www.blueletterbible.org/niv/1co/11/23/s_1073023)
 Partaking in the Lord's table supper
 
@@ -4188,7 +4188,7 @@ JX took up sin and disease on to His body; Healing is one of the purposes of His
 - [Mk16:20](https://www.blueletterbible.org/niv/mar/16/20/s_973020)
 - [Mt10:7-8](https://www.blueletterbible.org/niv/mat/10/7/s_939007)
 
-#### The public work of Jesus is the work He did in His flesh 
+#### The public work of Jesus is the work He did in His flesh
 - [Lk13:32](https://www.blueletterbible.org/niv/luk/13/32/s_986032)
 1. God curses with disease the sin of breaking the word
     - [Nu21:6](https://www.blueletterbible.org/niv/num/21/6/s_138006), [25:1-9](https://www.blueletterbible.org/niv/num/25/1/s_142001)
@@ -4324,9 +4324,9 @@ spiritual inpiration &harr; surpass
     - the church in Samaria [Ac9:31](https://www.blueletterbible.org/niv/act/9/31/s_1027031)
     - the church in Antioch [Ac11:19-21](https://www.blueletterbible.org/niv/act/11/19/s_1029019), [13:1-3](https://www.blueletterbible.org/niv/act/13/1/s_1031001)
     - The church in Ephesus [Ac19:1-7](https://www.blueletterbible.org/niv/act/19/1/s_1037001)
-    
+
     <br>
-    
+
     - [Ac9:31](https://www.blueletterbible.org/niv/act/9/31/s_1027031)
     - [Rev1:20](https://www.blueletterbible.org/niv/rev/1/20/s_1168020)
 1. households must be filled with the spirit
@@ -4400,7 +4400,7 @@ the purpose of writings
         God: the Lord of covenant <br>
         JX: the Seed of covenant <br>
         HS: the Spirit of covenant <br>
-        
+
         The synopsis(概要) of the Bible is the development of God's promises <br>
 
 ### The content of the entire Bible
@@ -4414,7 +4414,7 @@ the purpose of writings
 1. it has promises
 1. it is a mirror [1Co10:11](https://www.blueletterbible.org/niv/1co/10/11/s_1072011), [Ex38:8](https://www.blueletterbible.org/niv/exo/38/8/s_88008), [Tit3:5](https://www.blueletterbible.org/niv/tit/3/5/s_1132005), [Eph5:25](https://www.blueletterbible.org/niv/eph/5/25/s_1102025)
 
-### 2. the Bible cannot be broken 
+### 2. the Bible cannot be broken
 - [Jn10:35](https://www.blueletterbible.org/niv/jhn/10/35/s_1007035)
 
     #### 1. The writing of the Bible
@@ -4444,7 +4444,7 @@ the purpose of writings
     1. his side pierced with a spear [Zec12:10], [Jn19:34](https://www.blueletterbible.org/niv/jhn/19/34/s_1016034), [37](https://www.blueletterbible.org/niv/jhn/19/37/s_1016037)
     1. Not breaking his legs [Ex12:46](https://www.blueletterbible.org/niv/exo/12/46/s_62046), [Jn19:33](https://www.blueletterbible.org/niv/jhn/19/33/s_1016033), [36](https://www.blueletterbible.org/niv/jhn/19/36/s_1016036)
 
-    #### 7. The authority of JX was based on the writing 
+    #### 7. The authority of JX was based on the writing
     - [Mt4:3-11](https://www.blueletterbible.org/niv/mat/4/3/s_933003)
     - [Is11:1](https://www.blueletterbible.org/niv/isa/11/1/s_690001)
 
@@ -4465,7 +4465,7 @@ the purpose of writings
 
 ### 5. To preach the word, read the writings
 - [Ac8:32](https://www.blueletterbible.org/niv/act/8/32/s_1026032)
-- 
+-
 ### 6. The writing is spread quickly
 - [Ps127:14](https://www.blueletterbible.org/niv/psa/127/1/s_605001)
 - [Zec5:1](https://www.blueletterbible.org/niv/zec/5/1/s_916001)
@@ -4490,7 +4490,7 @@ The Hebrew Bible (Tanakt) and the Masoretic Text (MT)
 ---
 ## Lec 43
 ## IX. Man (flesh) mediates the gospel
-### 1. the plan of God 
+### 1. the plan of God
 - [Rm1:1](https://www.blueletterbible.org/niv/rom/1/1/s_1047001)
 
 | circumcision | baptism |
@@ -4586,110 +4586,139 @@ positions of those who believe: apostles, saints, believers
 - [2Ti4:6-8](https://www.blueletterbible.org/niv/2ti/4/6/s_1129006)
 
 ---
-# Lec 44. Materials mediaate the gospel
-## 1 God created all things Ps42:1
-1. men belong to God (Ps100:1)
-1. all things belong to God (Hag2:8)
-1. God gives both poverty and riches (Pr30:8)
-## God taught the principle of using materials
-1. men have the authority to govern all things (Ge7:9)
-1. when man disobeyed God all things disobeyed him
-1. the greatest material offering (Ge4:3-5)
+## Lec 44. ***Materials*** mediate the gospel
+## God created all things
+- [Ps42:1](https://www.blueletterbible.org/niv/psa/42/1/s_520001)
+
+### 1.The fruit of the tree of  the knowledge of good and evil indicates the limits to materials
+1. men belong to God [Ps100:3](https://www.blueletterbible.org/niv/psa/100/3/s_578003)
+1. all things belong to God [Hag2:8](https://www.blueletterbible.org/niv/hag/2/8/s_911008)
+1. God gives both poverty and riches [Pr30:8](https://www.blueletterbible.org/niv/pro/30/8/s_658008)
+### 2. God taught the principle of using materials
+1. men have the authority to govern ***all things*** [Ge7:9](https://www.blueletterbible.org/niv/gen/7/9/s_7009)
+1. when man disobeyed God ***all things*** disobeyed him
+1. the greatest material offering [Ge4:3-5](https://www.blueletterbible.org/niv/gen/4/3/s_4003)
     - the offering with blood
     - the offering without blood
 
-    blood = life (He8:3, He9:11-14)
-1. the offering following God's covenant has life (Ge22:18)
-    worldly materials can be taken to heaven (Mt6:21, Mal1:7-10, 2:3, 3:7-8, 10-12)
+    blood = life
+    - [He8:3](https://www.blueletterbible.org/niv/heb/8/3/s_1141003)
+    - [He9:11-14](https://www.blueletterbible.org/niv/heb/9/11/s_1142011)
+1. the offering following God's covenant has life
+    - [Ge22:18](https://www.blueletterbible.org/niv/gen/22/18/s_22018)
 
-    store up your trasures in heaven
-    - Mt6:19-24
+    worldly materials can be taken to heaven
+    - [Mt6:21](https://www.blueletterbible.org/niv/mat/6/21/s_935021)
+    - [Mal1:7-10](https://www.blueletterbible.org/niv/mal/1/7/s_926007), [2:3](https://www.blueletterbible.org/niv/mal/2/3/s_927003), [3:7-8](https://www.blueletterbible.org/niv/mal/3/7/s_928007), [10-12](https://www.blueletterbible.org/niv/mal/3/10/s_928010)
 
-    materials - mammon - wealth, master
+    store up your treasures in heaven
+    - [Mt6:19-24](https://www.blueletterbible.org/niv/mat/6/19/s_935019)
+
+    materials - mammon(财神) - wealth, master
     make a habit of giving to God, from young age, after receiving grace, when poor
 
     How one manages materials is his deed of faith
-    - Mt12:42
-    - Ml10:29-30
+    - [Mt12:42](https://www.blueletterbible.org/niv/mat/12/42/s_941042)
+    - [Mk10:29-30](https://www.blueletterbible.org/niv/mar/10/29/s_967029)
+
     material is the power to move God
 
 1. the material relationship between God and man
-    (Ge14:19-20, He7:4-10, 13)
-        - giving to God is not losing it
-        - material is the power to
+    - [Ge14:19-20](https://www.blueletterbible.org/niv/gen/14/19/s_14019)
+    - [He7:4-10](https://www.blueletterbible.org/niv/heb/7/4/s_1140004), [13](https://www.blueletterbible.org/niv/heb/7/13/s_1140013)
+    - giving to God is not losing it
 
-1. Jacob's oath (Ge28:21-22)
+1. Jacob's oath [Ge28:21-22](https://www.blueletterbible.org/niv/gen/28/21/s_28021)
+
 
     |   |   |   |   |
     |---|---|---|---|
-    |Moses   |under a tutor   |to little children| kept by force|
+    |Moses   |under a tutor (the Law)   |to little children| kept by force|
     |JX|under the Gospel| to the mature| willingly keep|
 
-    - Mt23:1-3, 23
+    - Tithe is not the Law of Moses [Mt23:1-3](https://www.blueletterbible.org/niv/mat/23/1/s_952001), [23](https://www.blueletterbible.org/niv/mat/23/23/s_952023)
 
     |   |   |   |
     |---|---|---|
-    | Justice(law)  |holiness   |it belongs to God|
-    |mercy|love| Do not hold back|
-    |faithfulness|faith|God blesses|
+    | Justice (law)  |holiness   |it belongs to God|
+    |Mercy|love| do not hold back|
+    |Faithfulness|faith|God blesses|
 
-1. tithe is the faith of Israel (Mal3:10-11)
-    tithe is the return to God
-    - Mal3:7-8
-    - Ge28:22
+1. tithe is the faith of Israel [Mal3:10-11](https://www.blueletterbible.org/niv/mal/3/10/s_928010)
+
+    tithe is the return to God <br>
+    tithe is giving back what belongs to God <br>
+    - [Mal3:8](https://www.blueletterbible.org/niv/mal/3/8/s_928008)
+    - [Lev27:30](https://www.blueletterbible.org/niv/lev/27/30/s_117030)
+    - [Dt14:22](https://www.blueletterbible.org/niv/deu/14/22/s_167022)
+    - [Ge28:22](https://www.blueletterbible.org/niv/gen/28/22/s_28022)
+1. tithe is the faith of Israel
+    - [Mal3:10-11](https://www.blueletterbible.org/niv/mal/3/10/s_928010)
+1. tithe is the mark of returning to God
+    - [Mal3:7-8](https://www.blueletterbible.org/niv/mal/3/7/s_928007)
+    - [Ge28:22](https://www.blueletterbible.org/niv/gen/28/22/s_28022)
 1. tithe is the fruit of the knowledge of good and evil
-    - Mt7:7-12
----
-# Lec 45
-### 3 the material you give to God is surely rewarded with materials
-1. tithe (Mal3:7-10)
-1. first fruit (Ex23:19, 34:26, Dt26:2)
-1. offering: a ransom for life (Ex30:11-16)
-    Jesus is the one most interested in offering - Lk21:1-4
-1. Thanksgiving offering (Mt8:4): offering is a testimony
-1. Offering for redemption (Lk7:47)
-1. vowed offering (Pr20:25, Ps15:4, Dt23:21-23, Lev27:7-15, 28-29)
+    - [Mt7:7-12](https://www.blueletterbible.org/niv/mat/7/7/s_936007)
+
+<!-- ---
+
+# Lec 45 -->
+### 3. the material you give to God is surely rewarded with materials
+1. tithe [Mal3:7-10](https://www.blueletterbible.org/niv/mal/3/7/s_928007)
+1. firstfruit [Ex23:19](https://www.blueletterbible.org/niv/exo/23/19/s_73019), [34:26](https://www.blueletterbible.org/niv/exo/34/26/s_84026), [Dt26:2](https://www.blueletterbible.org/niv/deu/26/2/s_179002)
+1. offering: a ransom for life [Ex30:11-16](https://www.blueletterbible.org/niv/exo/30/11/s_80011)
+    Jesus is the one most interested in offering [Lk21:1-4](https://www.blueletterbible.org/niv/luk/21/1/s_994001)
+1. Thanksgiving offering [Mt8:4](https://www.blueletterbible.org/niv/mat/8/4/s_937004) offering is a testimony
+1. Offering for redemption [Lk7:47](https://www.blueletterbible.org/niv/luk/7/47/s_980047)
+1. vowed offering [Pr20:25](https://www.blueletterbible.org/niv/pro/20/25/s_648025), [Ps15:4](https://www.blueletterbible.org/niv/psa/15/4/s_493004), [Dt23:21-23](https://www.blueletterbible.org/niv/deu/23/21/s_176021), [Lev27:7-15](https://www.blueletterbible.org/niv/lev/27/7/s_117007), [28-29](https://www.blueletterbible.org/niv/lev/27/28/s_117028)
 
 ## 2. God's view of materials
-### 1. the receiver os material offerings
-1. He who is in heaven (Mt6:4)
-1. The storage in heaven(Mt6:20)
-1. the temple teasury (Lk21:1-4)
-1. at the apostle's feet (Ac4:35-37)
+### 1. the receiver of material offerings
+1. He who is in heaven [Mt6:4](https://www.blueletterbible.org/niv/mat/6/4/s_935004)
+1. The storage in heaven [Mt6:20](https://www.blueletterbible.org/niv/mat/6/20/s_935020)
+1. the temple treasury [Lk21:1-4](https://www.blueletterbible.org/niv/luk/21/1/s_994001)
+1. at the apostle's feet [Ac4:35-37](https://www.blueletterbible.org/niv/act/4/35/s_1022035)
 
 ### 2. you cannot go to heaven with material things
 1. treat materials indifferently
 1. offering is the visual ***amen***
 
+### 3. treat materials harshly
 
-### 4. the method of managing materials and the judgement of JX
-- Lk7:35-50
-1. Giving materials to God is not a waste (Mk4:27-37) the Gospel to the poor
+### 4. the method of managing materials and the judgement of Christ
+- [Lk7:35-50](https://www.blueletterbible.org/niv/luk/7/35/s_980035)
+1. Giving materials to God is not a waste [Mk4:27-37](https://www.blueletterbible.org/niv/mar/4/27/s_961027) <br>
+    the Gospel to the poor
 1. sacrificing materials because one loves JX
-1. material offering is the testimony of the forgiveness of sin (Lk7:47)
+1. material offering is the testimony of the forgiveness of sin [Lk7:47](https://www.blueletterbible.org/niv/luk/7/47/s_980047)
+
 ### 5. materials for saints
-1. saints hae the right to use materials (2Co9:1-5, 12)
+1. saints have the right to use materials [2Co9:1-5](https://www.blueletterbible.org/niv/2co/9/1/s_1087001), [12](https://www.blueletterbible.org/niv/2co/9/12/s_1087012)
     - paid church-workers
     - volunteer (non-paid) church-workers
-1. saints have the right to eat with their families (Dt25:4, 1Co9:4-14)
-1. saints can offer free of charge (1Co9:15-18)
-1.  the offering ofor saints can be stressed (1Co9:11, Gal4:15)
+1. saints have the right to eat with their families [Dt25:4](https://www.blueletterbible.org/niv/deu/25/4/s_178004), [1Co9:4-14](https://www.blueletterbible.org/niv/1co/9/4/s_1071004)
+1. saints can offer free of charge [1Co9:15-18](https://www.blueletterbible.org/niv/1co/9/15/s_1071015)
+1.  the offering ofor saints can be stressed [1Co9:11](https://www.blueletterbible.org/niv/1co/9/11/s_1071011), [Gal4:15](https://www.blueletterbible.org/niv/gal/4/15/s_1095015)
 1. preachers must not worry aout what to eat
 1. saints must not work for materials
-    do not
-    - receive anythings after healing (Mt10:8)
-    - exchannge power with money (Ac8:18-20)
 
+    - do not receive anythings after healing [Mt10:8](https://www.blueletterbible.org/niv/mat/10/8/s_939008)
+    - do not exchange power with money [Ac8:18-20](https://www.blueletterbible.org/niv/act/8/18/s_1026018)
+
+### Summary
 - How you handle money is related to your faith
-- faith and wealth must be completely separated (Lk19:22)
+- faith and wealth must be completely separated [Lk19:22](https://www.blueletterbible.org/niv/luk/19/22/s_992022)
+
+---
+## Lec 45
 
 ## XI. language mediates the gospel
 |   |   ||
 |---|---|---|
-|The Word (Spirit)  |God's self-manifestation   |with God (Jn1:1)|
+|The Word (Spirit)  |God's self-manifestation   |with God [Jn1:1](https://www.blueletterbible.org/niv/jhn/1/1/s_998001)|
 |Word (sound)|carries the Word|The voice crying out in the desert|
-|Word (spiritual)|the power that moves the soul|the power of life in the soul (He4:11)|
-- Mt12:33-37
+|Word (spiritual)|the power that moves the soul|the power of life in the soul [He4:11](https://www.blueletterbible.org/niv/heb/4/11/s_1137011)|
+- [Mt12:33-37](https://www.blueletterbible.org/niv/mat/12/33/s_941033)
 
 Christians have the position of words - 1Ti3:8
 - Ac10:44

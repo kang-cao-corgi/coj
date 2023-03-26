@@ -4,138 +4,92 @@
 
 ## Scripture cannot be broken
 
-Jn10:35
-> If he called them ‘gods,’ to whom the word of God came—and Scripture cannot be set aside
+- [Jn10:35](https://www.blueletterbible.org/niv/jhn/10/35/s_1007035)
+    > If he called them ‘gods,’ to whom the word of God came—and Scripture cannot be set aside
 
-  refering to old testment, bible cannot be destroyed
-  The Word Jn1:1
+    referring to old testment, Bible cannot be destroyed
+    The Word Jn1:1
 
-Jn1:1 before creation
-> In the beginning was the Word, and the Word was with God, and the Word was God.
+#### the phrase "in the beginning" appears twice in the Bible
 
-Ge1:1 the beginning of creation
-> In the beginning God created the heavens and the earth.
+1. [Jn1:1](https://www.blueletterbible.org/niv/jhn/1/1/s_998001) before creation, an eternal "time"
+    > In the beginning was the Word, and the Word was with God, and the Word was God.
+1. [Ge1:1](https://www.blueletterbible.org/niv/gen/1/1/s_1001) the beginning of creation
+    > In the beginning God created the heavens and the earth.
 
 "In the beginning" also in Genesis1:1
 Ge1:1 beginning of creation
 Jn1:1 eternal time where there is no time, when the Word was before creation
 What is WORD? the **self-manifestation** of God, everything else was created by God. The plan of human is already there.
 
-The Word is spirit.
+### The Word is spirit.
+Bible is the way we can know God, only through the Bible, we can know the whole logos. <br>
+Those who have the Word of God are called ***gods*** [Jn10:35](https://www.blueletterbible.org/niv/jhn/10/35/s_1007035)
 
-Bible is the way we can know God, only through the Bible, we can know the whole logos.
+### What does Logos Bible institute teach?
+It teaches how to view the Bible. It teaches the word.
 
-Those who have the Word of God are called ***gods***
+### Do not re-interpret
+not like theological school, which considers various sources of interpretation
 
-What does Logos bible institute teach?<br>
-It teaches how to view the bible. It teaches the word.
-
-Do not re-interpret.
-
+---
 # Chapter 1: How to look at the Bible - the "lens"
-on way to see, on line in dial.
-zoom in and zoom out at different scope.
+importance of lens: on way to see, on line in dial. zoom in and zoom out at different scope.
 
-- the purpose of reading the bible - eternal life <br> Jn5:39
+### The purpose of reading the Bible
+eternal life [Jn5:39](https://www.blueletterbible.org/niv/jhn/5/39/s_1002039)
 > You study the Scriptures diligently because you think that in them you have eternal life. These are the very Scriptures that testify about me.
 
 eternal(no time involved, timeless) life is living like God. We must meet **Jesus** in the Bible. Bible is not an object of research. Theology, "theo" means study of God by human. We need approach the God through the Bible.
 
-- The Bible hegins with a story of **3 types of spiritual beings** that are entirely different in their essence.
+we must meet ***Jesus*** in the Bible
+
+The Bible is <u>not</u> an object of research
+
+## I.The Bible begins with a story of **3 types of spiritual beings** that are entirely different in their essence.
 
 |God|Angels|Men|
-|--|--|--|
+|---|---|---|
 |transcendant|intermediary|limited|
-the creator, the beginning and the end(Rev22:13)|ministers, servants(He1:7, 14)|partners, heirs(Rm8:17; 1Co3:9)|
+the creator, the beginning and the end [Rev22:13](https://www.blueletterbible.org/niv/rev/22/13/s_1189013)|ministers, servants [He1:7](https://www.blueletterbible.org/niv/heb/1/7/s_1134007), [14](https://www.blueletterbible.org/niv/heb/1/14/s_1134014)|partners, heirs [Rm8:17](https://www.blueletterbible.org/niv/rom/8/17/s_1054017); [1Co3:9](https://www.blueletterbible.org/niv/1co/3/9/s_1065009)|
 
-Rev22:13
-> I am the Alpha and the Omega, the First and the Last, the Beginning and the End.
-
-He1:7, 14
-> In speaking of the angels he says,
-“He makes his angels spirits,
-    and his servants flames of fire.
-
-> Are not all angels ministering spirits sent to serve those who will inherit salvation?
-
-Rm8:17
-> Now if we are children, then we are heirs—heirs of God and co-heirs with Christ, if indeed we share in his sufferings in order that we may also share in his glory.
-
-1Co3:9
-> For we are co-workers in God’s service; you are God’s field, God’s building.
-
-- the main character in the Bible is **Jesus**
-
-Jn8:56-58
+#### The main character in the Bible is **Jesus**
+- [Jn8:56-58](https://www.blueletterbible.org/niv/jhn/8/56/s_1005056)
 > Your father Abraham rejoiced at the thought of seeing my day; he saw it and was glad.” “You are not yet fifty years old,” they said to him, “and you have seen Abraham!” “Very truly I tell you,” Jesus answered, “before Abraham was born, I am!”
 
-- the purpose of the Bible is for man to know God
+### 1. The purpose of the Bible is for man to know God
+- [1Jn2:12-13](https://www.blueletterbible.org/niv/1jo/2/12/s_1161012)
 
-1Jn2:12-13
-> I am writing to you, dear children,
-    because your sins have been forgiven on account of his name. I am writing to you, fathers,
-    because you know him who is from the beginning.
-I am writing to you, young men,
-    because you have overcome the evil one.
-
-- 2 approaches to read the Bible
-
+### 2. approaches to read the Bible
 |Greek approach| Hebrew approach|
 |---|---|
 |"how?"|"why"|
 |method-driven|purpose-driven|
-|man-centered (anthropocentrism)| God-centered (throcentricism)|
+|man-centered (anthropocentrism)| God-centered (theocentricism)|
 
-"Is God for man?" vs
+"Is God for man?" vs.
 "Is man for God?"
 
-- **Eternal life** is knowing God who sent **Jesus** as the Son
-
-Jn 17:3
-> Now this is eternal life: that they know you, the only true God, and Jesus Christ, whom you have sent.
-
+#### **Eternal life** is knowing God who sent **Jesus** as the Son
+- [Jn17:3](https://www.blueletterbible.org/niv/jhn/17/3/s_1014003) <br>
 to know = to experience
-- you will konw when you receive the HS
 
-Jn14:17
-> the Spirit of truth. The world cannot accept him, because it neither sees him nor knows him. But you know him, for he lives with you and will be in you.
-
-1Co2:10-11
-> these are the things God has revealed to us by his Spirit. The Spirit searches all things, even the deep things of God. For who knows a person’s thoughts except their own spirit within them? In the same way no one knows the thoughts of God except the Spirit of God.
+#### you will know when you receive the HS
+- [Jn14:17](https://www.blueletterbible.org/niv/jhn/14/17/s_1011017)
+- [1Co2:10-11](https://www.blueletterbible.org/niv/1co/2/10/s_1064010)
 
 John's role was to introduce Jesus, after that he is finished (died).
 
-1. we must hear the words of Jesus
-1. men are destroyed for not knowing God
+#### We must hear the words of Jesus
+### 2. men are destroyed for not knowing God
+- [Hos4:6](https://www.blueletterbible.org/niv/hos/4/6/s_866006)
+- [Hos6:6](https://www.blueletterbible.org/niv/hos/6/6/s_868006)
+- [Jn16:2-3](https://www.blueletterbible.org/niv/jhn/16/2/s_1013002)
 
-Hos4:6
-> my people are destroyed from lack of knowledge.
-“Because you have rejected knowledge,
-    I also reject you as my priests;
-because you have ignored the law of your God,
-    I also will ignore your children.
-
-Hos6:6
-> For I desire mercy, not sacrifice,
-    and acknowledgment of God rather than burnt offerings.
-
-Jn16:2-3
-> They will put you out of the synagogue; in fact, the time is coming when anyone who kills you will think they are offering a service to God. They will do such things because they have not known the Father or me.
-
-3. you will know the Lord
-
-Hos2:19-20
-> I will betroth you to me forever;
-    I will betroth you in righteousness and justice,
-    in love and compassion.
-20 I will betroth you in faithfulness,
-    and you will acknowledge the Lord.
-
-1Co13:12
-> For now we see only a reflection as in a mirror; then we shall see face to face. Now I know in part; then I shall know fully, even as I am fully known.
-
-Rev3:20
-> Here I am! I stand at the door and knock. If anyone hears my voice and opens the door, I will come in and eat with that person, and they with me.
+### 3. you will know the Lord
+- [Hos2:19-20](https://www.blueletterbible.org/niv/hos/2/19/s_864019)
+- [1Co13:12](https://www.blueletterbible.org/niv/1co/13/12/s_1075012)
+- [Rev3:20](https://www.blueletterbible.org/niv/rev/3/20/s_1170020)
 
 ## Lec 2
 

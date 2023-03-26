@@ -4919,68 +4919,79 @@ church: a group of holy language
 
 ---
 # Lec 47
-## Chapter 6 the theory of the church ecclesiology
-- Mt16:18
+## Chapter 6 the theory of the church (ecclesiology)
+- [Mt16:18](https://www.blueletterbible.org/niv/mat/16/18/s_945018)
 ## I. the tabernacle (the temple, the sanctuary)
-the exodus - a shadow of the first covenant
-the first covenant - a shadow of the new covenant
+- [Ex25:8](https://www.blueletterbible.org/niv/exo/25/8/s_75008)
+    - the Exodus - a shadow of the first covenant
+    - the first covenant - a shadow of the new covenant
 
-|shadow   |  --- | true image|
-|---|---|---|
+|<shadow   |  > | true image|
+|:---:|:---:|:---:|
 |  the exodus | the first covenant  |thw new covenant|
-|the blood of the Passover|the blood of lamb (the altar| the blood of JX|
-|the Red sea| the basin | Baptism|
-|the desert life| the HP (service)| the church life|
+|the blood of the Passover <br> &darr; |the blood of lamb (the altar) <br> &darr;| the blood of JX <br> &darr;|
+|the Red sea (water) <br> &darr;| the basin <br> &darr; | baptism <br> &darr;|
+|the desert life <br> &darr;| the HP (service) <br> &darr;| the church life <br> &darr;|
 |the land of Canaan| the MHP| the Father's house|
+<br>
+- [Ex12:21](https://www.blueletterbible.org/niv/exo/12/21/s_62021)
+- [Ex14:22](https://www.blueletterbible.org/niv/exo/14/22/s_64022)
+- [Dt8:2](https://www.blueletterbible.org/niv/deu/8/2/s_161002)
 
-- Ex29:16
-- Ex29:30
-- Ex30:17-21
-- Lev16:17
-- He9:1
+<br>
+
+- [Ex29:16](https://www.blueletterbible.org/niv/exo/29/16/s_79016)
+- [Ex29:30](https://www.blueletterbible.org/niv/exo/29/30/s_79030)
+- [Ex30:17-21](https://www.blueletterbible.org/niv/exo/30/17/s_80017)
+- [Lev16:17](https://www.blueletterbible.org/niv/lev/16/17/s_106017)
+- [He9:1](https://www.blueletterbible.org/niv/heb/9/1/s_1142001)
 
 the new covenant
-- He10:19-22
-- 1Co10:2
-- 1Pe2:5
-- 1Pe3:21
-- Rm12:1-2
-- Jn14:2
+- [He10:19-22](https://www.blueletterbible.org/niv/heb/10/19/s_1143019)
+- [1Co10:2](https://www.blueletterbible.org/niv/1co/10/2/s_1072002)
+- [1Pe2:5](https://www.blueletterbible.org/niv/1pe/2/5/s_1153005)
+- [1Pe3:21](https://www.blueletterbible.org/niv/1pe/3/21/s_1154021)
+- [Rm12:1-2](https://www.blueletterbible.org/niv/rom/12/1/s_1058001)
+- [Jn14:2](https://www.blueletterbible.org/niv/jhn/14/2/s_1011002)
 
-## II. the development of the church
-### 1. the tabernacle in the desert
-- Nu5:3
-### 2. the temple of Jerusalem
-- 2Ch3:1
-- 1Ch21:18, 28
+## II. The development of the church
+### 1. The tabernacle in the desert
+- [Nu5:3](https://www.blueletterbible.org/niv/num/5/3/s_122003)
+### 2. The temple of Jerusalem
+- [2Ch3:1](https://www.blueletterbible.org/niv/2ch/3/1/s_370001)
+- [1Ch21:18](https://www.blueletterbible.org/niv/1ch/21/18/s_359018), [28](https://www.blueletterbible.org/niv/1ch/21/28/s_359028)
 ### 3. Jesus Christ Himself
-- Jn2:19, 4:21-23
-- Mt21:6
-### 4. the church
-- 1Co3:16, 6:19
+- [Jn2:19](https://www.blueletterbible.org/niv/jhn/2/19/s_999019), [4:21-23](https://www.blueletterbible.org/niv/jhn/4/21/s_1001021)
+- [Mt21:6](https://www.blueletterbible.org/niv/mat/21/6/s_950006)
+### 4. The church
+- [1Co3:16](https://www.blueletterbible.org/niv/1co/3/16/s_1065016)
+### 5. Saints
+- [1Co3:16](https://www.blueletterbible.org/niv/1co/3/16/s_1065016), [6:19](https://www.blueletterbible.org/niv/1co/6/19/s_1068019)
 
-the sanctuary of the OT is a shadow, illustration.
-- the earthly sanctuary (He9:1)
-- an ellistration for the present time (He9:9)
-- the cipies of the heavenly things (He9:23)
-- a shasdow of good things to come, not the realities themselves
+#### The sanctuary of the OT is a shadow, illustration.
+- the earthly sanctuary [He9:1](https://www.blueletterbible.org/niv/heb/9/1/s_1142001)
+- an illustration for the present time [He9:9](https://www.blueletterbible.org/niv/heb/9/9/s_1142009)
+- the copies of the heavenly things [He9:23](https://www.blueletterbible.org/niv/heb/9/23/s_1142023)
+- a shadow of good things that are coming, not the realities themselves
 
-|the fifrst covenant   |the new covenant   |
+|the first covenant   |the new covenant   |
 |---|---|
-|   made with the house of IS through Moses (Jer31:32|made through the Son (Jer31:31, He9:15)   |
-|became obsolete (He8:13)| made new (He8:13)|
-|set aside (He10:9)|established the second (He10:9)|
+|   made with the house of IS through Moses [Jer31:32](https://www.blueletterbible.org/niv/jer/31/32/s_776032)|made through the Son [Jer31:31](https://www.blueletterbible.org/niv/jer/31/31/s_776031), [He9:15](https://www.blueletterbible.org/niv/heb/9/15/s_1142015)   |
+|became obsolete [He8:13](https://www.blueletterbible.org/niv/heb/8/13/s_1141013)| made new [He8:13](https://www.blueletterbible.org/niv/heb/8/13/s_1141013)|
+|set aside [He10:9](https://www.blueletterbible.org/niv/heb/10/9/s_1143009)|established the second [He10:9](https://www.blueletterbible.org/niv/heb/10/9/s_1143009)|
 
 <br>
 
 |the sanctuary   |the true sanctuary   |
 |---|---|
-|   earthly|  not man-made (He9:11) |
-|external regulations (He9:10)|spiritual regulations (He8:10)
-|shadow, illustration, copy (He9:8, 23, 10:1)|True image, fact (He10:1)|
+|   earthly [He9:1](https://www.blueletterbible.org/niv/heb/9/1/s_1142001)|  not man-made [He9:11](https://www.blueletterbible.org/niv/heb/9/11/s_1142011) |
+|external regulations [He9:10](https://www.blueletterbible.org/niv/heb/9/10/s_1142010)|spiritual regulations [He8:10](https://www.blueletterbible.org/niv/heb/8/10/s_1141010)
+|shadow, illustration, copy [He9:9](https://www.blueletterbible.org/niv/heb/9/9/s_1142009), [23](https://www.blueletterbible.org/niv/heb/9/23/s_1142023), [10:1](https://www.blueletterbible.org/niv/heb/10/1/s_1143001)|true image, fact [He10:1](https://www.blueletterbible.org/niv/heb/10/1/s_1143001)|
 
 <br>
 
+---
+####TODO####
 |the man high priest   |the eternal high priest   |
 |---|---|
 |   death|prevented him from continuous service (He7:23) |
@@ -4988,64 +4999,76 @@ the sanctuary of the OT is a shadow, illustration.
 |(He9:25) | entered the true heaven (He7:26, 9:24)|
 |weakness| perfect|
 
+---
 <br>
 
 |blood of animals   |the blood of JX   |
 |---|---|
-|   different blood every year (He9:25|eternal sacrifice (He10:12)   |
-| impossible to take away sins (He10:4)| through one sacrifice made perfect forever (He10:14)|
+|   different blood every year [He9:25](https://www.blueletterbible.org/niv/heb/9/25/s_1142025)|eternal sacrifice [He10:12](https://www.blueletterbible.org/niv/heb/10/12/s_1143012)   |
+| impossible to take away sins [He10:4](https://www.blueletterbible.org/niv/heb/10/4/s_1143004)| through one sacrifice made perfect forever [He10:14](https://www.blueletterbible.org/niv/heb/10/14/s_1143014)|
 
-## III. the meaning of the temple
-1. the tabernacle in the desert represents the presenece of christ
-1. the principle of descerning food and evil
+- [He9:12-14](https://www.blueletterbible.org/niv/heb/9/12/s_1142012)
+
+## III. The meaning of the temple
+1. the tabernacle in the desert represents the presenece of Christ
+1. the principle of descerning good and evil
 1. the mediator between God and man
-    - Eze8:7-8
+    - [Eze8:7-8](https://www.blueletterbible.org/niv/eze/8/7/s_810007)
 1. the designation of holiness
 1. the meeting place of God and man
-    - Ex25:22
-    - Lev16:2
+    - [Ex25:22](https://www.blueletterbible.org/niv/exo/25/22/s_75022)
+    - [Lev16:2](https://www.blueletterbible.org/niv/lev/16/2/s_106002)
 1. the conversation place of God and men
-    - Ex25:22
+    - [Ex25:22](https://www.blueletterbible.org/niv/exo/25/22/s_75022)
 1. service is always present in the temple
 1. where redemption is declared
-    - Lev16:17
+    - [Lev16:17](https://www.blueletterbible.org/niv/lev/16/17/s_106017)
 1. the name of God is in the sanctuary
-    - 1Ki8:29
-    - 2Ch6:5-6
+    - [1Ki8:29](https://www.blueletterbible.org/niv/1ki/8/29/s_299029)
+    - [2Ch6:5-6](https://www.blueletterbible.org/niv/2ch/6/5/s_373005)
 
-## IV. the essence of the church
-### 1. the church of Jesus
-- Mt16:17
-- Ac20:28
-(Greek church: to be called out, gathered in God's name and chosen as His body)
+## IV. The essence of the church
+### 1. The church of Jesus
+- [Mt16:17](https://www.blueletterbible.org/niv/mat/16/17/s_945017)
+- [Ac20:28](https://www.blueletterbible.org/niv/act/20/28/s_1038028)
+(Greek church: to be called out, gathered in God's name and chosen as His body) <br>
 the church:
-    1. the body of Christ (Col1:24)
-    1. the temple of God (1Co3:16)
-    - the house of God, a pillar and foundation of the truth (1Ti3:15)
+    - the body of Christ [Col1:24](https://www.blueletterbible.org/niv/col/1/24/s_1108024)
+    - the temple of God [1Co3:16](https://www.blueletterbible.org/niv/1co/3/16/s_1065016)
+    - the house of God, a pillar and foundation of the truth [1Ti3:15](https://www.blueletterbible.org/niv/1ti/3/15/s_1122015)
 
 1. Jesus is the head of the church
-    - Eph1:22-23
+    - [Eph1:22-23](https://www.blueletterbible.org/niv/eph/1/22/s_1098022)
+    - [1Co1:2](https://www.blueletterbible.org/niv/1co/1/2/s_1063002) the church of Christ
+    - [2Co1:1](https://www.blueletterbible.org/niv/2co/1/1/s_1079001) the church of God
 
 1. the church is the body of Christ
 
-    the church is the resurrected body of Christ
-    JX and the Church share the common destiny (Mt5:11-12)
+    the church is the resurrected body of Christ <br>
+    JX and the Church share a common destiny [Mt5:11-12](https://www.blueletterbible.org/niv/mat/5/11/s_934011)
+
 1. saints are members of the church
-    the church = the body of Christ (Eph1:23)
-    saints = members of the body of Christ, "members of His body" (Eph5:30)
+
+    ***the church*** = the body of Christ [Eph1:23](https://www.blueletterbible.org/niv/eph/1/23/s_1098023) <br>
+    ***saints*** = members of the body of Christ, "members of His body" [Eph5:30](https://www.blueletterbible.org/niv/eph/5/30/s_1102030) <br>
     the church = the body of Christ = members = gathering = assembly
 
-    Gathering = assembly (Mt18:20, He2:12), the stength of Christian comes from it (Ac4:28-31, 9:31), receiving the HS takes place in it (Ac1:15, 12:12)
-    - He10:25
+    Gathering = assembly
+    - [Mt18:20](https://www.blueletterbible.org/niv/mat/18/20/s_947020)
+    - [He2:12](https://www.blueletterbible.org/niv/heb/2/12/s_1135012) the stength of Christians comes from it
+    - [Ac4:28-31](https://www.blueletterbible.org/niv/act/4/28/s_1022028), [9:31](https://www.blueletterbible.org/niv/act/9/31/s_1027031) receiving the HS takes place in it
+    - [Ac1:15](https://www.blueletterbible.org/niv/act/1/15/s_1019015), [12:12](https://www.blueletterbible.org/niv/act/12/12/s_1030012)
+    - [He10:25](https://www.blueletterbible.org/niv/heb/10/25/s_1143025)
 
----
-# Lec 48
-### 2. the 5 fuction of the church
-1. worship (Jn4:24, Rm12:1, 1Pe2:5)
-1. fellowship (Rm12:10-13)
-1. service (Eph4:12, 1Pe4:10)
-1. evangelism (2Ti4:2-5)
-1. education (1Co4:17)
+<!-- ---
+# Lec 48 -->
+
+### 2. The 5 fuctions of the church
+1. worship [Jn4:24](https://www.blueletterbible.org/niv/jhn/4/24/s_1001024), [Rm12:1](https://www.blueletterbible.org/niv/rom/12/1/s_1058001), [1Pe2:5](https://www.blueletterbible.org/niv/1pe/2/5/s_1153005)
+1. fellowship [Rm12:10-13](https://www.blueletterbible.org/niv/rom/12/10/s_1058010)
+1. service [Eph4:12](https://www.blueletterbible.org/niv/eph/4/12/s_1101012), [1Pe4:10](https://www.blueletterbible.org/niv/1pe/4/10/s_1155010)
+1. evangelism [2Ti4:2-5](https://www.blueletterbible.org/niv/2ti/4/2/s_1129002)
+1. education [1Co4:17](https://www.blueletterbible.org/niv/1co/4/17/s_1066017)
 
 #### 1. the words of the HS can only be heard in the church
 - Rev2:1-3:22

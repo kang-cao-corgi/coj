@@ -1,3 +1,609 @@
+- [Intro](#intro)
+  - [Scripture cannot be broken](#scripture-cannot-be-broken)
+      - [the phrase "in the beginning" appears twice in the Bible](#the-phrase-in-the-beginning-appears-twice-in-the-bible)
+    - [The Word is spirit.](#the-word-is-spirit)
+    - [What does Logos Bible institute teach?](#what-does-logos-bible-institute-teach)
+    - [Do not re-interpret](#do-not-re-interpret)
+- [Chapter 1: How to look at the Bible - the "lens"](#chapter-1-how-to-look-at-the-bible---the-lens)
+    - [The purpose of reading the Bible](#the-purpose-of-reading-the-bible)
+  - [I.The Bible begins with a story of **3 types of spiritual beings** that are entirely different in their essence.](#ithe-bible-begins-with-a-story-of-3-types-of-spiritual-beings-that-are-entirely-different-in-their-essence)
+      - [The main character in the Bible is **Jesus**](#the-main-character-in-the-bible-is-jesus)
+    - [1. The purpose of the Bible is for man to know God](#1-the-purpose-of-the-bible-is-for-man-to-know-god)
+    - [2. approaches to read the Bible](#2-approaches-to-read-the-bible)
+      - [**Eternal life** is knowing God who sent **Jesus** as the Son](#eternal-life-is-knowing-god-who-sent-jesus-as-the-son)
+      - [you will know when you receive the HS](#you-will-know-when-you-receive-the-hs)
+      - [We must hear the words of Jesus](#we-must-hear-the-words-of-jesus)
+    - [2. men are destroyed for not knowing God](#2-men-are-destroyed-for-not-knowing-god)
+    - [3. you will know the Lord](#3-you-will-know-the-lord)
+  - [Lec 2](#lec-2)
+    - [4. The Bible distinguishes the natural revelation and higher revelation](#4-the-bible-distinguishes-the-natural-revelation-and-higher-revelation)
+    - [The natural revelation - Rm1:19-20](#the-natural-revelation---rm119-20)
+      - [Two different views on the origin of life](#two-different-views-on-the-origin-of-life)
+    - [Evolution](#evolution)
+      - [The naturalistic view](#the-naturalistic-view)
+      - [cosmic evolution](#cosmic-evolution)
+      - [geological evolution: the nebular hypothesis](#geological-evolution-the-nebular-hypothesis)
+    - [The bibilical creation](#the-bibilical-creation)
+    - [The theory of evolution](#the-theory-of-evolution)
+    - [Fossiles](#fossiles)
+    - [Puzzles that evolution cannot solve](#puzzles-that-evolution-cannot-solve)
+      - [1. Life from non-life?](#1-life-from-non-life)
+      - [2. Information of life (is evidence for creation)](#2-information-of-life-is-evidence-for-creation)
+      - [3. Irreducible complexity](#3-irreducible-complexity)
+    - [Is evolution science?](#is-evolution-science)
+    - [Evolution and Ceation commons](#evolution-and-ceation-commons)
+    - [The higher revelation](#the-higher-revelation)
+  - [Lec 3 Culture](#lec-3-culture)
+    - [II. The human world illustated in the Bbible is about ***the mutual and exclusive*** relationship between ***culture and faith***](#ii-the-human-world-illustated-in-the-bbible-is-about-the-mutual-and-exclusive-relationship-between-culture-and-faith)
+      - [Is culture first or faith?](#is-culture-first-or-faith)
+    - [The causal relationship between culture and faith](#the-causal-relationship-between-culture-and-faith)
+    - [Heaven](#heaven)
+    - [III. The Bible differentiates ***three heavens*** that are distinct in level and describes the events that develop in them](#iii-the-bible-differentiates-three-heavens-that-are-distinct-in-level-and-describes-the-events-that-develop-in-them)
+    - [Three different heavens](#three-different-heavens)
+      - [The universe is finite](#the-universe-is-finite)
+      - [Where is God?](#where-is-god)
+      - [The universe](#the-universe)
+      - [Who governs where](#who-governs-where)
+      - ["Paradise" or "the Father's house"](#paradise-or-the-fathers-house)
+    - [Hell](#hell)
+      - [When will anyone be thrown into hell](#when-will-anyone-be-thrown-into-hell)
+      - [Where is hell](#where-is-hell)
+      - [Believers to paradise](#believers-to-paradise)
+      - ["Thy will be done on earth as it is in heaven"](#thy-will-be-done-on-earth-as-it-is-in-heaven)
+  - [Lec 4](#lec-4)
+  - [III. Religion, though unclearly, demonstrations the common organization and deeds of faith](#iii-religion-though-unclearly-demonstrations-the-common-organization-and-deeds-of-faith)
+    - [Christianity is ***not*** a religion](#christianity-is-not-a-religion)
+    - [Religiosity vs. Faith](#religiosity-vs-faith)
+      - [you cannot know God through philosophy](#you-cannot-know-god-through-philosophy)
+      - [Two approaches in Greek philosophy to understand *deity though reason*](#two-approaches-in-greek-philosophy-to-understand-deity-though-reason)
+      - [Neither philosophy nor religion can know the divine.](#neither-philosophy-nor-religion-can-know-the-divine)
+      - [The Bible offers evidence for Faith: the resurrection of Jesus](#the-bible-offers-evidence-for-faith-the-resurrection-of-jesus)
+      - [Christianity is responding to the divine call](#christianity-is-responding-to-the-divine-call)
+      - [Christianity is a faith of confession](#christianity-is-a-faith-of-confession)
+    - [1. God gave men not religion but His Son](#1-god-gave-men-not-religion-but-his-son)
+      - [regarding repentance](#regarding-repentance)
+      - [Yeshua is the Christ](#yeshua-is-the-christ)
+    - [Regarding love](#regarding-love)
+    - [2. God gave men not doctrine but fact](#2-god-gave-men-not-doctrine-but-fact)
+      - [The lord's prayer is not a catechism(教理问答)](#the-lords-prayer-is-not-a-catechism教理问答)
+      - [The content of prayer / How do we pray?](#the-content-of-prayer--how-do-we-pray)
+      - [for His events He calls men and lets them do His work](#for-his-events-he-calls-men-and-lets-them-do-his-work)
+  - [Lec 5](#lec-5)
+    - [3. The Christian mission is not a  religious method, it is declaring the gospel](#3-the-christian-mission-is-not-a--religious-method-it-is-declaring-the-gospel)
+      - [Christianity does ***NOT*** challenge](#christianity-does-not-challenge)
+      - [Ecumenism: to promote unity among the world's Christian churches](#ecumenism-to-promote-unity-among-the-worlds-christian-churches)
+    - [4. Worship is ***NOT*** a religious ritual](#4-worship-is-not-a-religious-ritual)
+      - [God does not desire sacrifice but ***obedience***](#god-does-not-desire-sacrifice-but-obedience)
+  - [V. The Bible and faith](#v-the-bible-and-faith)
+      - [1. the Bible acknoweldges the works of God through faith](#1-the-bible-acknoweldges-the-works-of-god-through-faith)
+      - [the treasure of God is in the Bible](#the-treasure-of-god-is-in-the-bible)
+      - [the Bible illusttrates that the works of God continue without breaks](#the-bible-illusttrates-that-the-works-of-god-continue-without-breaks)
+  - [Lec 6](#lec-6)
+    - [2. the Bible emphasizes obedience by faith](#2-the-bible-emphasizes-obedience-by-faith)
+    - [what is faith?](#what-is-faith)
+      - [Self-confidence (believe in the self)](#self-confidence-believe-in-the-self)
+      - [***Faith***](#faith)
+      - [Have faith in God - Mk11:22](#have-faith-in-god---mk1122)
+    - [What is faith](#what-is-faith-1)
+      - [faith is ***surrendering*** your experience even if risky and holding on to ***the Word***](#faith-is-surrendering-your-experience-even-if-risky-and-holding-on-to-the-word)
+      - [Now faith is ***the substance*** of things hoped for and ***the evidence*** of things not seen - He11:1, NKJV](#now-faith-is-the-substance-of-things-hoped-for-and-the-evidence-of-things-not-seen---he111-nkjv)
+    - [3. Those who absolutely trust the Bible as the Word of god have Godly authority Jn5:24](#3-those-who-absolutely-trust-the-bible-as-the-word-of-god-have-godly-authority-jn524)
+      - [the authority of the Son of Man](#the-authority-of-the-son-of-man)
+      - [the authority of preachers](#the-authority-of-preachers)
+      - [the right to drive out demons](#the-right-to-drive-out-demons)
+    - [4. not even a part of the Bible can be abolished/dismissed because it is all about Jesus](#4-not-even-a-part-of-the-bible-can-be-abolisheddismissed-because-it-is-all-about-jesus)
+    - [5. the Bible can be verified through faith](#5-the-bible-can-be-verified-through-faith)
+  - [The incarnation of Jesus](#the-incarnation-of-jesus)
+    - [Why did Word become ***flesh***?](#why-did-word-become-flesh)
+    - [Jesus is the Christ, the Son of the living God](#jesus-is-the-christ-the-son-of-the-living-god)
+      - [Those who deny the death of Jesus are satanic](#those-who-deny-the-death-of-jesus-are-satanic)
+      - [God testifies in heaven that Jesus is the Son of God](#god-testifies-in-heaven-that-jesus-is-the-son-of-god)
+      - [The woman testifies on earth that Jesus is the offspring of the woman](#the-woman-testifies-on-earth-that-jesus-is-the-offspring-of-the-woman)
+    - [6. Jesus fulfilled what is written in the Bible](#6-jesus-fulfilled-what-is-written-in-the-bible)
+      - [Jesus's view of the Bible](#jesuss-view-of-the-bible)
+      - [Jesus fulfilled according to the written word](#jesus-fulfilled-according-to-the-written-word)
+      - [Revelations](#revelations)
+  - [Lec 7](#lec-7)
+    - [7. the Bible was written by the inspiration of the Holy Spirit](#7-the-bible-was-written-by-the-inspiration-of-the-holy-spirit)
+    - [8. the Bible is a mirror](#8-the-bible-is-a-mirror)
+    - [9. the Bible says that God created the heavens and the earth and that He will also ***destroy*** them](#9-the-bible-says-that-god-created-the-heavens-and-the-earth-and-that-he-will-also-destroy-them)
+      - [The only "new thing" is Jesus, the truth](#the-only-new-thing-is-jesus-the-truth)
+    - [10. the Old Testment is a prophecy of the coming of the messiah; while the New Testment is a prophecy of the coming of the kingdom of Christ](#10-the-old-testment-is-a-prophecy-of-the-coming-of-the-messiah-while-the-new-testment-is-a-prophecy-of-the-coming-of-the-kingdom-of-christ)
+      - [***Prophets*** are the servants who prepared the way for ***the Messiah***](#prophets-are-the-servants-who-prepared-the-way-for-the-messiah)
+    - [11. The object of ***God's interest*** is in the Bible](#11-the-object-of-gods-interest-is-in-the-bible)
+      - [regarding Judas Iscariot](#regarding-judas-iscariot)
+      - [The purpose of the coming of the Son of God](#the-purpose-of-the-coming-of-the-son-of-god)
+      - [God's interst is in the blood of Jesus rather than in sin](#gods-interst-is-in-the-blood-of-jesus-rather-than-in-sin)
+  - [Lec 8](#lec-8)
+    - [12. Read the Bible knowing the purpose of God](#12-read-the-bible-knowing-the-purpose-of-god)
+      - [The Bible cannot be interpreted without the works of the Holy Spirit](#the-bible-cannot-be-interpreted-without-the-works-of-the-holy-spirit)
+      - [The Bilble acknowledges differences (inequalities)](#the-bilble-acknowledges-differences-inequalities)
+      - [the order of all things](#the-order-of-all-things)
+      - [the Bible is the word of the Holy Spirit](#the-bible-is-the-word-of-the-holy-spirit)
+    - [13. the Bible must be read only through the lens of the ***blood of Jesus***](#13-the-bible-must-be-read-only-through-the-lens-of-the-blood-of-jesus)
+      - [God's interest is solely in the blood](#gods-interest-is-solely-in-the-blood)
+      - [God made covenant with blood](#god-made-covenant-with-blood)
+      - [experience the event of the blood of Jesus](#experience-the-event-of-the-blood-of-jesus)
+      - [Why is the blood of Jesus important?](#why-is-the-blood-of-jesus-important)
+    - [14. when the Bible is read through the lens of ***the law***, it is God's power to ***remember sins*** ; through the lens of ***the gospel***, it is His power to ***forget sins***](#14-when-the-bible-is-read-through-the-lens-of-the-law-it-is-gods-power-to-remember-sins--through-the-lens-of-the-gospel-it-is-his-power-to-forget-sins)
+    - [the law](#the-law)
+      - [***The gospel*** is the freedom from conscience](#the-gospel-is-the-freedom-from-conscience)
+      - [the gospel](#the-gospel)
+  - [Lec 9](#lec-9)
+    - [15. the Bible is a story about the gardener](#15-the-bible-is-a-story-about-the-gardener)
+    - [16. the Bible views revelation as light](#16-the-bible-views-revelation-as-light)
+      - [John the Baptist was a lamp](#john-the-baptist-was-a-lamp)
+      - [Jesus is the light of life](#jesus-is-the-light-of-life)
+    - [17 the Bible is the father's inheritance](#17-the-bible-is-the-fathers-inheritance)
+      - [the names of God revealed in the Old Testment](#the-names-of-god-revealed-in-the-old-testment)
+      - [***Jehovah***: the name delivered and made known by ***angel***](#jehovah-the-name-delivered-and-made-known-by-angel)
+      - [the name of God is ***Yeshua***](#the-name-of-god-is-yeshua)
+      - [The name of salvation](#the-name-of-salvation)
+      - [Yeshua Immanuel](#yeshua-immanuel)
+      - [In the name of Yeshua](#in-the-name-of-yeshua)
+    - [18. the Bible says men are worth existing only as God's fellow workers](#18-the-bible-says-men-are-worth-existing-only-as-gods-fellow-workers)
+    - [19. There are three *climaxes* in the Bible](#19-there-are-three-climaxes-in-the-bible)
+      - [Climax 1. the event of the Exodus of Israel](#climax-1-the-event-of-the-exodus-of-israel)
+      - [Climax 2. the event of Jesus on the cross and the Pentecost (coming of the Holy Spirit)](#climax-2-the-event-of-jesus-on-the-cross-and-the-pentecost-coming-of-the-holy-spirit)
+      - [Climax 3. the return of Christ and resurrection of saints](#climax-3-the-return-of-christ-and-resurrection-of-saints)
+  - [Lec 10](#lec-10)
+    - [20. The Bible is the road that follows not men but Yeshua](#20-the-bible-is-the-road-that-follows-not-men-but-yeshua)
+    - [21. the Bible demonstates the absolutism of God](#21-the-bible-demonstates-the-absolutism-of-god)
+    - [22. the definition of sin in the Bible leans towards a code of conduct rather than morals](#22-the-definition-of-sin-in-the-bible-leans-towards-a-code-of-conduct-rather-than-morals)
+      - [Iniquity types](#iniquity-types)
+      - [The structure of ***the Ten Commandments***](#the-structure-of-the-ten-commandments)
+    - [23. Hebrews chapter 11 shows the ***faith*** that God demands](#23-hebrews-chapter-11-shows-the-faith-that-god-demands)
+      - [What is faith?](#what-is-faith-2)
+    - [24. the Bible has a strong sense of ***belonging***](#24-the-bible-has-a-strong-sense-of-belonging)
+    - [25. the Bible says men are God's partakers(partners, coworkers)](#25-the-bible-says-men-are-gods-partakerspartners-coworkers)
+      - [schedule - predestination - providence](#schedule---predestination---providence)
+      - [God's schedule: "the time is near" etc.](#gods-schedule-the-time-is-near-etc)
+      - [Providence](#providence)
+  - [Lec 11](#lec-11)
+    - [26. the Bible says to ***not*** miss spiritual opportunity](#26-the-bible-says-to-not-miss-spiritual-opportunity)
+    - [27. There is a common thread in the Bible](#27-there-is-a-common-thread-in-the-bible)
+      - [All books in the Bible testify about Jesus](#all-books-in-the-bible-testify-about-jesus)
+      - [Jesus is testified by:](#jesus-is-testified-by)
+      - [from Genesis to Revelation they are all about **Jesus**](#from-genesis-to-revelation-they-are-all-about-jesus)
+  - [VI - The Bible contains the ***truth***](#vi---the-bible-contains-the-truth)
+    - [1. the truth](#1-the-truth)
+      - [the truth is the law that surpasses the law of Moses](#the-truth-is-the-law-that-surpasses-the-law-of-moses)
+      - [the truth is the law that surpasses the ***natural*** law](#the-truth-is-the-law-that-surpasses-the-natural-law)
+  - [Lec 12 Signs](#lec-12-signs)
+    - [1.How do we believe the "mythical" parts of the Bible](#1how-do-we-believe-the-mythical-parts-of-the-bible)
+      - [1.1 God the Father lets us know](#11-god-the-father-lets-us-know)
+      - [1.2 How can we understand them?](#12-how-can-we-understand-them)
+      - [1) the stages by which the perfect God manifests himself](#1-the-stages-by-which-the-perfect-god-manifests-himself)
+      - [2) the Bible is writen by the inspiration of the HS 2Pe1:20-21](#2-the-bible-is-writen-by-the-inspiration-of-the-hs-2pe120-21)
+      - [3) the prophets also read the Scriptures under the instruction of the HS 1Pe1:10-11](#3-the-prophets-also-read-the-scriptures-under-the-instruction-of-the-hs-1pe110-11)
+    - [2. Can we believe the signs in "Myth"?](#2-can-we-believe-the-signs-in-myth)
+      - [1) JX saw the Father](#1-jx-saw-the-father)
+      - [2) JX is before Abraham](#2-jx-is-before-abraham)
+      - [3) all things are ruled by Him](#3-all-things-are-ruled-by-him)
+    - [3. Signs regarding judgement](#3-signs-regarding-judgement)
+    - [4. Signs regarding the Exodus](#4-signs-regarding-the-exodus)
+      - [1) the signs to separate Israel from Egypt](#1-the-signs-to-separate-israel-from-egypt)
+      - [2) God let them continually testify that He is living Jn14:26](#2-god-let-them-continually-testify-that-he-is-living-jn1426)
+      - [3) the eternal signs of God nurturing Israel](#3-the-eternal-signs-of-god-nurturing-israel)
+      - [4) the warning signs that let them overcome tests and temptations](#4-the-warning-signs-that-let-them-overcome-tests-and-temptations)
+      - [5) signs that say that God is with them](#5-signs-that-say-that-god-is-with-them)
+    - [the content of signs: ***God with us = Immanuel***](#the-content-of-signs-god-with-us--immanuel)
+  - [5. the supernatural signs in the writting](#5-the-supernatural-signs-in-the-writting)
+- [Chapter 2: The plan of God](#chapter-2-the-plan-of-god)
+  - [Lec 13](#lec-13)
+  - [I. the will of God](#i-the-will-of-god)
+    - [1. the revelation of God](#1-the-revelation-of-god)
+      - [a. those under nature Rm1:20](#a-those-under-nature-rm120)
+      - [b. Those under the Law (in the Old Testment)](#b-those-under-the-law-in-the-old-testment)
+      - [c. Those under the Gospel](#c-those-under-the-gospel)
+    - [2. Who is God?](#2-who-is-god)
+    - [3. the heaven that God created for the Son](#3-the-heaven-that-god-created-for-the-son)
+      - [1) the kingdom of God, the kingdom of heaven: the created spiritual heaven](#1-the-kingdom-of-god-the-kingdom-of-heaven-the-created-spiritual-heaven)
+      - [2) the expression of God's absolute love for the Son](#2-the-expression-of-gods-absolute-love-for-the-son)
+      - [3) the spiritual heaven is at the right hand of God](#3-the-spiritual-heaven-is-at-the-right-hand-of-god)
+      - [4) God placed the throne in heaven](#4-god-placed-the-throne-in-heaven)
+    - [4. the three-day long death of Jesus](#4-the-three-day-long-death-of-jesus)
+  - [II. God is the only ***true*** God](#ii-god-is-the-only-true-god)
+    - [1. God has no need for space](#1-god-has-no-need-for-space)
+    - [2. God has His own glory](#2-god-has-his-own-glory)
+    - [3. God has His own will](#3-god-has-his-own-will)
+  - [III. What did God put in heaven?](#iii-what-did-god-put-in-heaven)
+  - [IV. the only begotten(从父永远被生的) Son](#iv-the-only-begotten从父永远被生的-son)
+    - [1. the death and the resurrection of Jesus](#1-the-death-and-the-resurrection-of-jesus)
+    - [2. Jesus entered heaven](#2-jesus-entered-heaven)
+      - [1) Jesus did not consider equality with God something to be grasped](#1-jesus-did-not-consider-equality-with-god-something-to-be-grasped)
+      - [2) Jesus resurrected and sat on the throne](#2-jesus-resurrected-and-sat-on-the-throne)
+    - [Summary](#summary)
+  - [Lec 14](#lec-14)
+    - [V. God placed angels](#v-god-placed-angels)
+    - [1. the archangels](#1-the-archangels)
+    - [2. "the angel of the LORD"](#2-the-angel-of-the-lord)
+    - [3. Lucifer](#3-lucifer)
+      - [the perfection of the created](#the-perfection-of-the-created)
+    - [4. the universe](#4-the-universe)
+      - [the universe is finite](#the-universe-is-finite-1)
+      - [the content of Lucifer's rebellion](#the-content-of-lucifers-rebellion)
+      - [the stages of Eve's fall](#the-stages-of-eves-fall)
+      - [the devil's challenge to Jesus](#the-devils-challenge-to-jesus)
+      - [the Ten Commandments and the ethics of faith](#the-ten-commandments-and-the-ethics-of-faith)
+      - [Sheol (hades)](#sheol-hades)
+  - [Lec 15](#lec-15)
+  - [VI. The universe has a time limit](#vi-the-universe-has-a-time-limit)
+      - [the universe was created by the Triune God in one accord](#the-universe-was-created-by-the-triune-god-in-one-accord)
+      - [the Trinity:](#the-trinity)
+      - [Satan and the devil are the same person](#satan-and-the-devil-are-the-same-person)
+      - [God's method of punishment](#gods-method-of-punishment)
+      - [The Devil](#the-devil)
+      - [The Son was decided to be ***the rightousness*** in the begninning](#the-son-was-decided-to-be-the-rightousness-in-the-begninning)
+      - [The devil sinned from the beginning](#the-devil-sinned-from-the-beginning)
+      - [Redemption, salvation \& eternal life](#redemption-salvation--eternal-life)
+  - [Lec 16](#lec-16)
+  - [VII. The appearance of ***the Son of God***](#vii-the-appearance-of-the-son-of-god)
+      - [Christ is the image of God](#christ-is-the-image-of-god)
+      - [The creation of man](#the-creation-of-man)
+      - [The purpose of the Son of God coming in the flesh](#the-purpose-of-the-son-of-god-coming-in-the-flesh)
+      - [The different titles of the devil](#the-different-titles-of-the-devil)
+      - [God decided the WORD to be the RIGHTEOUNESS](#god-decided-the-word-to-be-the-righteouness)
+      - [The plan of God](#the-plan-of-god)
+      - [Men were made to receive ***grace***](#men-were-made-to-receive-grace)
+      - [The human flesh is a garment of suffering](#the-human-flesh-is-a-garment-of-suffering)
+  - [Lec 17](#lec-17)
+  - [VIII. The relationship between God and man](#viii-the-relationship-between-god-and-man)
+      - [Men are the object of God's love](#men-are-the-object-of-gods-love)
+      - [men were created a little(a little while) less/lower than the angels](#men-were-created-a-littlea-little-while-lesslower-than-the-angels)
+      - [the origin of sin is the devil](#the-origin-of-sin-is-the-devil)
+      - [Jesus and men were born for the ***same*** purpose](#jesus-and-men-were-born-for-the-same-purpose)
+      - [the duty and the right to ***be loved***](#the-duty-and-the-right-to-be-loved)
+        - ["My Father"](#my-father)
+  - [Lec 18](#lec-18)
+  - [IX. The offspring of the woman](#ix-the-offspring-of-the-woman)
+      - [***The woman*** - was deceived](#the-woman---was-deceived)
+      - [***The first Adam*** - ate the fruit - sin and death entered the spirit](#the-first-adam---ate-the-fruit---sin-and-death-entered-the-spirit)
+      - [***The last Adam*** - ***the offsrping of the woman*** - nailed sin and death to the cross - saved men, condemned the devil, ***glorified God***](#the-last-adam---the-offsrping-of-the-woman---nailed-sin-and-death-to-the-cross---saved-men-condemned-the-devil-glorified-god)
+      - [The result of Adam's sin](#the-result-of-adams-sin)
+      - [The suffering of Jesus](#the-suffering-of-jesus)
+      - [***The serpent*** - animal - no legs after his corruption](#the-serpent---animal---no-legs-after-his-corruption)
+      - [***Man*** - used by the devil and sinned - ***the offspring of Satan***](#man---used-by-the-devil-and-sinned---the-offspring-of-satan)
+  - [X. The garden of Eden](#x-the-garden-of-eden)
+      - [The Garden of Eden is an appropriate place ***for the living being***'s spiritual life](#the-garden-of-eden-is-an-appropriate-place-for-the-living-beings-spiritual-life)
+  - [Lec 19](#lec-19)
+  - [XI. God's plan for man (the function of man and Adam)](#xi-gods-plan-for-man-the-function-of-man-and-adam)
+    - [1. the plan for the form of man](#1-the-plan-for-the-form-of-man)
+      - [Adam](#adam)
+      - [The sons of God and the daughters of men, and the Nephilim](#the-sons-of-god-and-the-daughters-of-men-and-the-nephilim)
+      - [Man's work and the Spirit's work](#mans-work-and-the-spirits-work)
+      - [the flesh, the soul and the spirit](#the-flesh-the-soul-and-the-spirit)
+      - [the person(a)](#the-persona)
+      - [The great judgement](#the-great-judgement)
+  - [XII. the righteousness of God](#xii-the-righteousness-of-god)
+      - [righteousness (law)](#righteousness-law)
+      - [different interpretations of sin](#different-interpretations-of-sin)
+      - [The origin of sin is devil](#the-origin-of-sin-is-devil)
+  - [Lec 20](#lec-20)
+      - [The Fruit of Tree of knowledge of Good and Evil](#the-fruit-of-tree-of-knowledge-of-good-and-evil)
+      - [The Fruit of the tree of life](#the-fruit-of-the-tree-of-life)
+      - [Satanic sin and disobedient sin](#satanic-sin-and-disobedient-sin)
+  - [XIII. The spirit of man is transmitted](#xiii-the-spirit-of-man-is-transmitted)
+      - [(the spirit of man and the redemption of Christ)](#the-spirit-of-man-and-the-redemption-of-christ)
+      - [Theories on the transmission of the spirit](#theories-on-the-transmission-of-the-spirit)
+      - [Different types of sins](#different-types-of-sins)
+      - [Redemption and the Forgiveness of Sin](#redemption-and-the-forgiveness-of-sin)
+  - [Lec 21](#lec-21)
+  - [XIV. The fig leaves and the garments of skin (human civilization and spiritual grace)](#xiv-the-fig-leaves-and-the-garments-of-skin-human-civilization-and-spiritual-grace)
+      - [Apple:](#apple)
+    - [***How it applies to the modern life***](#how-it-applies-to-the-modern-life)
+  - [XV. The day God made holy](#xv-the-day-god-made-holy)
+    - [Two types of God's ***blessings*** at creation](#two-types-of-gods-blessings-at-creation)
+  - [ ↑ all will end](#--all-will-end)
+    - [The Sabbath and the Holy Day](#the-sabbath-and-the-holy-day)
+    - [The essence of the Sabbath is holiness](#the-essence-of-the-sabbath-is-holiness)
+    - [Yeshua is the Lord of rest](#yeshua-is-the-lord-of-rest)
+    - [the Sabbath and the Lord's day](#the-sabbath-and-the-lords-day)
+      - [The day He made holy (kadosh)](#the-day-he-made-holy-kadosh)
+      - [The resurrection of Jesus](#the-resurrection-of-jesus)
+    - [Saints](#saints)
+    - [The importance of the holy day](#the-importance-of-the-holy-day)
+      - [Remembrance](#remembrance)
+      - [Why we need to keep the Lord's day](#why-we-need-to-keep-the-lords-day)
+      - [How do we keep it holy?](#how-do-we-keep-it-holy)
+  - [Lec 22](#lec-22)
+  - [XVI. The sons of God and the daughters of men (the afterlife)](#xvi-the-sons-of-god-and-the-daughters-of-men-the-afterlife)
+    - [Three origins/categories of men](#three-originscategories-of-men)
+    - [The descendants of Seth](#the-descendants-of-seth)
+    - [The life after death](#the-life-after-death)
+    - [The world in the life after death](#the-world-in-the-life-after-death)
+    - [Orders of resurrection:](#orders-of-resurrection)
+    - [Unbelievers after death](#unbelievers-after-death)
+    - [Saints after death](#saints-after-death)
+  - [XVII. The death of the first Adam and the resurrection of the last Adam](#xvii-the-death-of-the-first-adam-and-the-resurrection-of-the-last-adam)
+    - [The important connection between the first Adam and the last Adam](#the-important-connection-between-the-first-adam-and-the-last-adam)
+    - [1. The death of Jesus](#1-the-death-of-jesus)
+    - [The outcome of the death of Jesus on the cross](#the-outcome-of-the-death-of-jesus-on-the-cross)
+    - [2. The resurrection of Jesus](#2-the-resurrection-of-jesus)
+    - [The power of the resurrection of Jesus](#the-power-of-the-resurrection-of-jesus)
+    - [The first Adam and the last Adam connections](#the-first-adam-and-the-last-adam-connections)
+      - [Redemption and the forgeveness of sin](#redemption-and-the-forgeveness-of-sin)
+  - [Lec 23](#lec-23)
+  - [XVIII. The *Holy Spirit* in the time of grace](#xviii-the-holy-spirit-in-the-time-of-grace)
+    - [Major Biblical eras](#major-biblical-eras)
+    - [the millennium](#the-millennium)
+      - [Three interpretations of millennium](#three-interpretations-of-millennium)
+    - [The death of Jesus](#the-death-of-jesus)
+    - [The Holy Spirit of Grace](#the-holy-spirit-of-grace)
+    - [The sign of Jonah](#the-sign-of-jonah)
+    - [Christians in the era of Grace](#christians-in-the-era-of-grace)
+    - [The new commandment](#the-new-commandment)
+  - [Lec24](#lec24)
+  - [XIX. The dispensation of God](#xix-the-dispensation-of-god)
+    - [The timetable of God](#the-timetable-of-god)
+    - [Testimonies](#testimonies)
+    - [The second coming of JX and its signs (the apocalypse)](#the-second-coming-of-jx-and-its-signs-the-apocalypse)
+  - [Lec 25](#lec-25)
+  - [XX. the second coming of Jesus Christ](#xx-the-second-coming-of-jesus-christ)
+    - [The time of the second coming](#the-time-of-the-second-coming)
+    - [Is the Sesond Coming ***before*** the tribulation or ***after***?](#is-the-sesond-coming-before-the-tribulation-or-after)
+    - ["the Man of Lawlessness"](#the-man-of-lawlessness)
+    - [The order of the second coming](#the-order-of-the-second-coming)
+  - [XXI. The Great Judgement](#xxi-the-great-judgement)
+- [Chapter 3: Spiritual beings](#chapter-3-spiritual-beings)
+  - [Lec 26](#lec-26)
+  - [I. The theory of angels](#i-the-theory-of-angels)
+    - [1. The beginning of angels](#1-the-beginning-of-angels)
+      - [How do they live?](#how-do-they-live)
+    - [2. The characteristics of angels](#2-the-characteristics-of-angels)
+  - [Lec 27](#lec-27)
+  - [3. Different types of angels and their roles](#3-different-types-of-angels-and-their-roles)
+    - [3.1 One's own angels](#31-ones-own-angels)
+      - [The number of angels varies by the size of one's ***spiritual*** activity](#the-number-of-angels-varies-by-the-size-of-ones-spiritual-activity)
+      - [Angels help saints](#angels-help-saints)
+      - [Praise](#praise)
+      - [The life of saints = angels ministering(侍候) them](#the-life-of-saints--angels-ministering侍候-them)
+    - [3.2 Jesus and angels](#32-jesus-and-angels)
+    - [3.3 Man's death and angel](#33-mans-death-and-angel)
+    - [4. Different titles of evil spirits](#4-different-titles-of-evil-spirits)
+      - [4.1 Symbolic titles](#41-symbolic-titles)
+      - [4.2 Titles by work](#42-titles-by-work)
+    - [5. The work of satan](#5-the-work-of-satan)
+      - [Cults vs. Christianity](#cults-vs-christianity)
+      - [Well-known cults/heretics](#well-known-cultsheretics)
+  - [Lec 28](#lec-28)
+    - [6. the organization of Satan](#6-the-organization-of-satan)
+    - [7. Deceiving spirits](#7-deceiving-spirits)
+      - [Angels](#angels)
+      - [King Saul](#king-saul)
+      - [King Ahab](#king-ahab)
+      - [Balaam](#balaam)
+      - [Works of deceiving spirits](#works-of-deceiving-spirits)
+      - [How can we resist deceiving spirits](#how-can-we-resist-deceiving-spirits)
+  - [Lec 29](#lec-29)
+  - [II. Demonology](#ii-demonology)
+    - [1. The identity of demons](#1-the-identity-of-demons)
+      - [The life after death](#the-life-after-death-1)
+      - [Believers' life-after-death](#believers-life-after-death)
+      - [Unbelievers' life-after-death](#unbelievers-life-after-death)
+      - [1.1. Sheol](#11-sheol)
+      - [The order of entering *HELL*](#the-order-of-entering-hell)
+      - [1.2. the dead](#12-the-dead)
+      - [1.3. the natural lifespan](#13-the-natural-lifespan)
+      - [Where is the devil now?](#where-is-the-devil-now)
+    - [2. The activities of demons](#2-the-activities-of-demons)
+  - [Lec 30](#lec-30)
+    - [3. The characteristics of demons](#3-the-characteristics-of-demons)
+      - [3.1. They display the character and the knowledge they had in life](#31-they-display-the-character-and-the-knowledge-they-had-in-life)
+      - [3.2. They want to be ***consoled***](#32-they-want-to-be-consoled)
+      - [3.3. Their characteristics are the same as those of the devil](#33-their-characteristics-are-the-same-as-those-of-the-devil)
+      - [3.4. They enter by ***my*** free will](#34-they-enter-by-my-free-will)
+      - [3.5. their weapon is the denial of their existence](#35-their-weapon-is-the-denial-of-their-existence)
+    - [4. The method of demon's invasion](#4-the-method-of-demons-invasion)
+      - [4.1 Follows man's ***free will***](#41-follows-mans-free-will)
+      - [4.2 Puts ***deceiving spirits*** into motion](#42-puts-deceiving-spirits-into-motion)
+      - [The process of demon's invasion](#the-process-of-demons-invasion)
+    - [the remedy for healing is ***repentance***](#the-remedy-for-healing-is-repentance)
+      - [Destroy fixed ideas](#destroy-fixed-ideas)
+    - [5. Demons cause sickness](#5-demons-cause-sickness)
+      - [The devil causes sickness](#the-devil-causes-sickness)
+  - [Lec 31](#lec-31)
+    - [6. Casting out demons is exercising authority](#6-casting-out-demons-is-exercising-authority)
+      - [Miracles](#miracles)
+      - [The authority of JX](#the-authority-of-jx)
+      - [The Holy Spirit the Ruler](#the-holy-spirit-the-ruler)
+      - [The name of ***Yeshua*** is authority](#the-name-of-yeshua-is-authority)
+      - [Spiritual authority](#spiritual-authority)
+      - [Follow-up](#follow-up)
+  - [III. The theory of the Holy Spirit (pneumatology)](#iii-the-theory-of-the-holy-spirit-pneumatology)
+    - [1. the Holy Spirit is the person of God](#1-the-holy-spirit-is-the-person-of-god)
+      - [Jesus honored the Holy Spirit](#jesus-honored-the-holy-spirit)
+      - [the HS is confined in His work](#the-hs-is-confined-in-his-work)
+  - [Lec 32](#lec-32)
+    - [2. the Holy Spirit is one person of the triune(trinity) God](#2-the-holy-spirit-is-one-person-of-the-triunetrinity-god)
+      - [He is one with God](#he-is-one-with-god)
+    - [3. The Holy Spirit is the counselor](#3-the-holy-spirit-is-the-counselor)
+      - [3.1 the Counselor (Defender)](#31-the-counselor-defender)
+      - [Why we must defend Jesus](#why-we-must-defend-jesus)
+      - [3.2 the Comforter](#32-the-comforter)
+      - [3.3 the Advocate (pro bono counselor)](#33-the-advocate-pro-bono-counselor)
+      - [Jesus Himself is a Counselor](#jesus-himself-is-a-counselor)
+  - [Lec 33](#lec-33)
+    - [4. the counselor Holy Spirit and Baptism](#4-the-counselor-holy-spirit-and-baptism)
+      - [4.1 John's baptism](#41-johns-baptism)
+      - [4.2 the baptism of JX](#42-the-baptism-of-jx)
+      - [4.3 Baptism in the name of Yeshua](#43-baptism-in-the-name-of-yeshua)
+      - [4.4 Baptism with the Holy Spirit](#44-baptism-with-the-holy-spirit)
+  - [IV. The holy spirit and the church](#iv-the-holy-spirit-and-the-church)
+      - [What the spirit says to the churches](#what-the-spirit-says-to-the-churches)
+  - [V. Being filled with the HS](#v-being-filled-with-the-hs)
+      - [The state of being filled with the HS](#the-state-of-being-filled-with-the-hs)
+  - [Lec 34](#lec-34)
+  - [VI. the Holy Spirit and gifts](#vi-the-holy-spirit-and-gifts)
+      - [The ***gift*** Holy Spirit and the ***counselor*** Holy Spirit](#the-gift-holy-spirit-and-the-counselor-holy-spirit)
+      - [***the words*** of the Bible to be given authority](#the-words-of-the-bible-to-be-given-authority)
+      - [signs](#signs)
+      - [1.speaking in tongues](#1speaking-in-tongues)
+      - [the content of tongues](#the-content-of-tongues)
+      - [2. Gifts of healing](#2-gifts-of-healing)
+      - [3. Prophecy](#3-prophecy)
+      - [***positive*** sides to prophecies](#positive-sides-to-prophecies)
+      - [***negative*** sides to prophecies](#negative-sides-to-prophecies)
+  - [Lec 35](#lec-35)
+- [Chapter 4 The gospel](#chapter-4-the-gospel)
+      - [God and the Son of God](#god-and-the-son-of-god)
+      - [All things are for the Son of God 1Co15:27-28](#all-things-are-for-the-son-of-god-1co1527-28)
+  - [I. sin is being deceived](#i-sin-is-being-deceived)
+      - [Satan deceived himself](#satan-deceived-himself)
+      - [Pride is deceiving oneself](#pride-is-deceiving-oneself)
+      - [God punishes the proud](#god-punishes-the-proud)
+    - [Summary](#summary-1)
+  - [II. The fruit of the knowledge of good and evil and the perfect script of the gospel](#ii-the-fruit-of-the-knowledge-of-good-and-evil-and-the-perfect-script-of-the-gospel)
+      - [the fall of the devil](#the-fall-of-the-devil)
+  - [III. Proclaiming the gospel](#iii-proclaiming-the-gospel)
+    - [1. Proclaiming the gospel is proclaiming the purpose of God](#1-proclaiming-the-gospel-is-proclaiming-the-purpose-of-god)
+      - [The Law vs the Gospel](#the-law-vs-the-gospel)
+      - [The law is good](#the-law-is-good)
+  - [Lec 36](#lec-36)
+    - [the law is good](#the-law-is-good-1)
+    - [the gospel emphasizes the grace of the blood](#the-gospel-emphasizes-the-grace-of-the-blood)
+    - [2. The ears that heard the gospel are equal](#2-the-ears-that-heard-the-gospel-are-equal)
+    - [3. The attitude for receiving the gospel](#3-the-attitude-for-receiving-the-gospel)
+      - [Circumcision](#circumcision)
+      - [Dietary customs](#dietary-customs)
+      - [Blessings](#blessings)
+    - [4. The condemnation under the gospel](#4-the-condemnation-under-the-gospel)
+    - [5. Preaching the gospel is reminding of the past](#5-preaching-the-gospel-is-reminding-of-the-past)
+      - [Women in the early church](#women-in-the-early-church)
+    - [6. Preaching the gospel is transforming](#6-preaching-the-gospel-is-transforming)
+      - [Transformation](#transformation)
+    - [7. Preaching the gospel is ***breathing*** the power of God into them](#7-preaching-the-gospel-is-breathing-the-power-of-god-into-them)
+      - [God breathed into them](#god-breathed-into-them)
+  - [Lec 37](#lec-37)
+- [Chapter 5 Mediating the gospel](#chapter-5-mediating-the-gospel)
+  - [I. ***Worship*** mediates the gospel](#i-worship-mediates-the-gospel)
+    - [1. Definition](#1-definition)
+    - [1. the sacrifice in the OT](#1-the-sacrifice-in-the-ot)
+    - [2. the living sacrifice of NT](#2-the-living-sacrifice-of-nt)
+      - [Worship in spirit and in truth](#worship-in-spirit-and-in-truth)
+      - [Moses saw the back of God](#moses-saw-the-back-of-god)
+    - [3. The history of worship](#3-the-history-of-worship)
+      - ["In spirit and in truth"](#in-spirit-and-in-truth)
+      - [worship is holy "chaos"](#worship-is-holy-chaos)
+    - [4. The elements of worship](#4-the-elements-of-worship)
+    - [5. The content of worship](#5-the-content-of-worship)
+  - [Lec 38](#lec-38)
+  - [II. Sacraments - mediate the gospel](#ii-sacraments---mediate-the-gospel)
+      - [The method of God's salf-manifestation](#the-method-of-gods-salf-manifestation)
+    - [Communion and baptism](#communion-and-baptism)
+    - [Importance of baptism](#importance-of-baptism)
+    - [4. The meaning](#4-the-meaning)
+    - [5. The method](#5-the-method)
+      - [Is baptism necessary for ***salvation***?](#is-baptism-necessary-for-salvation)
+    - [Communion](#communion)
+      - [Communion is a ***communal*** event](#communion-is-a-communal-event)
+- [Lec 39](#lec-39)
+  - [III. ***Feasts*** mediate the gospel](#iii-feasts-mediate-the-gospel)
+    - [The feasts in the Old Testment](#the-feasts-in-the-old-testment)
+    - [The historicity and the meaning of feasts](#the-historicity-and-the-meaning-of-feasts)
+    - [The essence of the santuary is holiness](#the-essence-of-the-santuary-is-holiness)
+    - [The Lord's day](#the-lords-day)
+  - [IV. ***Blood*** mediate the godpel](#iv-blood-mediate-the-godpel)
+    - [1. The covenant of blood](#1-the-covenant-of-blood)
+      - [God is more interested in blood than sin](#god-is-more-interested-in-blood-than-sin)
+    - [2. The works of blood](#2-the-works-of-blood)
+  - [Lec 40](#lec-40)
+  - [V. God mediating the gospel through ***characters***](#v-god-mediating-the-gospel-through-characters)
+    - [the history of characters](#the-history-of-characters)
+      - [Who is a servant(preacher)?](#who-is-a-servantpreacher)
+  - [VI. ***Healing*** mediates the gospel](#vi-healing-mediates-the-gospel)
+      - [The public work of Jesus is the work He did in His flesh](#the-public-work-of-jesus-is-the-work-he-did-in-his-flesh)
+    - [2. Healing is God's power](#2-healing-is-gods-power)
+    - [3. Healing is encountering God](#3-healing-is-encountering-god)
+      - [Not seeking God's healing is curse](#not-seeking-gods-healing-is-curse)
+      - [Those who return to God encounter healing](#those-who-return-to-god-encounter-healing)
+    - [4. healing is a portion of salvation](#4-healing-is-a-portion-of-salvation)
+      - [The words of JX are spiritual: the life supplied to the spirit](#the-words-of-jx-are-spiritual-the-life-supplied-to-the-spirit)
+  - [VII. ***Spiritual inspiration*** mediates the gospel](#vii-spiritual-inspiration-mediates-the-gospel)
+      - [Saints must have ***greater*** inspiration than the Israelites](#saints-must-have-greater-inspiration-than-the-israelites)
+      - [How do we acquire spiritual inspiration?](#how-do-we-acquire-spiritual-inspiration)
+      - [***Humility*** is a spiritual qualification](#humility-is-a-spiritual-qualification)
+      - [Spiritual inspiration is the power to ***submit oneself***](#spiritual-inspiration-is-the-power-to-submit-oneself)
+  - [Lec 42](#lec-42)
+  - [VIII. ***Writings*** mediate the gospel](#viii-writings-mediate-the-gospel)
+    - [The Bible and the Epistles](#the-bible-and-the-epistles)
+      - [The Bible](#the-bible)
+      - [The Epistles (宗徒书信)](#the-epistles-宗徒书信)
+      - [The Bible was written by those ***inspired*** by the HS](#the-bible-was-written-by-those-inspired-by-the-hs)
+      - [Three levels of God's revelation](#three-levels-of-gods-revelation)
+    - [The writing of the Bible: Hebrew (OT) and Greek](#the-writing-of-the-bible-hebrew-ot-and-greek)
+      - [The Hebrew language](#the-hebrew-language)
+      - [The Greek language](#the-greek-language)
+    - [1. the Bible does not deliver talk but events](#1-the-bible-does-not-deliver-talk-but-events)
+    - [The content of the entire Bible](#the-content-of-the-entire-bible)
+      - [The unique quality of the Bible](#the-unique-quality-of-the-bible)
+    - [2. the Bible cannot be broken](#2-the-bible-cannot-be-broken)
+    - [3. The writings preach to the churches](#3-the-writings-preach-to-the-churches)
+    - [4. The methods of the writing](#4-the-methods-of-the-writing)
+    - [5. To preach the word, read the writings](#5-to-preach-the-word-read-the-writings)
+    - [6. The writing is spread quickly](#6-the-writing-is-spread-quickly)
+    - [7. Those who studied the writings](#7-those-who-studied-the-writings)
+      - [The basis of the Christian faith](#the-basis-of-the-christian-faith)
+  - [Lec 43](#lec-43)
+  - [IX. Man (flesh) mediates the gospel](#ix-man-flesh-mediates-the-gospel)
+    - [1. the plan of God](#1-the-plan-of-god)
+    - [2. the victory of God](#2-the-victory-of-god)
+    - [3. Gods sends saints out](#3-gods-sends-saints-out)
+  - [Lec 44. ***Materials*** mediate the gospel](#lec-44-materials-mediate-the-gospel)
+  - [God created all things](#god-created-all-things)
+    - [1.The fruit of the tree of  the knowledge of good and evil indicates the limits to materials](#1the-fruit-of-the-tree-of--the-knowledge-of-good-and-evil-indicates-the-limits-to-materials)
+    - [2. God taught the principle of using materials](#2-god-taught-the-principle-of-using-materials)
+    - [3. the material you give to God is surely rewarded with materials](#3-the-material-you-give-to-god-is-surely-rewarded-with-materials)
+  - [2. God's view of materials](#2-gods-view-of-materials)
+    - [1. the receiver of material offerings](#1-the-receiver-of-material-offerings)
+    - [2. you cannot go to heaven with material things](#2-you-cannot-go-to-heaven-with-material-things)
+    - [3. treat materials harshly](#3-treat-materials-harshly)
+    - [4. the method of managing materials and the judgement of Christ](#4-the-method-of-managing-materials-and-the-judgement-of-christ)
+    - [5. materials for saints](#5-materials-for-saints)
+    - [Summary](#summary-2)
+  - [Lec 45](#lec-45)
+  - [XI. language mediates the gospel](#xi-language-mediates-the-gospel)
+    - [1. Biblical ethics on Words](#1-biblical-ethics-on-words)
+    - [2. language of faith fixes faith and seizes faithlessness](#2-language-of-faith-fixes-faith-and-seizes-faithlessness)
+    - [3. the language of faith is repeating the words of JX](#3-the-language-of-faith-is-repeating-the-words-of-jx)
+- [Lec 46](#lec-46)
+    - [3. the posituve sides to language](#3-the-posituve-sides-to-language)
+    - [4. negative side to language](#4-negative-side-to-language)
+  - [3. languages protect nations](#3-languages-protect-nations)
+    - [1. the confusion of language has a great meaning in protecting the Hebrew language (Ex34:15)](#1-the-confusion-of-language-has-a-great-meaning-in-protecting-the-hebrew-language-ex3415)
+    - [2. the providence of the Hebrew people (Dt7:2)](#2-the-providence-of-the-hebrew-people-dt72)
+    - [4. language unifies the world](#4-language-unifies-the-world)
+    - [8. discipling language](#8-discipling-language)
+    - [9. the language of the modern people of faith](#9-the-language-of-the-modern-people-of-faith)
+- [Lec 47](#lec-47)
+  - [Chapter 6 the theory of the church (ecclesiology)](#chapter-6-the-theory-of-the-church-ecclesiology)
+  - [I. the tabernacle (the temple, the sanctuary)](#i-the-tabernacle-the-temple-the-sanctuary)
+  - [II. The development of the church](#ii-the-development-of-the-church)
+    - [1. The tabernacle in the desert](#1-the-tabernacle-in-the-desert)
+    - [2. The temple of Jerusalem](#2-the-temple-of-jerusalem)
+    - [3. Jesus Christ Himself](#3-jesus-christ-himself)
+    - [4. The church](#4-the-church)
+    - [5. Saints](#5-saints)
+      - [The sanctuary of the OT is a shadow, illustration.](#the-sanctuary-of-the-ot-is-a-shadow-illustration)
+  - [III. The meaning of the temple](#iii-the-meaning-of-the-temple)
+  - [IV. The essence of the church](#iv-the-essence-of-the-church)
+    - [1. The church of Jesus](#1-the-church-of-jesus)
+    - [2. The 5 fuctions of the church](#2-the-5-fuctions-of-the-church)
+      - [1. the words of the HS can only be heard in the church](#1-the-words-of-the-hs-can-only-be-heard-in-the-church)
+      - [2. only in the church is the sealing of the HS](#2-only-in-the-church-is-the-sealing-of-the-hs)
+      - [3. only in the church one can wash his hands and feet (sanctification)](#3-only-in-the-church-one-can-wash-his-hands-and-feet-sanctification)
+      - [4. only the offering given in the name of Yeshua is acknowledged](#4-only-the-offering-given-in-the-name-of-yeshua-is-acknowledged)
+      - [5. only the paryer done in the Church is answered](#5-only-the-paryer-done-in-the-church-is-answered)
+      - [6. only the service done in the Church is received](#6-only-the-service-done-in-the-church-is-received)
+      - [7. one can grow only in the church](#7-one-can-grow-only-in-the-church)
+      - [8. the name of the Father, of the Son, and of the HS is in the Church](#8-the-name-of-the-father-of-the-son-and-of-the-hs-is-in-the-church)
+    - [3. the mission of the church](#3-the-mission-of-the-church)
+    - [SENT](#sent)
+      - [the pringciple of sending](#the-pringciple-of-sending)
+    - [4. the authority of the church](#4-the-authority-of-the-church)
+
+
+
 ## Lec 1
 
 # Intro
@@ -91,37 +697,36 @@ John's role was to introduce Jesus, after that he is finished (died).
 - [1Co13:12](https://www.blueletterbible.org/niv/1co/13/12/s_1075012)
 - [Rev3:20](https://www.blueletterbible.org/niv/rev/3/20/s_1170020)
 
+---
 ## Lec 2
 
-### The bible distinguishes the natural revelation and higher revelation
+### 4. The Bible distinguishes the natural revelation and higher revelation
 
-| natural revelation   | higher revelation      |
-| -------------------- | ---------------------- |
-| the Creator          | the Savior             |
-| through the creation | through the Son        |
-| to all               | to believers           |
-| Ge1:1; Rm 1:19-20;    | Jn1:1-3,14,18; He1:1-2 |
+| natural revelation | higher revelation |
+| --- | --- |
+| the Creator | the Savior |
+| through the creation | through the Son |
+| to all | to believers |
+| [Ge1:1](https://www.blueletterbible.org/niv/gen/1/1/s_1001); [Rm1:19-20](https://www.blueletterbible.org/niv/rom/1/19/s_1047019) | [Jn1:1-3](https://www.blueletterbible.org/niv/jhn/1/1/s_998001),[14](https://www.blueletterbible.org/niv/jhn/1/14/s_998014),[18](https://www.blueletterbible.org/niv/jhn/1/18/s_998018); [He1:1-2](https://www.blueletterbible.org/niv/heb/1/1/s_1134001) |
 
 - higher revelation can only be received after natural revelation.
   eg. knowledge believe
 
-### The natural revelation - Rm1:19-20
+### The natural revelation - [Rm1:19-20](https://www.blueletterbible.org/niv/rom/1/19/s_1047019)
 
-- two different views on the origin of life
-  1. evolution - everything created w/o creator
-  1. creation
+#### Two different views on the origin of life
+1. evolution - everything created w/o creator, highlights random process
+1. creation <br>
 
----
-### evolution
-
+### Evolution
 Everything formed w/o direction.
-the naturalistic view
+#### The naturalistic view
 - progressive creation: burst
 - theistic evolution: god: let there be creatures, let it happen and evolve - directed evolution
 - atheistic evolution: plain evolution learned in school
 
   #### cosmic evolution
-  - the bigbang theory, the universe started with a small **singularity**, then inflated over the next 13.8 billion years to the cosmos of today.
+  - the Big Bang Theory, the universe started with a small **singularity**, then inflated over the next 13.8 billion years to the cosmos of today.
   - but where did that singularity come from? multi-verse theory, Steve Hawkin - shrink boundary proposal
   #### geological evolution: the nebular hypothesis
   - the solar system formed from a swirling cloud of gas and dust 4.6 billion years ago.
@@ -131,7 +736,7 @@ the naturalistic view
   - the solar-nebular model sats eath was formed about 4.5 billion years ago
   - but its strong magnetic field too little sodium in the sea, intact DNA in fossils etc all indicate a YOUNG earth
 
-    #### The Earth uniqely designed to be our home (Is45:18)
+    #### The Earth uniqely designed to be our home [Is45:18](https://www.blueletterbible.org/niv/isa/45/18/s_724018)
     - its strong magnetic field protects us from harmful solar radiation
     - its atmosphere gives us air to breathe
     - our sun is perfectly located within our galaxy; our planet is perfectly located within our solar system
@@ -155,12 +760,14 @@ the naturalistic view
 - Adam and Eve
 - The global flood etc
 
-- Ge 1:1 " In the beginning God created the heavens and the earth."
+- [Ge1:1](https://www.blueletterbible.org/niv/gen/1/1/s_1001) " In the beginning God created the heavens and the earth."
 - "Day" = YOM (Hebrew)  = A Solar day
 
-  Ex20:11
+  [Ex20:11](https://www.blueletterbible.org/niv/exo/20/11/s_70011)
   > For in six days the Lord made the heavens and the earth, the sea, and all that is in them, but he rested on the seventh day. Therefore the Lord blessed the Sabbath day and made it holy.
+
 ---
+
 ### The theory of evolution
   Over a **gradual time-consuming** process a new speies arises from an existing one trough random spontaneous genetic mutations that give a surviaval advantae in to hostile environment
 
@@ -170,32 +777,33 @@ the naturalistic view
   - No found examples of in-between kinds: missing links? ***trasitional fossils***
   - The Archaeopteryx: a dinosaur or a bird?
 
-  ### Puzzles that evolution cannot solve
-    #### 1. Life from non-life?
-    - The formation of the first living things that comes from nothing cannot be explained.
+### Puzzles that evolution cannot solve
 
-    #### 2. Information of life (is evidence for creation)
-    - the information that is required to run all the physical parts of life cannot be explained
-    - the vast amount of the instructions stored in DNA had to come from preexisting information
-    - what is information?
-      - the basic ingredient producing anything functional in the world
-      - the key to functionality is organization
-      - the fundamental building block of the created universe
+#### 1. Life from non-life?
+- The formation of the first living things that comes from nothing cannot be explained.
 
-    #### 3. Irreducible complexity
-    Q: 99% human DNA being alike proves nothing of God's Design
-    - it challenges the notion of evolutionary process that requires every complex component of life arising step-by-step
-    - *Michael J. Behe* quote
-    - species that disapprove evolutionism
-      - the bombardier beattle: 2 chambers
-      - giraffe, the valve to prevent blood flowing to head when it bows down
-      - leaf-cutter ant
-    - is evolution science?
-    - Scientific approach
-      - objective observation
-      - experiment: causal relationship criteria analysis
-      - evidence
-      - demostration: theories and laws
+#### 2. Information of life (is evidence for creation)
+- the information that is required to run all the physical parts of life cannot be explained
+- the vast amount of the instructions stored in DNA had to come from preexisting information
+- what is information?
+    - the basic ingredient producing anything functional in the world
+    - the key to functionality is organization
+    - the fundamental building block of the created universe
+
+#### 3. Irreducible complexity
+Q: 99% human DNA being alike proves nothing of God's Design
+- it challenges the notion of evolutionary process that requires every complex component of life arising step-by-step
+- *Michael J. Behe* quote
+- species that disapprove evolutionism
+    - the bombardier beattle: 2 chambers
+    - giraffe, the valve to prevent blood flowing to head when it bows down
+    - leaf-cutter ant
+- is evolution science?
+- Scientific approach
+    - objective observation
+    - experiment: causal relationship criteria analysis
+    - evidence
+    - demostration: theories and laws
 
   ### Is evolution science?
   scientific method:
@@ -232,19 +840,18 @@ Evolution denies the role of God in the universe
 
 ## Lec 3 Culture
 
+### II. The human world illustated in the Bbible is about ***the mutual and exclusive*** relationship between ***culture and faith***
 
-### the human world illustated in the bible is about the mutual and exclusive relationship between culture and faith
-
-Is culture first or faith?
+#### Is culture first or faith?
 culture = the environment where humans can be humans (live as)
 
-Ge1:28
+[Ge1:28](https://www.blueletterbible.org/niv/gen/1/28/s_1028)
   > God blessed them and said to them, "Be fruitful and increase in number; fill the earth and subdue it. Rule over the fish in the sea and the birds in the sky and over every living creature that moves on the ground."
 
-Mt4:4
+[Mt4:4](https://www.blueletterbible.org/niv/mat/4/4/s_933004)
   > Jesus answered, “It is written: ‘Man shall not live on bread alone, but on every word that comes from the mouth of God.
 
-Mt6:31,33
+[Mt6:31](https://www.blueletterbible.org/niv/mat/6/31/s_935031),[33](https://www.blueletterbible.org/niv/mat/6/33/s_935033)
   >  So do not worry, saying, 'What shall we eat?' or 'What shall we drink?' or ‘What shall we wear?'
 
   > But seek first his kingdom and his righteousness, and all these things will be given to you as well.
@@ -258,151 +865,143 @@ Following Lord's prayer
 
 When men is tempted by culture, faith is cursed(corrupted), vice versa.
 
-Ps1:3
+[Ps1:3](https://www.blueletterbible.org/niv/psa/1/3/s_479003)
   > That person is like a tree planted by streams of water, which yields its fruit in season and whose leaf does not wither— whatever they do prospers.
-Eze47:12
+
+[Eze47:12](https://www.blueletterbible.org/niv/eze/47/12/s_849012)
   > Fruit trees of all kinds will grow on both banks of the river. Their leaves will not wither, nor will their fruit fail. Every month they will bear fruit, because the water from the sanctuary flows to them. Their fruit will serve for food and their leaves for healing.
+
 1. challenging god because of food
+    - [Ge3:1-4](https://www.blueletterbible.org/niv/gen/3/1/s_3001)
 
-    Ge3:1-14
+1. hardship in life because of the coruption of faith
+    - [Ge3:15-21](https://www.blueletterbible.org/niv/gen/3/15/s_3015)
 
-2. hardship in life because of the coruption of faith
+1. the invisible flaming sword <br>
+    - representing an angel
+    - [Ge3:22-24](https://www.blueletterbible.org/niv/gen/3/22/s_3022)
 
-    Ge3:15-21
-
-3. the invisible flaming sword
-    Ge3:22-24
-
-    Dt28:30-34
+    - [Dt28:30-34](https://www.blueletterbible.org/niv/deu/28/30/s_181030)
 
     there is no earthly paradise, human can create society that is promised to be like paradise. In fact, there is no paradise on Earth any more.
 
-4. when your faith reaches to God you will lose the world
+1. when your faith reaches to God you will lose the world
+    - [Ge4:1-8](https://www.blueletterbible.org/niv/gen/4/1/s_4001)
 
-    Ge4:1-8
+1. the judgement of God brings out the fear among men
+    - [Ge4:9-14](https://www.blueletterbible.org/niv/gen/4/9/s_4009)
 
-5. the judgement of God brings out the fear among men
+1.  the protection of God stops the tribulation(苦难，磨难) of culture
+    - [Ge4:15](https://www.blueletterbible.org/niv/gen/4/15/s_4015)
 
-    Ge4:9-14
-
-6.  the protection of God stops the tribulation of culture
-
-    Ge4:15
-
-7. seeing the daughters of men, the sons of God became corrupted
-
-    Ge6:1-2
+1. seeing the daughters of men, the sons of God became corrupted
+    - [Ge6:1-2](https://www.blueletterbible.org/niv/gen/6/1/s_6001)
 
 ---
 
 ### Heaven
 
-### The bible differentiates ***three heavens*** that are distinct in level and describes the events that develop in them
+### III. The Bible differentiates ***three heavens*** that are distinct in level and describes the events that develop in them
 
-2Ch2:5-6, 6:18
+- [2Ch2:5-6](https://www.blueletterbible.org/niv/2ch/2/5/s_369005), [6:18](https://www.blueletterbible.org/niv/2ch/6/18/s_373018)
+
 
 > The temple I am going to build will be great, because our God is greater than all other gods. But who is able to build a temple for him, since the heavens, even the highest heavens, cannot contain him? Who then am I to build a temple for him, except as a place to burn sacrifices before him?
 
 > But will God really dwell on earth with humans? The ***heavens***, even the highest heavens, cannot contain you. How much less this temple I have built!
 
-Ps148:4
+- [Ps148:4](https://www.blueletterbible.org/niv/psa/148/4/s_626004)
 
 > Praise him, you highest ***heavens*** and you waters above the skies.
 ### Three different heavens
 
-| First heaven                     | second                                   | third                           |
-| -------------------------------- | ---------------------------------------- | ------------------------------- |
-| the heaven within the atmosphere | the heaven of the firmament, the expanse | the heaven where ***gods*** are |
-| the sky Ge1:28                   | the space, the universe Ge1:6-8     | the spiritual heaven 2Co12:2   |
+| First heaven | second | third |
+| --- | --- | --- |
+| the heaven within the atmosphere | the heaven of the firmament, the expanse | the heaven where <u>***gods***</u> are |
+| the sky [Ge1:28](https://www.blueletterbible.org/niv/gen/1/28/s_1028) | the space, the universe [Ge1:6-8](https://www.blueletterbible.org/niv/gen/1/6/s_1006) | the spiritual heaven [2Co12:2](https://www.blueletterbible.org/niv/2co/12/2/s_1090002) |
 
 small g gods -> angels
 
-#### the universe is finite
+#### The universe is finite
 
-Act 1:11
+- [Ac1:11](https://www.blueletterbible.org/niv/act/1/11/s_1019011)
+    > "Men of Galilee," they said, "why do you stand here looking into the sky? This same Jesus, who has been taken from you into heaven, will come back in the same way you have seen him go into heaven."
 
-> "Men of Galilee," they said, "why do you stand here looking into the sky? This same Jesus, who has been taken from you into heaven, will come back in the same way you have seen him go into heaven."
+- [Jn3:13](https://www.blueletterbible.org/niv/jhn/3/13/s_1000013)
+    > No one has ever gone into heaven except the one who came from heaven—the Son of Man.
 
-Jn 3:13
+#### Where is God?
+God is omnipresent. the Son is in heaven. 3rd heaven was made/created
 
-> No one has ever gone into heaven except the one who came from heaven—the Son of Man.
+- [2Ch2:6](https://www.blueletterbible.org/niv/2ch/2/6/s_369006)
+    > But who is able to build a temple for him, since the heavens, even the highest heavens, cannot contain him? Who then am I to build a temple for him, except as a place to burn sacrifices before him?
 
-#### where is God?
-God is omnipresent. the Son is in heaven.
+#### The universe
+- [Ge1:1-2](https://www.blueletterbible.org/niv/gen/1/1/s_1001), [6-7](https://www.blueletterbible.org/niv/gen/1/6/s_1006)
 
-2Ch2:6
+#### Who governs where
 
-> But who is able to build a temple for him, since the heavens, even the highest heavens, cannot contain him? Who then am I to build a temple for him, except as a place to burn sacrifices before him?
+| the heaven where <u>gods</u> are | the heaven of the Universe | the heaven under the clouds |
+| --- | --- | --- |
+| God | the ruler of the air [Eph2:2](https://www.blueletterbible.org/niv/eph/2/2/s_1099002), [Job1:7](https://www.blueletterbible.org/niv/job/1/7/s_437007) | men [Ge1:28](https://www.blueletterbible.org/niv/gen/1/28/s_1028) |
 
-#### the universe
-Ge1:1-2, 6-7
+#### "Paradise" or "the Father's house"
 
-### who governs where
-
-| the heaven where gods are | the heaven of the universe            | the heaven under the clouds |
-| ------------------------- | ------------------------------------- | --------------------------- |
-| God                       | the ruler of the air (Eph2:2, Job1:7) | men (Ge1:28)                |
-
-### "paradise" or "the father's house"
-
-| paradise                        | father's house                        |
-| ------------------------------- | ------------------------------------- |
-| a portion of the third heaven   | the third heaven                      |
-| souls of believers(Lk23:43) | in resurrected body (Jn14:2-3, 20:17) |
+| Paradise | Father's house |
+| --- | --- |
+| a portion of the third heaven   | the third heaven |
+| souls of believers [Lk23:43](https://www.blueletterbible.org/niv/luk/23/43/s_996043) | in resurrected body [Jn14:2-3](https://www.blueletterbible.org/niv/jhn/14/2/s_1011002), [20:17](https://www.blueletterbible.org/niv/jhn/20/17/s_1017017) |
 
 paradise: a spiritual space which is part of the third heaven.
 
 ---
-### Hell
 
+### Hell
 prepared mechanism of punishment for devils
 
 #### When will anyone be thrown into hell
-
-- Mt25:31-41
-- Jude1:6
-- Rev20:15
+- [Mt25:31-41](https://www.blueletterbible.org/niv/mat/25/31/s_954031)
+- [Jude1:6](https://www.blueletterbible.org/niv/jde/1/6/s_1167006)
+- [Rev20:15](https://www.blueletterbible.org/niv/rev/20/15/s_1187015)
 
 #### Where is hell
 
-- Is14:15
-- Rev20:14
-- Rev21:1
-- 2Pe3:7
+- [Is14:15](https://www.blueletterbible.org/niv/isa/14/15/s_693015)
+- [Rev20:14](https://www.blueletterbible.org/niv/rev/20/14/s_1187014)
+- [Rev21:1](https://www.blueletterbible.org/niv/rev/21/1/s_1188001)
+- [2Pe3:7](https://www.blueletterbible.org/niv/2pe/3/7/s_1159007)
 
-#### believers to paradise
-
-- Lk23:43
+#### Believers to paradise
+- [Lk23:43](https://www.blueletterbible.org/niv/luk/23/43/s_996043)
 
 #### "Thy will be done on earth as it is in heaven"
-
-- Mt6:10
-- Rev12:7-9
+- [Mt6:10](https://www.blueletterbible.org/niv/mat/6/10/s_935010)
+- [Rev12:7-9](https://www.blueletterbible.org/niv/rev/12/7/s_1179007)
 
 ---
 
 ## Lec 4
 
-## Religion, albeit unclearly, demonstrations the common organization and deeds of faith
+## III. Religion, though unclearly, demonstrations the common organization and deeds of faith
 
-### Christianity is ***not*** a religion
+### <u>Christianity is ***not*** a religion</u>
 
-religion = giving reference to the super natural or transcendent
+religion = giving reverence to the super natural or transcendent
 
 Christian faith exists without the text
 
-| religion                                    | christianity                        |
-| ------------------------------------------- | ----------------------------------- |
-| general, natural faith                     | faith by revelation, faith by grace |
-| through doctrines, rituals and organization | though the revealed Word of God     |
-| Upward                                      | Downward                            |
+| religion | Christianity |
+| --- | --- |
+| general, natural faith | faith by revelation, faith by grace |
+| through doctrines, rituals and organization | through the revealed Word of God |
+| Upward | Downward |
 
 ### Religiosity vs. Faith
 
-- 1Co15:13-19
-- Ac2:32
+- [1Co15:13-19](https://www.blueletterbible.org/niv/1co/15/13/s_1077013)
+- [Ac2:32](https://www.blueletterbible.org/niv/act/2/32/s_1020032)
 
-### you cannot know God through philosophy
+#### you cannot know God through philosophy
 
 Philosophy is the basis of knowledge?
 Could you know god through philosophy?
@@ -415,7 +1014,7 @@ Could you know god through philosophy?
    - "God is that, the greater than which cannot the conceived(感知)" - Anselm of Canterbury
    - "I have concluded the evident existence depends entirely on God in all the moments of my life,
    that I do not think that the human spirit may know anything with greater evidence and certitude(确信)" - Rene Descartes
-   - understand god through the external
+   - understand God through the external
    - God as the ground of being , the nature of being
    - man cannot be separated to objectify God
    - "Since I exist, god must exist"
@@ -423,144 +1022,143 @@ Could you know god through philosophy?
 
     god = "emptyness"<br>
     the immanence theory / pantheism = god is inseparable from<br>
-    you canont prove/disprove existence of God<br>
+    you cannot prove/disprove existence of God<br>
 
 2. The idealistic approach
 
     (the mind is the requirement of existence)
 
-   - understand god through the internal
+   - understand God through the internal
 
-   - god as the origin of the mind
+   - God as the origin of the mind
 
    - the eye cannot see itself
 
-   - the consciousness of man is the consciousness of god
+   - the consciousness of man is the consciousness of God
 
    - the divine = nothingness, emptiness, meaninglessness<br>
-     nihilism(尼采) <-> buddhism: reality being empty, full of suffering because of cravings, nothing is permanent, nothing is cause-less
+    nihilism(尼采) <-> buddhism: reality being empty, full of suffering because of cravings, nothing is permanent, nothing is cause-less
 
-Conclusion: neither philosophy nor religion can know the divine. the only way is through revelation
-
-Mt11:25-27
+#### Neither philosophy nor religion can know the divine.
+- [Mt11:25-27](https://www.blueletterbible.org/niv/mat/11/25/s_940025)
 
 > At that time Jesus said, “I praise you, Father, Lord of heaven and earth, because you have hidden these things from the wise and learned, and revealed them to little children. Yes, Father, for this is what you were pleased to do.
  “All things have been committed to me by my Father. No one knows the Son except the Father, and no one knows the Father except the Son and those to whom the Son chooses to reveal him.
 
 *children* are those who are pure-minded and bumble-hearted.
 
-### The Bible offers evidence for Faith: the resurrection of Jesus
-- 1Co15:13-19
-- Ac2:32
+#### The Bible offers evidence for Faith: the resurrection of Jesus
+- [1Co15:13-19](https://www.blueletterbible.org/niv/1co/15/13/s_1077013)
+- [Ac2:32](https://www.blueletterbible.org/niv/act/2/32/s_1020032)
 
-### Christianity is responding to the divine call
+#### Christianity is responding to the divine call
 
-Christianity is a faith of confession
+#### Christianity is a faith of confession
 
-| action       | confession               | acknowledgement                 |
-| ------------ | ------------------------ | ------------------------------- |
-| worship      | revealing my faith       | God's omnipresence              |
-| repentance   | confessing my sins       | God's righeousness, omniscience |
-| prayer       | confessing my inabilites | God's omnipotence               |
-| praise       | confessing my lowliness  | God's worthiness                |
-| tithing      | revealing my income      | God's ownership of all thins    |
-| thanksgiving | revealing my life        | God's grace and help            |
+| action | confession | acknowledgement |
+| --- | --- | --- |
+| worship | revealing my faith | God's omnipresence |
+| repentance | confessing my sins | God's righeousness, omniscience |
+| prayer | confessing my inabilites | God's omnipotence |
+| praise | confessing my lowliness  | God's worthiness |
+| tithing | revealing my income | God's ownership of all things |
+| thanksgiving | revealing my life | God's grace and help |
 
 praise: exalt 1. who He is, 2. what He has done and 3. His name
+- [Rm10:10](https://www.blueletterbible.org/niv/rom/10/10/s_1056010)
+- [Jn1:9](https://www.blueletterbible.org/niv/jhn/1/9/s_998009)
 
-Rm10:10
-Jn1:9
-
-#### 1. God gave men not religion but His son
+### 1. God gave men not religion but His Son
 
 #### regarding repentance
 
 Where "repent"  is used in Bible:
-| repent Mt3:2                                          | repent Mt4:17                                             | repent Ac2:18                      |
-| ----------------------------------------------------- | --------------------------------------------------------- | ---------------------------------- |
-| John the baptist                                      | Jesus Christ                                              | Apostles                           |
-| correction your knowledge of the divine and righteousness | turn from your direction towards the divine and turn to me | fix your thoughts towrds the divine |
+| repent [Mt3:2](https://www.blueletterbible.org/niv/mat/3/2/s_932002) | repent [Mt4:17](https://www.blueletterbible.org/niv/mat/4/17/s_933017) | repent [Ac2:38](https://www.blueletterbible.org/niv/act/2/38/s_1020038) |
+| --- | --- | --- |
+| John the baptist | Jesus Christ | Apostles |
+| correction your knowledge of the divine and righteousness | turn from your direction towards the divine and turn to me | fix your thoughts towards the divine |
 
 repentance means turning
 
 #### Yeshua is the Christ
 
-- Mt16:16
+- [Mt16:16](https://www.blueletterbible.org/niv/mat/16/16/s_945016)
 > Simon Peter answered, “You are the Messiah, the Son of the living God.”
 
-- Ac17:3
+- [Ac17:3](https://www.blueletterbible.org/niv/act/17/3/s_1035003)
 > explaining and proving that the Messiah had to suffer and rise from the dead. “This Jesus I am proclaiming to you is the Messiah,” he said.
 
 "Christ" "Messiah" = the Anointed (king)
 
-| Christ                                             | Yeshua                                        |
-| -------------------------------------------------- | --------------------------------------------- |
-| King                                               | The name                                      |
-| The Son of Man                                     | the Son of God                                |
-| the mission of coming in the flesh                 | to whoever believes through the Holy Spirit   |
-| Death, resurrection, ascension, the throne, return | Immanuel (Gos with us)                        |
+| Christ | Yeshua |
+| --- | --- |
+| King | The name |
+| The Son of Man | the Son of God |
+| the mission of coming in the flesh | to whoever believes through the Holy Spirit |
+| Death, resurrection, ascension, the throne, return | Immanuel (God with us) |
 
-### regarding love
-#### 1.the redemption of God is done by God
+### Regarding love
+the redemption of God
 
-- Mt20:28
+- [Mt20:28](https://www.blueletterbible.org/niv/mat/20/28/s_949028)
 > just as the Son of Man did not come to be served, but to serve, and to give his life as a ransom for many.”
 
-- Rm5:6-8
+- [Rm5:6-8](https://www.blueletterbible.org/niv/rom/5/6/s_1051006)
 > You see, at just the right time, when we were still powerless, Christ died for the ungodly.
 Very rarely will anyone die for a righteous person, though for a good person someone might possibly dare to die.
 But God demonstrates his own love for us in this: While we were still sinners, Christ died for us.
-- 1Jn4:10
+- [1Jn4:10](https://www.blueletterbible.org/niv/1jo/4/10/s_1163010)
 
 only in Christianity there is the redemption of God.
 
-#### 2. God gave men not doctrine but fact
+### 2. God gave men not doctrine but fact
 
 - men killed Jesus but God raised Him
 
-- the son of man sent the HS and the HS testifies
+- the son of man sent the HS and the HS testifies Him
 
-- Ac2:3
+- [Ac2:3](https://www.blueletterbible.org/niv/act/2/3/s_1020003)
 > They saw what seemed to be tongues of fire that separated and came to rest on each of them.
 
-- Ac5:30-32
+- [Ac5:30-32](https://www.blueletterbible.org/niv/act/5/30/s_1023030)
 > The God of our ancestors raised Jesus from the dead—whom you killed by hanging him on a cross.
 God exalted him to his own right hand as Prince and Savior that he might bring Israel to repentance and forgive their sins.
 We are witnesses of these things, and so is the Holy Spirit, whom God has given to those who obey him.”
-#### the lord's prayer is ***not*** a catechism(教理问答)
 
-#### the content of prayer / How do we pray?
+#### The lord's prayer is <u>not</u> a catechism(教理问答)
+
+#### The content of prayer / How do we pray?
 
 - the receiver of prayer
 - the purpose of prayer
 - the content of prayer: for His kingdom to grow, for His will to come true in my life
 
 #### for His events He calls men and lets them do His work
-
-- Ps23:1
-- Eze44:28
+- [Ps23:1](https://www.blueletterbible.org/niv/psa/23/1/s_501001)
+- [Eze44:28](https://www.blueletterbible.org/niv/eze/44/28/s_846028)
 > I am to be the only inheritance the priests have. You are to give them no possession in Israel; I will be their possession.
 ---
 
 ## Lec 5
 
-### 3. The christian mission is not a  religious method, it is declaring the gospel
-Ac 16:31
+### 3. The Christian mission is not a  religious method, it is declaring the gospel
+- [Ac16:31](https://www.blueletterbible.org/niv/act/16/31/s_1034031)
 > They replied, “Believe in the Lord Jesus, and you will be saved—you and your household.”
 
-Jesus - preach - to save souls - Mt4:10
+Jesus - preach - to save souls - [Mt4:10](https://www.blueletterbible.org/niv/mat/4/10/s_933010)
 
+preach <br>
 - to bring good news
 - to proclaim/declare
 
 #### Christianity does ***NOT*** challenge
 
-- Jn18:36
-- 1Ti6:20-21
+- [Jn18:36](https://www.blueletterbible.org/niv/jhn/18/36/s_1015036)
+- [1Ti6:20-21](https://www.blueletterbible.org/niv/1ti/6/20/s_1125020)
 
 social justice is human invention, God is just God, God is not socially just God
 
-Christianity does ***not*** discuss or debate but ***declare***
+Christianity does ***not*** discuss or debate but ***declares***
 
 truth cannot be debated / compromised
 
@@ -568,62 +1166,63 @@ truth cannot be debated / compromised
 
 religious pluralism/unity
 
-- 2Co6:14-18
-- 1Jn5:16
+- [2Co6:14-18](https://www.blueletterbible.org/niv/2co/6/14/s_1084014)
+- [1Jn5:16](https://www.blueletterbible.org/niv/1jo/5/16/s_1164016)
 
+
+?? [1Jn5:17](https://www.blueletterbible.org/niv/1jo/5/17/s_1164017)
 
 ### 4. Worship is ***NOT*** a religious ritual
 
 We do not do the apostle's creed
 
 worship = seeing the face of the Lord in spirit and truth
-- Mt18:10
+- [Mt18:10](https://www.blueletterbible.org/niv/mat/18/10/s_947010)
 
-worship - to fall at another's feet - to meet with Him face to face - kiss
+worship - to fall at another's feet - to meet with Him face to face - kiss the hand of God
 
 dead sacrifice(old testment)
 / living sacrifice(new testment)???
 
-- Jn4:20-26
-- 1Ki12:18-24, 27-33
+- [Jn4:20-26](https://www.blueletterbible.org/niv/jhn/4/20/s_1001020)
+- [1Ki12:18-24](https://www.blueletterbible.org/niv/1ki/12/18/s_303018), [27-33](https://www.blueletterbible.org/niv/1ki/12/27/s_303027)
 
-| Jeroboam             | Rehoboam            |
-| -------------------- | ------------------- |
-| 10 tribes of Isarael | Judah and Benjamin  |
-| Northern Kingdom     | Southen kingdom     |
+| Jeroboam | Rehoboam |
+| --- | --- |
+| 10 tribes of Isarael | Judah and Benjamin |
+| Northern Kingdom | Southen kingdom |
 | High place in Bethel | Temple of Jerusalem |
-| In spirit            | In Truth            |
+| In Spirit | In Truth(law) |
 
 #### God does not desire sacrifice but ***obedience***
-- 1Sa15:22
-- Ps51:26-27
+- [1Sa15:22](https://www.blueletterbible.org/niv/1sa/15/22/)
+- [Ps51:16-17](https://www.blueletterbible.org/niv/psa/51/16/s_529016)
 
-### 5. The bible and faith
+## V. The Bible and faith
 
-- He11:3
+- [He11:3](https://www.blueletterbible.org/niv/heb/11/3/s_1144003)
 > By faith we understand that the universe was formed at God’s command, so that what is seen was not made out of what was visible.
 
-***? ? ? ? ? ? ? ? ? ? ? ? ?***
+***? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ?***
 
-faith is warranted by the bible
+***? faith is warranted by the Bible &nbsp;&nbsp;&nbsp;&nbsp;?***
 
-the bible is testified by the faith
+***? the Bible is testified by the faith ?***
 
-***? ? ? ? ? ? ? ? ? ? ? ? ?***
+***? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ?***
 
-- Jn1:1-3
+- [Jn1:1-3](https://www.blueletterbible.org/niv/jhn/1/1/s_998001)
 
-The Word = the self-manifestation = The face of god != The entirety of  god
+    The Word = the self-manifestation = The face of God != The entirety of God
 
-- Mt11:12-13
-- Jn1:14
-- 1Co1:18-25
+- [Mt11:12-13](https://www.blueletterbible.org/niv/mat/11/12/s_940012)
+- [Jn1:14](https://www.blueletterbible.org/niv/jhn/1/14/s_998014)
+- [1Co1:18-25](https://www.blueletterbible.org/niv/1co/1/18/s_1063018)
 
-#### 1. the bible acknoweldges the works of God through faith
+#### 1. the Bible acknoweldges the works of God through faith
 
-faith
-
-- acknowledging that God has done and possessing it
+faith is ... <br>
+- acknowledging what God has done and possessing it
 - trusting the Word of God to be fullfilled
 
 #### the treasure of God is in the Bible
@@ -631,12 +1230,13 @@ faith
 need to have experience of Word
 
 #### the Bible illusttrates that the works of God continue without breaks
+- [He11:29](https://www.blueletterbible.org/niv/heb/11/29/s_1144029)
 
-| Genesis 1                | Hebrews 11                |
-| ------------------------ | ------------------------- |
+| Genesis 1 | Hebrews 11 |
+| --- | --- |
 | A chapter on God's faith | A chapter on men's faith  |
-| all creations obeyed     | men obeyed                |
-| "And it was so"          | "According to your faith" |
+| all creations obeyed | men obeyed |
+| "And it was so" | ***"According to your faith"*** |
 
 ---
 
@@ -654,52 +1254,52 @@ need to have experience of Word
 - probability of success
 
 #### ***Faith***
-- the faith in God
+- the faith in/of God
 - the assurance of God
 - objective
 - base on the Word of God
 - 100% of God's guarantee for success
 
-Mt14:25-29, Jesus walked on water and ***commanded*** Peter to walk on water.
+[Mt14:25-29](https://www.blueletterbible.org/niv/mat/14/25/s_943025), Jesus walked on water and ***commanded*** Peter to walk on water.
 
-### Have faith in God - Mk11:22
+#### Have faith in God - [Mk11:22](https://www.blueletterbible.org/niv/mar/11/22/s_968022)
 - possessing the faith of God
 - continually obeying the Word of God
 
 ---
 
-- Mal3:6
-- Ps89:34
-- Nu23:19
-- Nu20:8-12
+- [Mal3:6](https://www.blueletterbible.org/niv/mal/3/6/s_928006)
+- [Ps89:34](https://www.blueletterbible.org/niv/psa/89/34/s_567034)
+- [Nu23:19](https://www.blueletterbible.org/niv/num/23/19/s_140019)
+- [Nu20:8-12](https://www.blueletterbible.org/niv/num/20/8/s_137008)
 
 ### What is faith
 
 #### faith is ***surrendering*** your experience even if risky and holding on to ***the Word***
 
-### Now faith is ***the substance*** of things hoped for and ***the evidence*** of things not seen - [He11:1](https://www.bible.com/bible/114/HEB.11.NIV)
+#### Now faith is ***the substance*** of things hoped for and ***the evidence*** of things not seen - [He11:1](https://www.blueletterbible.org/nkjv/heb/11/1/s_1144001), NKJV
 
-### 3. Those who absolutely trust the bible as the Word of god have godly authority [Jn5:29](https://www.bible.com/bible/111/JHN.5.NIV)
+### 3. Those who absolutely trust the Bible as the Word of god have Godly authority [Jn5:24](https://www.blueletterbible.org/niv/jhn/5/24/s_1002024)
 
 #### the authority of the Son of Man
 
-- the authority to ***judge sins*** [Jn5:27](https://www.bible.com/bible/111/JHN.5.NIV) and ***forgive sins*** [Mt9:6](https://www.bible.com/bible/114/MAT.9.NIV)
-- the authority ***to die*** and the authority ***to live*** [Jn10:18](https://www.bible.com/bible/111/JHN.10.NIV)
+- the authority to ***judge sins*** [Jn5:27](https://www.blueletterbible.org/niv/jhn/5/27/s_1002027) and ***forgive sins*** [Mt9:6](https://www.blueletterbible.org/niv/mat/9/6/s_938006)
+- the authority ***to die*** and the authority ***to live*** [Jn10:18](https://www.blueletterbible.org/niv/jhn/10/18/s_1007018)
 
-the target of his judgement = the origin os sin = the devil
+the target of His judgement = the origin os sin = the devil
 
-the subject of his forgiveness = men, because they were deceived
+the subject of his forgiveness = souls of men, because they were deceived
 
 #### the authority of preachers
 
-- [Jn20:23](https://www.bible.com/bible/111/JHN.20.NIV)
-- [Jn1:12](https://www.bible.com/bible/111/JHN.1.NIV)
-- [Eze33:1-9](https://www.bible.com/bible/111/EZK.33.NIV)
+- [Jn20:23](https://www.blueletterbible.org/niv/jhn/20/23/s_1017023)
+- [Jn1:12](https://www.blueletterbible.org/niv/jhn/1/12/s_998012)
+- [Eze33:1-9](https://www.blueletterbible.org/niv/eze/33/1/s_835001)
 
 #### the right to drive out demons
 
-- [Mt10:1](https://www.bible.com/bible/111/MAT.10.NIV)
-- [Mk3:13-15](https://www.bible.com/bible/111/MRK.3.NIV)
+- [Mt10:1](https://www.blueletterbible.org/niv/mat/10/1/s_939001)
+- [Mk3:13-15](https://www.blueletterbible.org/niv/mar/3/13/s_960013)
 
 ### 4. not even a part of the Bible can be abolished/dismissed because it is all about Jesus
 
@@ -710,48 +1310,47 @@ new testment: a robe assembled and put on by Jesus
 
 Jesus is testified by
 
-1. the bible [Jn5:29](https://www.bible.com/bible/111/JHN.5.NIV)
-2. the prophets [Jn1:34](https://www.bible.com/bible/111/JHN.1.NIV)
-3. the Father [Jn8:18](https://www.bible.com/bible/111/JHN.8.NIV)
-4. Jesus himself [Jn8:18](https://www.bible.com/bible/111/JHN.8.NIV)
-5. the holy spirit [Jn15:26](https://www.bible.com/bible/111/JHN.15.NIV)
-6. the disciples [Jn15:27](https://www.bible.com/bible/111/JHN.15.NIV)
+1. the Bible [Jn5:29](https://www.blueletterbible.org/niv/jhn/5/29/s_1002029)
+2. the prophets [Jn1:34](https://www.blueletterbible.org/niv/jhn/1/34/s_998034)
+3. the Father [Jn8:18](https://www.blueletterbible.org/niv/jhn/8/18/s_1005018)
+4. Jesus himself [Jn8:18](https://www.blueletterbible.org/niv/jhn/8/18/s_1005018)
+5. the holy spirit [Jn15:26](https://www.blueletterbible.org/niv/jhn/15/26/s_1012026)
+6. the disciples [Jn15:27](https://www.blueletterbible.org/niv/jhn/15/27/s_1012027)
 - Unbelievers - testify the death of Jesus
-- disciples - testify ***the resurrection*** of Jesus [1Co15:3-8](https://www.bible.com/bible/111/1CO.15.NIV)
-- the Holy Spirit - testifies that the son of man is on the throne ***in heaven*** [Ac2:33](https://www.bible.com/bible/111/ACT.2.NIV), [5:31](https://www.bible.com/bible/111/ACT.5.NIV)
+- disciples - testify ***the resurrection*** of Jesus [1Co15:3-8](https://www.blueletterbible.org/niv/1co/15/3/s_1077003)
+- the Holy Spirit - testifies that the Son of Man is on the throne ***in heaven*** [Ac2:33](https://www.blueletterbible.org/niv/act/2/33/s_1020033), [5:31](https://www.blueletterbible.org/niv/act/5/31/s_1023031)
 
 ## The incarnation of Jesus
-- [Jn1:1, 14](https://www.bible.com/bible/111/JHN.1.NIV)
+- [Jn1:1](https://www.blueletterbible.org/niv/jhn/1/1/s_998001), [14](https://www.blueletterbible.org/niv/jhn/1/14/s_998014)
 ---
-- [Mt20:28](https://www.bible.com/bible/111/MAT.20.NIV)
-- [Jn10:17-18](https://www.bible.com/bible/111/JHN.17.NIV)
-- [Jn6:63](https://www.bible.com/bible/111/JHN.6.NIV)
+- [Mt20:28](https://www.blueletterbible.org/niv/mat/20/28/s_949028)
+- [Jn10:17-18](https://www.blueletterbible.org/niv/jhn/10/17/s_1007017)
+- [Jn6:63](https://www.blueletterbible.org/niv/jhn/6/63/s_1003063)
 
 ### Why did Word become ***flesh***?
 
-- ***To die***: for redemption [Mt20:28](https://www.bible.com/bible/111/MAT.20.NIV)
+- ***To die***: for redemption [Mt20:28](https://www.blueletterbible.org/niv/mat/20/28/s_949028)
 
-- ***To shed blood***: to cleanse, forgive sins and give life [Lev17:11](https://www.bible.com/bible/111/LEV.17.NIV), [Jn6:63](https://www.bible.com/bible/111/JHN.63.NIV), [He9:22](https://www.bible.com/bible/111/HEB.9.NIV)
+- ***To shed blood***: to cleanse, forgive sins and give life [Lev17:11](https://www.blueletterbible.org/niv/lev/17/11/s_107011), [Jn6:63](https://www.blueletterbible.org/niv/jhn/6/63/s_1003063), [He9:22](https://www.blueletterbible.org/niv/heb/9/22/s_1142022)
 
     his death = to pay the price of sin
 
 ### Jesus is the Christ, the Son of the living God
-- [Mt16:16](https://www.bible.com/bible/111/MAT.16.NIV)
+- [Mt16:16](https://www.blueletterbible.org/niv/mat/16/16/s_945016)
 
 "Christ" = his duty/mission as man
 (the "anointed")
 "the son of God" = his essence
 
 #### Those who deny the death of Jesus are satanic
-
-- [1Jn4:2-3](https://www.bible.com/bible/111/1JN.4.NIV)
+- [1Jn4:2-3](https://www.blueletterbible.org/niv/1jo/4/2/s_1163002)
 
 #### God testifies in heaven that Jesus is the Son of God
-- [Mt3:17](https://www.bible.com/bible/111/MAT.3.NIV)
+- [Mt3:17](https://www.blueletterbible.org/niv/mat/3/17/s_932017)
 
 #### The woman testifies on earth that Jesus is the offspring of the woman
-- [Ge3:15](https://www.bible.com/bible/111/GEN.3.NIV)
-- [Mt12:47-50](https://www.bible.com/bible/111/MAT.12.NIV)
+- [Ge3:15](https://www.blueletterbible.org/niv/gen/3/15/s_3015)
+- [Mt12:47-50](https://www.blueletterbible.org/niv/mat/12/47/s_941047)
 
 ### 6. Jesus fulfilled what is written in the Bible
 
@@ -762,12 +1361,12 @@ Jesus is testified by
 - serve only god
 
 #### Jesus fulfilled according to the written word
-- [Mt26:24](https://www.bible.com/bible/111/MAT.26.NIV)
-- [Lk18:31](https://www.bible.com/bible/111/LUK.18.NIV), [22:37](https://www.bible.com/bible/111/LUK.22.NIV)
-- [Jn12:14-15](https://www.bible.com/bible/111/JHN.12.NIV)
+- [Mt26:24](https://www.blueletterbible.org/niv/mat/26/24/s_955024)
+- [Lk18:31](https://www.blueletterbible.org/niv/luk/18/31/s_991031), [22:37](https://www.blueletterbible.org/niv/luk/22/37/s_995037)
+- [Jn12:14-15](https://www.blueletterbible.org/niv/jhn/12/14/s_1009014)
 
 #### Revelations
-- [Mt11:27](https://www.bible.com/bible/111/MAT.11.NIV)
+- [Mt11:27](https://www.blueletterbible.org/niv/mat/11/27/s_940027)
 - three level of God's revelation
     - 1st level: ***Jesus***
     - 2nd level: the Bible
@@ -811,7 +1410,8 @@ reading the word of God (esp. NT), it makes us feel uncomfortable and vulnerable
 - [2Pe3:7-13](https://www.blueletterbible.org/niv/2pe/3/7/s_1159007)
 
 God created the world by His Word, and also destroy it one day, for His plan and purpose.
-The only "new thing" is Jesus, the truth
+
+#### The only "new thing" is Jesus, the truth
 
 - [He1:2](https://www.blueletterbible.org/niv/heb/1/2/s_1134002)
 - [1Pe1:5](https://www.blueletterbible.org/niv/1pe/1/5/s_1152005), [20](https://www.blueletterbible.org/niv/1pe/1/20/s_1152020)
@@ -839,58 +1439,63 @@ Jesus will come back like a lightning.
 - Ge18:10
 - Mt3:2
 
-| Old Testment                                     | New Testment                                       |
-| ------------------------------------------------ | -------------------------------------------------- |
-| [Genesis : Luke]                                   | [John : Revelation]                                  |
-| the king who will come according to the prophecy | the king who will return according to the prophecy |
-| "the coming Messiah"                             | "Christ who came",  "Christ who will return"       |
+| Old Testment | New Testment |
+| --- | --- |
+| Genesis &rarr; Luke | John &rarr; Revelation |
+| the King who will come according to the prophecy | the King who will return according to the prophecy |
+| "the coming Messiah" | "Christ who came",  "Christ who will return" |
 
 #### ***Prophets*** are the servants who prepared the way for ***the Messiah***
 
-- [Mt11:11-14](https://www.blueletterbible.org/niv/mat/11/10/s_940010)
+- [Mt11:10-14](https://www.blueletterbible.org/niv/mat/11/10/s_940010)
 
 Moses 1500 B.C. the Pentatuch, the first five books.
 
 last book of old testment Nakachi 400 B.C.
 
 400 B.C. -> 0 A.D.the dark age of Isareal, the intertestamental period.
+"the dark history of Israel", no prophet
 
 70 A.D. -> 100 A.D., the New Testment is finished
 
-| Faction            | Pharisees | Scribes   | Sadducees              |
-| ------------------ | --------- | --------- | ---------------------- |
-| ***Social class*** | middle    | lower     | Priests, aristocrats   |
-| ***emphasis***     | the law   | the law   | Priestly obligations   |
-| ***rigteousness*** | deeds     | knowledge | Charity ("good" works) |
-| ***afterlife***    | yes       | [yes]     | no                     |
+| Faction | Pharisees | Scribes | Sadducees |
+| --- | --- | --- | --- |
+| ***Social class*** | middle | lower | Priests, aristocrats   |
+| ***emphasis*** | the law | the law   | Priestly obligations |
+| ***rigteousness*** | deeds | knowledge | Charity ("good" works) |
+| ***afterlife*** | yes | [yes] | no |
 
 the pharistic law + 613 commandments of Moses
 30 regarding sabbath
 
 - [Mt11:28](https://www.blueletterbible.org/niv/mat/11/28/s_940028)
 - [Mt10:28](https://www.blueletterbible.org/niv/mat/10/28/s_939028)
-- [Mt6:3](https://www.blueletterbible.org/niv/mat/6/3/s_935003)
+- [Mt6:3](https://www.blueletterbible.org/niv/mat/6/3/s_935003) referring to Sadducees
 - [1Th4:16](https://www.blueletterbible.org/niv/1th/4/16/s_1115016)
 - [2Th1:7-10](https://www.blueletterbible.org/niv/2th/1/7/s_1117007)
 
 ### 11. The object of ***God's interest*** is in the Bible
 
-### regarding Judas Iscariot
+#### regarding Judas Iscariot
 
-- [Jn13:26-27](https://www.blueletterbible.org/niv/jhn/13/26/s_1010026)
+- [Jn13:26-27](https://www.blueletterbible.org/niv/jhn/13/26/s_1010026) "satanic thought entered him"
 - [Mk14:21](https://www.blueletterbible.org/niv/mar/14/21/s_971021)
 
 #### The purpose of the coming of the Son of God
-
-1. to ***glorify*** the Father - the ***purpose*** of God [php2:6-11](https://www.blueletterbible.org/niv/phl/2/6/s_1105006)
+<!-- XXX: listen again! -->
+1. to ***glorify*** the Father - the ***purpose*** of God [Php2:6-11](https://www.blueletterbible.org/niv/phl/2/6/s_1105006)
 1. to ***destory*** (the works of) the devil - the ***mission*** of God [1Jn3:8](https://www.blueletterbible.org/niv/1jo/3/8/s_1162008)
-1. to ***save*** men - the ***will*** of God [Jn3:16](https://www.blueletterbible.org/niv/jhn/3/16/s_1000016)
+1. to ***save*** mankind - the ***will*** of God [Jn3:16](https://www.blueletterbible.org/niv/jhn/3/16/s_1000016)
+
+
 
 #### God's interst is in the blood of Jesus rather than in sin
 
 - [1Co15:55-57](https://www.blueletterbible.org/niv/1co/15/55/s_1077055)
 
-Vietnam and Iraq for glory of America??? bad example (2022.5.7 is it bad example?)
+Vietnam and Iraq for glory of America??? bad example
+- (2022.5.7) is it bad example?
+- (2023.5.13) USA went to vietnam not for the love of vietnam people (but for the glory of America?), saving man is just a side effect
 
 ---
 
@@ -900,13 +1505,10 @@ Vietnam and Iraq for glory of America??? bad example (2022.5.7 is it bad example
 
 knowing God is faith
 - unbelievers: deny the existance of God
-- the antichrist: denies the fact that Jesus came in flesh (they do not beliebe Jesus is Son of God, incarnation of God)
+- the antichrist: denies the fact that Jesus came in flesh (they do not believe Jesus is Son of God, incarnation of God)
 - cults: insist on salvation other than Jesus
 
-
-
 #### The Bible cannot be interpreted without the works of the Holy Spirit
-
 - [Ac2:44-47](https://www.blueletterbible.org/niv/act/2/44/s_1020044)
 
 Is communism/socialism a perfect world??? Soviet Union is not a perfect instance.
@@ -925,15 +1527,19 @@ Is communism/socialism a perfect world??? Soviet Union is not a perfect instance
 - [1Co3:21-23](https://www.blueletterbible.org/niv/1co/3/21/s_1065021)
 - [Mk2:27-28](https://www.blueletterbible.org/niv/mar/2/27/s_959027)
 
-God -> Christ -> men -> all things
+God &rarr; Christ &rarr; men &rarr; all things <br>
+Isn't Christ also God? <br>
+Jesus Christ has to surrender to the will of God
 
-| men | Jesus                       |
-| --------------------------------- | --------------------------- |
-| Exist ***for Jesus***                   | came in flesh ***for men***       |
+| men | Jesus |
+| --- | --- |
+| Exist ***for Jesus*** | came in flesh ***for men*** |
 | from the point of the will of God | from the point of salvation |
-| the attribute of God              | the character(heart) of God (to save mankind)        |
+| the attribute of God (the God who has will) | the character(heart) of God (to save mankind) |
 
-God the potter(制陶工人)
+anthropocentricism vs. theocentricism
+
+we are vessels that made for God the potter(制陶工人)
 
 - [2Ti2:20](https://www.blueletterbible.org/niv/2ti/2/20/s_1127020)
 - [Rm9:20-21](https://www.blueletterbible.org/niv/rom/9/20/s_1055020)
@@ -944,10 +1550,11 @@ God the potter(制陶工人)
 "Be fearless before world, be fearful before God"
 
 #### the Bible is the word of the Holy Spirit
+- [Jn5:39](https://www.blueletterbible.org/niv/jhn/5/39/s_1002039) Jesus is original copy of Bible
 
 ### 13. the Bible must be read only through the lens of the ***blood of Jesus***
 
-from Genesis to Revelation , it is all about the history and the story of the ***blood***
+from Genesis to Revelation , it is all about the history and the story of ***the blood***
 
 #### God's interest is solely in the blood
 
@@ -960,9 +1567,9 @@ from Genesis to Revelation , it is all about the history and the story of the **
 
 #### experience the event of the blood of Jesus
 
-| Old Testment                                  | New Testment                          |
-| --------------------------------------------- | ------------------------------------- |
-| a story written with the blood of lamb        | a story written with ***the blood of God*** |
+| Old Testment | New Testment |
+| --- | --- |
+| a story written with the blood of lamb | a story written with ***the blood of God*** |
 | the coming of the one who will shed blood | His return to ***collect the shed blood***  |
 
 #### Why is the blood of Jesus important?
@@ -999,17 +1606,16 @@ General conscience is variant and relative
 #### the gospel
 1. DEFINITION: the righteous will live by faith [Rm1:17](https://www.blueletterbible.org/niv/rom/1/17/s_1047017)
 2. PURPOSE: to reveal the righteousness of God [Rm1:17](https://www.blueletterbible.org/niv/rom/1/17/s_1047017)
-3. RESULT: ***eternal life*** [Rm5:20-21](https://www.blueletterbible.org/kjv/rom/5/20/s_1051020)
+3. RESULT: ***eternal life*** [Rm5:20-21](https://www.blueletterbible.org/niv/rom/5/20/s_1051020)
 
+[Mt5:17](https://www.blueletterbible.org/niv/mat/5/17/s_934017)
 
-[Mt5:17](https://www.blueletterbible.org/kjv/mat/5/17/s_934017)
+| The Law | Jesus | Faith |
+| --- | --- | --- |
+| by obedience, one is righteous | fulfilled the law | justified |
+| the righteous | the righteousness of God | called "righteous" |
 
-| The Law                        | Jesus                    | Faith              |
-| ------------------------------ | ------------------------ | ------------------ |
-| by obedience, one is righteous | fulfilled the law        | justified          |
-| the righteous                  | the righteousness of God | called "righteous" |
-
-- [Rm8:1-2](https://www.blueletterbible.org/kjv/rom/8/12/s_1054012)
+- [Rm8:1-2](https://www.blueletterbible.org/niv/rom/8/1/s_1054001)
 
 ---
 
@@ -1020,7 +1626,7 @@ General conscience is variant and relative
 - [Mt21:33-46](https://www.blueletterbible.org/niv/mat/21/33/s_950033)
 - [Lk13:6-9](https://www.blueletterbible.org/niv/luk/13/6/s_986006)
 
-## 16. the Bible views revelation as light
+### 16. the Bible views revelation as light
 
 first day He created light
 
@@ -1059,9 +1665,7 @@ spit to ground as ground is sinned/cursed where flesh came from
 ### 17 the Bible is the father's inheritance
 
 - [Eze44:28](https://www.blueletterbible.org/niv/eze/44/28/s_846028)
-
-  God's greatest inheritance to His children is ***His name***
-- [He1:4-5](https://www.blueletterbible.org/niv/heb/1/4/s_1134004)
+- [He1:4-5](https://www.blueletterbible.org/niv/heb/1/4/s_1134004) God's greatest inheritance to His children is ***His name***
 
 #### the names of God revealed in the Old Testment
 - ***Elohim*** ([Ge1](https://www.blueletterbible.org/niv/gen/1/1/s_1001)): a deity, a transcedent
@@ -1077,6 +1681,8 @@ Jacob(Israel as a name of blessing) wrestled with angel
 [Bible Project](https://www.youtube.com/watch?v=eLrGM26pmM0)<br>
 "I AM": <br>
 "YHMH" => "Yahweh" => "Jehovah"
+<br>
+"Yahweh" + "Adonai" = "Yahowah" &rarr; "Jehovah"
 <br>
 -> "Elohim": God <br>
 -> "Adonai" Lord <br>
@@ -1094,7 +1700,7 @@ There is not upper case "*LORD*" in the New Testment
 - [Jn17:26](https://www.blueletterbible.org/niv/jhn/17/26/s_1014026)
 - [Ac19:5](https://www.blueletterbible.org/niv/act/19/5/s_1037005)
 - [Mt28:19](https://www.blueletterbible.org/niv/mat/28/19/s_957019)
-- [Jn5:43]9https://www.blueletterbible.org/niv/jhn/5/43/s_1002043
+- [Jn5:43](https://www.blueletterbible.org/niv/jhn/5/43/s_1002043) capitalized LORD has never appeared in the NT
 - [Jn10:25](https://www.blueletterbible.org/niv/jhn/10/25/s_1007025)
 
 the name of the God is name of the Father which is name of the Son which is the name of the Holy Spirit
@@ -1110,22 +1716,21 @@ which is Yeshua
 
 #### The name of salvation
 
-- Mt1:21
-- Ac3:12
-- Rm10:13
-- He5:9
+- [Mt1:21-23](https://www.blueletterbible.org/niv/mat/1/21/s_930021)
+- [Ac3:12](https://www.blueletterbible.org/niv/act/3/12/s_1021012)
+- [Rm10:13](https://www.blueletterbible.org/niv/rom/10/13/s_1056013)
+- [He5:9](https://www.blueletterbible.org/niv/heb/5/9/s_1138009)
 
-|Jesus |Yeshua|
-|---|---|
-|no meaning |"The Lord saves" "salvation"|
+| Jesus | Yeshua |
+| --- | --- |
+| no meaning | "The Lord saves" "salvation" |
 
 #### Yeshua Immanuel
 
-- [Mt1:21](https://www.blueletterbible.org/niv/mat/1/21/s_930021)
-- [Jn1:1](https://www.blueletterbible.org/niv/jhn/1/1/s_998001), [14](https://www.blueletterbible.org/niv/jhn/1/14/s_998014)
+- [Mt1:21-23](https://www.blueletterbible.org/niv/mat/1/21/s_930021)
+- [Jn1:1](https://www.blueletterbible.org/niv/jhn/1/1/s_998001), [14](https://www.blueletterbible.org/niv/jhn/1/14/s_99801)
 
-in the name of Yeshua
-
+#### In the name of Yeshua
 - repent [Lk24:47](https://www.blueletterbible.org/niv/luk/24/47/s_997047)
 - baptized [Mt28:19](https://www.blueletterbible.org/niv/mat/28/19/s_957019), [Ac19:5](https://www.blueletterbible.org/niv/act/19/5/s_1037005)
 - forgiven [Ac10:43](https://www.blueletterbible.org/niv/act/10/43/s_1028043)
@@ -1135,15 +1740,13 @@ in the name of Yeshua
 - drive out demons and heal [Mk16:17-18](https://www.blueletterbible.org/niv/mar/16/17/s_973017)
 
 
-
-### 19. the Bible says men are worth existing only as God's fellow workers
+### 18. the Bible says men are worth existing only as God's fellow workers
 - [1Co3:9](https://www.blueletterbible.org/niv/1co/3/9/s_1065009)
 - [Mk16:17-20](https://www.blueletterbible.org/niv/mar/16/17/s_973017)
 
 ---
 
-
-### 20. There are three *climaxes* in the Bible
+### 19. There are three *climaxes* in the Bible
 - [Lk1:1-4](https://www.blueletterbible.org/niv/luk/1/1/s_974001)
 
 #### Climax 1. the event of the Exodus of Israel
@@ -1164,7 +1767,7 @@ in the name of Yeshua
 
    8. ***Do not look back to Egypt*** (command)
 
-   9. Entered the land of Cannan
+   9. Entered the land of Canaan
 
 #### Climax 2. the event of Jesus on the cross and the Pentecost (coming of the Holy Spirit)
 
@@ -1202,12 +1805,12 @@ in the name of Yeshua
 
 - [Ge1:1](https://www.blueletterbible.org/niv/gen/1/1/s_1001)
 
-the perfection of God is His oneness and absolutism,
+the perfection of God is His oneness and absolutism(the opposite of being relative) <br>
 "The one and only God".
 
-| ETERNAL   | OMNISCIENT, OMNIPOTENT | OMNIPRESENT | GOOD      |
-| --------- | -------------------- | ----------- | --------- |
-| existence | power                | spatiality  | character |
+| ETERNAL | OMNISCIENT, OMNIPOTENT | OMNIPRESENT | GOOD |
+| --- | --- | --- | --- |
+| existence | power | spatiality  | character |
 
 "God knows no evil, He cannot do evil."<br>
 "Faith is knowing alone that God is perfect."<br>
@@ -1220,18 +1823,20 @@ the perfection of God is His oneness and absolutism,
 
 ### 22. the definition of sin in the Bible leans towards a code of conduct rather than morals
 
-#### iniquity types
-- against God: sin
-- against men: transgression -> going through -> breaking the law/rules
+sin vs. iniquity vs. transgression
 
-#### the structure of ***the Ten Commandments***
+#### Iniquity types
+- against God: sin
+- against men: transgression &rarr; going through &rarr; breaking the law/rules
+
+#### The structure of ***the Ten Commandments***
 4(sin) + 6(transgression)
 
-| ethics of ***faith***          | ethics of ***faith life***       |
-| ------------------------ | -------------------------- |
-| Commandaments 1-4        | Commandments 5-10          |
-| regarding relationship with god | regarding relationship among men |
-| ethics regarding God            | ethics regarding men              |
+| ethics of ***faith*** | ethics of ***faith life*** |
+| --- | --- |
+| Commandaments 1-4 | Commandments 5-10 |
+| regarding relationship with God | regarding relationship among men |
+| ethics regarding God | ethics regarding men |
 
 - [Mt10:37-38](https://www.blueletterbible.org/niv/mat/10/37/s_939037)
 - [Lk9:59-60](https://www.blueletterbible.org/niv/luk/9/59/s_982059) "He is demanding exclusive love"
@@ -1251,7 +1856,7 @@ the perfection of God is His oneness and absolutism,
 - fearing the Word of God
 - seeking homeland
 - believing that God gives life to the dead and calls into existence the things that do not exist
-- giving the blessed name(yeshua) as inheritance
+- giving the blessed name(Yeshua) as inheritance
 - does not fear the power of the world
 - produces immortal masterpieces
 
@@ -1274,16 +1879,16 @@ the lord O kupios = master, owner, lord, king, head
 - [He2:13](https://www.blueletterbible.org/niv/heb/2/13/s_1135013)
 - [Jn15:15](https://www.blueletterbible.org/niv/jhn/15/15/s_1012015)
 
-schedule - predestination - providence
+#### schedule - predestination - providence
 
 - [Jn15:16](https://www.blueletterbible.org/niv/jhn/15/16/s_1012016)
 - [Rm8:17](https://www.blueletterbible.org/niv/rom/8/17/s_1054017)
 - [Mt24:35-36](https://www.blueletterbible.org/niv/mat/24/35/s_953035)
 
-| schedule                         | predestination     | providence                                  |
-| -------------------------------- | ------------------ | ------------------------------------------- |
-| divine decision, God's timetable | establishing parts (scripts that different people will play) | pre-video ("see ahead")                     |
-| before creation, unilateral      | before creation    | becomes "casting" when God's will meets man |
+| schedule | predestination | providence |
+| --- | --- | --- |
+| divine decision, God's timetable | establishing parts (scripts that different people will play) | pre-video ("see ahead") |
+| before creation, unilateral | before creation | becomes "casting" when God's will meets man |
 
 #### God's schedule: "the time is near" etc.
 - [Jer23:5](https://www.blueletterbible.org/niv/jer/23/5/s_768005), [30:3](https://www.blueletterbible.org/niv/jer/30/3/s_775003)
@@ -1314,7 +1919,7 @@ Sleeper has a free will: "yes" -> blessing, "no" -> curse
 
 ### 26. the Bible says to ***not*** miss spiritual opportunity
 
-- [Rev2:10-12](https://www.blueletterbible.org/niv/rev/2/10/s_1169010rev )
+- [Rev2:10-12](https://www.blueletterbible.org/niv/rev/2/10/s_1169010)
 - [Rev3:11-12](https://www.blueletterbible.org/niv/rev/3/11/s_1170011)
 - [Php3:12](https://www.blueletterbible.org/niv/phl/3/12/s_1106012)
 - [2Co6:2](https://www.blueletterbible.org/niv/2co/6/2/s_1084002)
@@ -1325,9 +1930,9 @@ Prayer is training
 
 - [Jn5:39](https://www.blueletterbible.org/niv/jhn/5/39/s_1002039)
 
-the blood orange example: take sample from each book, you will find the image of Jesus
+the blood orange example: take sample from each book, you will find the image of Jesus <br>
 every book has a common topic: Jesus,
-while Apocrypha(伪经) does not
+while Apocrypha(伪经) does not <br>
 the gospel book: first 4 books of new testment, look in Jesus from different perspective
 
 
@@ -1342,7 +1947,7 @@ the gospel book: first 4 books of new testment, look in Jesus from different per
 3. the disciples [Jn15:27](https://www.blueletterbible.org/niv/jhn/15/27/s_1012027)
 4. the Bible [Jn5:39](https://www.blueletterbible.org/niv/jhn/5/39/s_1002039)
 
-#### from Genesis to Revelation are all about Jesus
+#### from Genesis to Revelation they are all about **Jesus**
 
 1. Genesis: JX is the offspring of the woman
 
@@ -1395,7 +2000,7 @@ the gospel book: first 4 books of new testment, look in Jesus from different per
 
 ### 1. the truth
 
-- [Jn8:32](https://www.blueletterbible.org/niv/jhn/8/32/s_1005032)
+- "If you hold to my teaching, you are really my disciples" [Jn8:32](https://www.blueletterbible.org/niv/jhn/8/32/s_1005032)
 - [Ps119:142](https://www.blueletterbible.org/niv/psa/119/142/s_597142)
 - [Jn17:17](https://www.blueletterbible.org/niv/jhn/17/17/s_1014017)
 
@@ -1412,7 +2017,7 @@ Jesus came to make the law perfect
 - [Rm8:1-4](https://www.blueletterbible.org/niv/rom/8/1/s_1054001)
 - [Rm6:23](https://www.blueletterbible.org/niv/rom/6/23/s_1052023)
 
-#### the truth is the law that surpasses the ***natural*** principles
+#### the truth is the law that surpasses the ***natural*** law
 
 truth:
 
@@ -1428,10 +2033,10 @@ truth:
 - [Jn1:3](https://www.blueletterbible.org/niv/jhn/1/3/s_998003)
 - [Jn21:25](https://www.blueletterbible.org/niv/jhn/21/25/s_1018025)
 
-| "Miracles"                           | "Signs"                        |
-| ------------------------------------ | ------------------------------ |
+| "Miracles" | "Signs" |
+| --- | --- |
 | Mysterious events occurred by chance | Manifested by God's revelation |
-| Easy to fall into mysticism          | super natural law, the truth   |
+| Easy to fall into mysticism | super natural law, the truth |
 
 ### 1.How do we believe the "mythical" parts of the Bible
 [Ge11](https://www.blueletterbible.org/niv/gen/11/1/s_11001)
@@ -1528,7 +2133,7 @@ which route has the accurate word of Father? ***Both***
 
 - JX drove out demons (Mk1:23-28)
 
-- Peter caught fish by His word (lk5:4-7)
+- Peter caught fish by His word (Lk5:4-7)
 
 - the two fish and five loaves of bread (Jn2:1-11)
 
@@ -1553,13 +2158,13 @@ which route has the accurate word of Father? ***Both***
 
 ### 1. the revelation of God
 
-#### 1) those under nature [Rm1:20](https://www.blueletterbible.org/niv/rom/1/20/s_1047020)
+#### a. those under nature [Rm1:20](https://www.blueletterbible.org/niv/rom/1/20/s_1047020)
 
-#### 2) Those under the Law (in the Old Testment)
+#### b. Those under the Law (in the Old Testment)
 
-- Jn14:26
+- [Jn14:26](https://www.blueletterbible.org/niv/jhn/14/26/s_1011026)
 
-#### 3) Those under the Gospel
+#### c. Those under the Gospel
 
 - [1Jn1:1-2](https://www.blueletterbible.org/niv/1jo/1/1/s_1160001)
 
@@ -1591,7 +2196,7 @@ which route has the accurate word of Father? ***Both***
 - [1Pe3:22](https://www.blueletterbible.org/niv/1pe/3/22/s_1154022) "the right hand man" &rarr; the most trusted
 
 #### 4) God placed the throne in heaven
-- [He1:3](https://www.blueletterbible.org/niv/heb/1/3/s_1134003)
+- [He1:2-3](https://www.blueletterbible.org/niv/heb/1/2/s_1134002)
 
 ### 4. the three-day long death of Jesus
 - [Jn10:18](https://www.blueletterbible.org/niv/jhn/10/18/s_1007018)
@@ -1612,6 +2217,7 @@ which route has the accurate word of Father? ***Both***
 ### 3. God has His own will
 - [Jn12:49](https://www.blueletterbible.org/niv/jhn/12/49/s_1009049)
 - [Jn14:10](https://www.blueletterbible.org/niv/jhn/14/10/s_1011010)
+<br> when there is a will, there is a way
 
 ## III. What did God put in heaven?
 - [Col1:13-20](https://www.blueletterbible.org/niv/col/1/13/s_1108013)
@@ -1622,7 +2228,8 @@ which route has the accurate word of Father? ***Both***
 
 What is glory?
 
-## IV. the only begotten Son
+## IV. the only begotten(从父永远被生的) Son
+mono-gene, "one of a kind"
 - [Jn1:1](https://www.blueletterbible.org/niv/jhn/1/1/s_998001), [14](https://www.blueletterbible.org/niv/jhn/1/14/s_998014), [18](https://www.blueletterbible.org/niv/jhn/1/18/s_998018)
 - [Jn10:18](https://www.blueletterbible.org/niv/jhn/10/18/s_1007018)
 
@@ -1751,9 +2358,9 @@ angels fell
 4. ehics regarding separation
 
 | Lucifer's rebellion | Eve's fall | the devil's temptation | Ten Commandments |
-| ------------------- | ---------- | ---------------------- | ---------------- |
-|                     |            |                        |                  |
-|       |            |                        |                  |
+| --- | --- | --- | --- |
+| | | | |
+| | | | |
 
 #### Sheol (hades)
 
@@ -1782,7 +2389,7 @@ angels fell
 - [Ge1:26](https://www.blueletterbible.org/niv/gen/1/26/s_1026) "let us": Trinity, the ***three persons*** of the ***One God***
 - [Ge3:22](https://www.blueletterbible.org/niv/gen/3/22/s_3022) "one of us": the man was made in the image of the Son
 
-    onr God in three persons, in agreement of each other: the Father, the Son, the Holy Spirit
+    one God in three persons, in agreement of each other: the Father, the Son, the Holy Spirit
 
 - [1Jn3:8](https://www.blueletterbible.org/niv/1jo/3/8/s_1162008)
 - [Jn1:1, 14, 18](https://www.blueletterbible.org/niv/jhn/1/1/s_998001)
@@ -1791,20 +2398,20 @@ the Son has already had an image when He was with the Word
 
 #### the Trinity:
 
-| Father                                           | Son                 | Holy Spirit                                 |
-| ------------------------------------------------ | ------------------- | ---------------------------------- |
-| Creator                                          | Redeemer            | Helper                             |
-| ideological                                      | visible             | experiential                       |
-| outside the universe                             | within the universe | inside the soul, inside the church |
-| before the creation of the heavens and the earth | 2000 years ago      | after the Pentecost                |
+| Father | Son | Holy Spirit |
+| --- | --- | --- |
+| Creator | Redeemer | Helper |
+| ideological | visible | experiential |
+| outside the universe | within the universe | inside the soul, inside the church |
+| before the creation of the heavens and the earth | 2000 years ago | after the Pentecost |
 
 #### Satan and the devil are the same person
 
-| Satan                    | the Devil             |
-| ------------------------ | --------------------- |
-| unlawful                 | legitimately unlawful |
-| rebelled ***against God***     | ***against men***           |
-| traitor, rebel, betrayer | separator, divider    |
+| Satan | the Devil |
+| --- | --- |
+| unlawful | legitimately unlawful |
+| rebelled ***against God*** | ***against men*** |
+| traitor, rebel, betrayer | separator, divider |
 
 #### God's method of punishment
 - [Jas1:13](https://www.blueletterbible.org/niv/jas/1/13/s_1147013)
@@ -1813,8 +2420,8 @@ the Son has already had an image when He was with the Word
 
 -> diablo "to separate, to destroy"
 
-- Rm13:1
-- Jude1:6
+- [Rm13:1](https://www.blueletterbible.org/niv/rom/13/1/s_1059001)
+- [Jude1:6](https://www.blueletterbible.org/niv/jde/1/6/s_1167006)
 
 #### The Son was decided to be ***the rightousness*** in the begninning
 - [Jas1:13](https://www.blueletterbible.org/niv/jas/1/13/s_1147013)
@@ -1823,25 +2430,25 @@ the Son has already had an image when He was with the Word
 
 #### The devil sinned from the beginning
 
-| the origin of sin                                 | the father of lies   | the first murderer      |
-| ------------------------------------------------- | -------------------- | ----------------------- |
-| in heaven                                         | in the Garden        | outside the Garden      |
+| the origin of sin | the father of lies | the first murderer |
+| --- | --- | --- |
+| in heaven | in the Garden | outside the Garden |
 | opposed/rebelled against God [Is14:12-15](https://www.blueletterbible.org/niv/isa/14/12/s_693012), [1Jn3:8](https://www.blueletterbible.org/niv/1jo/3/8/s_1162008) | lied to Eve [Jn8:44](https://www.blueletterbible.org/niv/jhn/8/44/s_1005044) | Cain's murder [1Jn3:12](https://www.blueletterbible.org/niv/1jo/3/12/s_1162012) |
 
 #### Redemption, salvation & eternal life
 
-| Redemption                                 | Salvation                                              | Eternal life                                   |
-| ------------------------------------------ | ------------------------------------------------------ | ---------------------------------------------- |
-| past                                       | present                                                | future                                         |
+| Redemption | Salvation | Eternal life |
+| --- | --- | --- |
+| past | present | future |
 | JX paid the price of sin through His death | those who believe in the redemption of JX are forgiven | begins at the time of the resurrection to life |
-| "believe this historical fact"             | "come out of the wicked world"                         | "live with the hope of resurrection"           |
+| "believe this historical fact" | "come out of the wicked world" | "live with the hope of resurrection" |
 
 - [Rm10:10](https://www.blueletterbible.org/niv/rom/10/10/s_1056010)
 
 
-| "you have been saved"           | "be saved"                            | "you will be saved"                            |
-| ------------------------------- | ------------------------------------- | ---------------------------------------------- |
-| from the past [Eph2:38](https://www.blueletterbible.org/niv/eph/2/8/s_1099008)         | present [ac2:40](https://www.blueletterbible.org/niv/act/2/40/s_1020040)                      | future [Rm8:23](https://www.blueletterbible.org/niv/rom/8/23/s_1054023)                                |
+| "you have been saved" | "be saved" | "you will be saved" |
+| --- | --- | --- |
+| from the past [Eph2:38](https://www.blueletterbible.org/niv/eph/2/8/s_1099008) | present [ac2:40](https://www.blueletterbible.org/niv/act/2/40/s_1020040) | future [Rm8:23](https://www.blueletterbible.org/niv/rom/8/23/s_1054023) |
 | by believing the blood of Jesus | by sustaining salvation with the word | by becoming the firstfruits of the Holy Spirit |
 
 - [2Pe2:6-9](https://www.blueletterbible.org/niv/2pe/2/6/s_1158006)
@@ -1855,20 +2462,24 @@ the Son has already had an image when He was with the Word
 - [Ge1:26-27](https://www.blueletterbible.org/niv/gen/1/26/s_1026)
 
 #### Christ is the image of God
+God has no image, no form, no body. <br>
 
 - [Jn14:8-9](https://www.blueletterbible.org/niv/jhn/14/8/s_1011008) "our image", "our likeness" = the image of the Son (one person of the Trinity)
 - [2Co4:4](https://www.blueletterbible.org/niv/2co/4/4/s_1082004) "the image of God"
 - [Col1:15](https://www.blueletterbible.org/niv/col/1/15/s_1108015) "the form of God"
 - [Php2:6](https://www.blueletterbible.org/niv/phl/2/6/s_1105006) "the very nature God"
 - [He1:3](https://www.blueletterbible.org/niv/heb/1/3/s_1134003) "the exact representation of His being"
-- [Jn8:56-58](https://www.blueletterbible.org/niv/jhn/8/56/s_1005056)
+- [Jn8:56-58](https://www.blueletterbible.org/niv/jhn/8/56/s_1005056) "before Abraham was born, I am"
 - [Php2:6-8](https://www.blueletterbible.org/niv/phl/2/6/s_1105006)
+
+we are formed in the original pattern of JX
 
 #### The creation of man
 
 - [Eph1:4](https://www.blueletterbible.org/niv/eph/1/4/s_1098004)
 - [Mt1:21](https://www.blueletterbible.org/niv/mat/1/21/s_930021), [23](https://www.blueletterbible.org/niv/mat/1/23/s_930023)
-- [Col1:15](https://www.blueletterbible.org/niv/col/1/15/s_1108015)
+- [Col1:15-17](https://www.blueletterbible.org/niv/col/1/15/s_1108015)
+
 
 #### The purpose of the Son of God coming in the flesh
 
@@ -1877,7 +2488,6 @@ the Son has already had an image when He was with the Word
 3. to save men [Jn3:16](https://www.blueletterbible.org/niv/jhn/3/16/s_1000016)
 
 #### The different titles of the devil
-
 1. Luciel: the bright star, angel
 
 2. Satan: rebel who left his proper domain
@@ -1886,28 +2496,31 @@ the Son has already had an image when He was with the Word
 
 4. the ruler of darkness, the prince of the air: Hades, the universe [Eph2:2](https://www.blueletterbible.org/niv/eph/2/2/s_1099002)
 
-5. the devil: the separator (Ge3:4-6), the father of lies [Jn8:44](https://www.blueletterbible.org/niv/jhn/8/44/s_1005044); [Rev12:9](https://www.blueletterbible.org/niv/rev/12/9/s_1179009)
+5. the devil: the separator [Ge3:4-6](https://www.blueletterbible.org/niv/gen/3/4/s_3004), the father of lies [Jn8:44](https://www.blueletterbible.org/niv/jhn/8/44/s_1005044); [Rev12:9](https://www.blueletterbible.org/niv/rev/12/9/s_1179009)
 
 6. the ruler of death: after Adam sinned [He2:15](https://www.blueletterbible.org/niv/heb/2/15/s_1135015)
 - [Mk1:1-3](https://www.blueletterbible.org/niv/mar/1/1/s_958001)
 
-Adam prepared ***flesh*** (the condition for death) and ***sin*** (the attribute of death)
+Adam prepared ***flesh*** (the condition for death) and ***sin*** (the attribute of death) <br>
 
-the flesh of Jesus ->
-the Word that became flesh ->
-the God that became flesh ->
+Did He eat and poop? yes, He has the function of flesh, but does not have DNA. The pain was real.
+
+the flesh of Jesus &rarr;
+the Word that became flesh &rarr;
+the God that became flesh &rarr;
 the spirit that became flesh
 
-#### God decided the WORD to be the righteousness
-
-- [Jn16:9](https://www.blueletterbible.org/niv/jhn/16/9/s_1013009) sin because people do not believe???
+#### God decided the WORD to be the RIGHTEOUNESS
+- [Jn16:9-22](https://www.blueletterbible.org/niv/jhn/16/9/s_1013009) sin because people do not believe???
 - [2Co5:21](https://www.blueletterbible.org/niv/2co/5/21/s_1083021)
 - [1Co15:55-57](https://www.blueletterbible.org/niv/1co/15/55-57/s_1077055)
 
-| the law                 | the devil                        | the righteous God  |
-| ----------------------- | -------------------------------- | ------------------ |
+| the law | the devil | the righteous God  |
+| --- | --- | --- |
 | the law of condemnation | the one who brings false charges | the One who judges |
-| the criminal law            | the prosecutor                   | the judge          |
+| the criminal law | the prosecutor (检举人) | the judge |
+
+JX &rarr; sin &rarr; the law &rarr; the devil &rarr; the judge
 
 #### The plan of God
 
@@ -1923,6 +2536,8 @@ the spirit that became flesh
 #### Men were made to receive ***grace***
 - [2Co6:2](https://www.blueletterbible.org/niv/2co/6/2/s_1084002)
 
+Jx's major mission is to destroy devil, saving life is a side-gift to mankind
+
 #### The human flesh is a garment of suffering
 
 - [Ge3:19](https://www.blueletterbible.org/niv/gen/3/19/s_3019)
@@ -1930,35 +2545,42 @@ the spirit that became flesh
 - [Rm8:31-34](https://www.blueletterbible.org/niv/rom/8/31/s_1054031)
 - [Rm6:12-23](https://www.blueletterbible.org/niv/rom/6/12/s_1052012)
 
+He set a model for all, He is the standard righteousness for all creations.
+
+No matter what happens in life, always be thankful for what He gives.
+
 ---
 
 ## Lec 17
 
-## VIII. the relationship between God and man
+## VIII. The relationship between God and man
 
 - [He2:5-9](https://www.blueletterbible.org/niv/heb/2/5/s_1135005)
 - [Jas1:13](https://www.blueletterbible.org/niv/jas/1/13/s_1147013) to tempt: to put to test, to challenge
 - [1Jn4:9](https://www.blueletterbible.org/niv/1jo/4/9/s_1163009) The one and only Son is the measure of God's love
 
+God is love, but love is not God.
 
 "The greatest character of God is love". God is love but love is not God.
 
-#### men are the object of God's love
+#### Men are the object of God's love
 
 - [He1:7](https://www.blueletterbible.org/niv/heb/1/7/s_1134007), [14](https://www.blueletterbible.org/niv/heb/1/14/s_1134014)
 
-#### men were created a little less than the angels
+#### men were created a little(a little while) less/lower than the angels
 
 - [He2:7](https://www.blueletterbible.org/niv/heb/2/7/s_1135007)
 
 #### the origin of sin is the devil
 
-- [He2:9](https://www.blueletterbible.org/niv/heb/2/9/s_1135009),[11](https://www.blueletterbible.org/niv/heb/2/11/s_1135011), [14](https://www.blueletterbible.org/niv/heb/2/14/s_1135014)
+- [He2:9](https://www.blueletterbible.org/niv/heb/2/9/s_1135009),[11](https://www.blueletterbible.org/niv/heb/2/11/s_1135011), [14](https://www.blueletterbible.org/niv/heb/2/14/s_1135014) "taste death", the purpose for JX to come and resurrect
 - [1Jn3:8](https://www.blueletterbible.org/niv/1jo/3/8/s_1162008)
 - [1Co15:45](https://www.blueletterbible.org/niv/1co/15/45/s_1077045)
 
 #### Jesus and men were born for the ***same*** purpose
 - [Mt3:16-17](https://www.blueletterbible.org/niv/mat/3/16/s_932016)
+
+We should reflect God's love, to shine His glory. We are given the function to love and to be loved.
 
 #### the duty and the right to ***be loved***
 - [1Pe1:23](https://www.blueletterbible.org/niv/1pe/1/23/s_1152023)
@@ -1966,17 +2588,17 @@ the spirit that became flesh
 - [He2:18](https://www.blueletterbible.org/niv/heb/2/18/s_1135018)
 
 ##### "My Father"
-- the Father God &rarr; made my flesh/spirit
+Trinity: <br>
+- the Father God &rarr; made my flesh/spirit, the one who created me
 - the Son  &rarr; gave birth to my soul
-- the Holy Spirit &rarr; nurtures my soul
+- the Holy Spirit &rarr; nurtures my soul, reminds me how He loves us
 
 ---
 
 ## Lec 18
 
 ## IX. The offspring of the woman
-
-- [Ge3:14-21](https://www.blueletterbible.org/niv/gen/3/14/s_3014)
+- [Ge3:14-22](https://www.blueletterbible.org/niv/gen/3/14/s_3014) offspring of woman vs. offspring of serpent
 - [1Ti2:13-14](https://www.blueletterbible.org/niv/1ti/2/13/s_1121013)
 
 #### ***The woman*** - was deceived

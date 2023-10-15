@@ -166,7 +166,6 @@
   - [Lec 25](#lec-25)
   - [XX. the second coming of Jesus Christ](#xx-the-second-coming-of-jesus-christ)
     - [The time of the second coming](#the-time-of-the-second-coming)
-    - [Is the Sesond Coming ***before*** the tribulation or ***after***?](#is-the-sesond-coming-before-the-tribulation-or-after)
     - ["the Man of Lawlessness"](#the-man-of-lawlessness)
     - [The order of the second coming](#the-order-of-the-second-coming)
   - [XXI. The Great Judgement](#xxi-the-great-judgement)
@@ -176,10 +175,7 @@
     - [1. The beginning of angels](#1-the-beginning-of-angels)
     - [2. The characteristics of angels](#2-the-characteristics-of-angels)
   - [Lec 27](#lec-27)
-  - [3. Different types of angels and their roles](#3-different-types-of-angels-and-their-roles)
-    - [3.1 One's own angels](#31-ones-own-angels)
-    - [3.2 Jesus and angels](#32-jesus-and-angels)
-    - [3.3 Man's death and angel](#33-mans-death-and-angel)
+    - [3. Different types of angels and their roles](#3-different-types-of-angels-and-their-roles)
     - [4. Different titles of evil spirits](#4-different-titles-of-evil-spirits)
     - [5. The work of satan](#5-the-work-of-satan)
   - [Lec 28](#lec-28)
@@ -2748,21 +2744,28 @@ the souls, sanctified by the blood of JX, who put effort to resurrect with Chris
 - [Ge6:1-3](https://www.blueletterbible.org/niv/gen/6/1/s_6001)
 
 ### Three origins/categories of men
-
-||||
+|  |  |  |
 |---|---|---|
-| offspring of Adam (offspring of ***Seth***)          | living being | ***"Sons of God"***      |
-
+| offspring of Adam (offspring of ***Seth***) | living being | ***"Sons of God"*** |
 | Nephilim | no spirit    | "daughters of men" |
 |Mixed offspring (of two groups)|No spirit|"daughters of men"|
+
+why son of Seth? <br>
+Noah was descendent of <u>neither</u> Cain and Abel.
 
 ### The descendants of Seth
 
 1. Adam &lrhar; Noah [Ge4:26](https://www.blueletterbible.org/niv/gen/4/26/s_4026); [1Pe3:19-20](https://www.blueletterbible.org/niv/1pe/3/19/s_1154019)
-   (the original sin) no other commandment received.
-2. Noah &lrhar; Moses [Ge9:4](https://www.blueletterbible.org/niv/gen/9/4/s_9004) given commandment, original sin, spiritual sin,
-3. Moses &lrhar; Jesus [Ex24:6-8](https://www.blueletterbible.org/niv/exo/24/6/s_74006); [Lev17:11-13](https://www.blueletterbible.org/niv/lev/17/11/s_107011) given commandment(do not each blood, do shed blood of animal for sacrifice)
-4. Jesus &lrhar; the second coming  [Mt26:27-28](https://www.blueletterbible.org/niv/mat/26/27/s_955027) given commandment(drink the blood)
+   - (the original sin) no other commandment received.
+   - no revelation (faint)
+   - no covenant
+2. Noah &lrhar; Moses [Ge9:4](https://www.blueletterbible.org/niv/gen/9/4/s_9004)
+   - given commandment, original sin, spiritual sin
+3. Moses &lrhar; Jesus [Ex24:6-8](https://www.blueletterbible.org/niv/exo/24/6/s_74006); [Lev17:11-13](https://www.blueletterbible.org/niv/lev/17/11/s_107011)
+   - given commandment(do not eat blood, do shed blood of animal for sacrifice)
+4. Jesus &lrhar; the second coming  [Mt26:27-28](https://www.blueletterbible.org/niv/mat/26/27/s_955027)
+   - given commandment("drink my blood")
+   -
 
 resurrection starts from Noah
 
@@ -2772,10 +2775,9 @@ resurrection starts from Noah
 
     Paradise locates across over second and third heaven, which contains Father's house. The part of which lies in second heaven is called spiritual prison, but not hell. The part which lies in third heaven is called Abraham's boson or side
 
-    1. people before Noah, no resurrection &rarr; became angels
-    1. believers from Noah to Jesus (in OT), go to Abraham's side, will come to 2nd resurrection &rarr; servants of God
+    1. people before Noah, no resurrection &rarr; serving God (became angels)
+    1. believers from Noah to Jesus(covenant of blood) (in OT), go to Abraham's side, will come to 2nd resurrection &rarr; servants of God
     1. believers after Jesus &rarr; paradise, eligible for 1st resurrection &rarr; heirs of God
-
 
 1. Noah &lrhar; Jesus [Lk16:23](https://www.blueletterbible.org/niv/luk/16/23/s_989023)
    who died in this period is only qualified for second resurrection, going to paradise, as servants
@@ -2785,14 +2787,14 @@ resurrection starts from Noah
 
 ### The world in the life after death
 
-- [1Pe4:7](https://www.blueletterbible.org/niv/1pe/4/7/s_1155007)
+- [1Pe4:6-7](https://www.blueletterbible.org/niv/1pe/4/6/s_1155006)
 - [1Co15:21-24](https://www.blueletterbible.org/niv/1co/15/21/s_1077021), [41-44](https://www.blueletterbible.org/niv/1co/15/41/s_1077041)
 - [Rm8:17](https://www.blueletterbible.org/niv/rom/8/17/s_1054017)
 
 ### Orders of resurrection:
 1. Jesus, "the firstfruits"
 2. the children/heirs of God, 1st resurrection
-3. after millennium "1000 years", 2nd resurrection
+3. after millennium "1000 years", 2nd resurrection, all will rise, unbelievers will be thrown into hell
 
 ### Unbelievers after death
 
@@ -2804,36 +2806,37 @@ In Hades unto 120 years &rarr; to the ***Abyss*** (within Hades)(spiritual space
 
 - [Rev8:3-4](https://www.blueletterbible.org/niv/rev/8/3/s_1175003)
 
-| saints                         | believers              |
-|:------------------------------:|:----------------------:|
+| saints | believers |
+|:---:|:---:|
 | use their flesh as God's tools | use their flesh as man |
-| the ***first*** resurrection               | the ***second*** resurrection       |
+| the ***first*** resurrection | the ***second*** resurrection |
 
 - [Rev4:6-10](https://www.blueletterbible.org/niv/rev/4/6/s_1171006)
 
 ## XVII. The death of the first Adam and the resurrection of the last Adam
 
-- [1Co15:45-47](https://www.blueletterbible.org/niv/1co/15/45/s_1077045)
+- [1Co15:20-24](https://www.blueletterbible.org/niv/1co/15/20/s_1077020), [45-47](https://www.blueletterbible.org/niv/1co/15/45/s_1077045)
 
 ### The important connection between the first Adam and the last Adam
 |first Adam (all men)   |last Adam   |
 |---|---|
-|   living spirit|life-giving spirit   |
-| has flesh| spiritual|
-| born on earth| born in heaven|
-| of the dust of the earth| of heaven|
+| living spirit|life-giving spirit |
+| has flesh| spiritual |
+| born on earth| born in heaven |
+| of the dust of the earth| of heaven |
 
+denying the coming of Jesus in the flesh are referred to false prohphet/anti-christ
 ### 1. The death of Jesus
 
 - [1Jn4:2-3](https://www.blueletterbible.org/niv/1jo/4/2/s_1163002)
 - [Jn10:17-18](https://www.blueletterbible.org/niv/jhn/10/17/s_1007017)
 
-|||
+|  |  |
 | --- | --- |
-| ***The universe*** | the place for the death of Jesus    |
-| Man                | the condition for the death of Jesus (the flesh and sin) |
-| The law            | the context of the death of Jesus                       |
-| ***Miracles***     | the power of the death of Jesus                         |
+| ***The universe*** | the place for the death of Jesus |
+| Man | the condition for the death of Jesus (the flesh and sin) |
+| The law | the context of the death of Jesus |
+| ***Miracles*** | the power of the death of Jesus |
 
 - [He10:19-20](https://www.blueletterbible.org/niv/heb/10/19/s_1143019)
 
@@ -2863,10 +2866,15 @@ All will resurrect,
 - [1Co15:20-24](https://www.blueletterbible.org/niv/1co/15/20/s_1077020), [50-52](https://www.blueletterbible.org/niv/1co/15/50/s_1077050)
 - [Rev20:4-6](https://www.blueletterbible.org/niv/rev/20/4/s_1187004)
 
+saints vs. believers <br>
+"the resurrection of the righteous is the 1st resurrection"
+
 ### The first Adam and the last Adam connections
 
 the body of Jesus and the spirit of man are on the same level. <br>
 the last Adam has no flesh thus no tendency to sin (flesh = life-giving spirit = the last Adam)
+
+? "drink my blood, eat my flesh" is it related to communion ?
 
 #### Redemption and the forgeveness of sin
 - [Rm8:11](https://www.blueletterbible.org/niv/rom/8/11/s_1054011), [17-20](https://www.blueletterbible.org/niv/rom/8/17/s_1054017)
@@ -2881,10 +2889,10 @@ the last Adam has no flesh thus no tendency to sin (flesh = life-giving spirit =
 
 ### Major Biblical eras
 
-|||
+| | |
 | --- | --- |
 | Adam &harr; Noah | era of Deity-Consciousness|
-| Noash &harr; Moses| era of Sacrifice|
+| Noah &harr; Moses| era of Sacrifice|
 | Moses &harr; John the Baptist(the last prophet) / Jesus| era of the Law|
 | Jesus &harr; the Second Coming| era of Grace|
 | the Second Coming &harr; Judgement | era of the Millennium(the thousand years of ruling), the kingdom on earth |
@@ -2896,11 +2904,17 @@ the last Adam has no flesh thus no tendency to sin (flesh = life-giving spirit =
 #### Three interpretations of millennium
 |                ||
 | --- | --- |
-| Premillennium  | the Second Coming of Jesus - the Millennium - the Great Judgement |
-| Amillennium    | No Millennium  |
+| ***Premillennium***  | the Second Coming of Jesus - the Millennium - the Great Judgement |
+| Amillennium (absence)   | No Millennium  |
 | PostMillennium | the Millennium - the Second Coming of Jesus - the Great Judgement |
 
 <br>
+
+|A |B|
+|--|--|
+|1<td rowspan="2">3</td>
+|4
+|6|7|
 
 <table>
     <thead>
@@ -2915,15 +2929,15 @@ the last Adam has no flesh thus no tendency to sin (flesh = life-giving spirit =
     </thead>
     <tbody>
         <tr>
-            <td></td>
+            <td rowspan=4>Nephilim</td>
             <td>Adam &harr; Noah</td>
             <td>Noah &harr; Moses</td>
             <td>Moses &harr; Jesus</td>
             <td>Jesus &harr; 2nd coming</td>
-            <td>2nd coming &harr; Greate Judgement</td>
+            <td>2nd coming &harr; Great Judgement</td>
         </tr>
         <tr>
-            <td rowspan=3>Nephilim</td>
+            <!-- <td rowspan=3>Nephilim</td> -->
             <td rowspan=3>Blood: no covenant, no revelation, no commandment</td>
             <td colspan=3>Blood: covenant, revelation, commandment</td>
             <td></td>
@@ -2945,21 +2959,23 @@ the last Adam has no flesh thus no tendency to sin (flesh = life-giving spirit =
 - [Ac4:12](https://www.blueletterbible.org/niv/act/4/12/s_1022012)
 
 ### The Holy Spirit of Grace
-- [He11:13](https://www.blueletterbible.org/niv/heb/11/13/s_1144013), [39-40](https://www.blueletterbible.org/niv/heb/11/39/s_1144039)
+- [He11:13](https://www.blueletterbible.org/niv/heb/11/13/s_1144013),  ppl (in the OT) did not receive things
+- [He11:39-40](https://www.blueletterbible.org/niv/heb/11/39/s_1144039) it is the ppl in the NT, the ppl in the OT are made perfect
 
-| OT people              | NT people             |
+
+| OT people | NT people |
 | --- | --- |
-| had faith, had sin  | the death of Jesus |
-| testified by blood  | the death of Jesus |
-| died in sin         | sins taken away    |
-| sin of disobedience | sin of unbelief    |
+| had faith, had sin | the death of Jesus |
+| testified by blood | the death of Jesus |
+| died in sin | sins taken away |
+| ***sin of disobedience*** | ***sin of unbelief*** (go to hell) |
 
-the NT people
+the NT people (judged by believing or not)
 - [Jn3:18](https://www.blueletterbible.org/niv/jhn/3/18/s_1000018)
 - [Jn16:9](https://www.blueletterbible.org/niv/jhn/16/9/s_1013009)
 - [Jn11:25-26](https://www.blueletterbible.org/niv/jhn/11/25/s_1008025)
 
-the OT people
+the OT people (judged by sin)
 - [Rm2:12-16](https://www.blueletterbible.org/niv/rom/2/12/s_1048012)
 - [Mt10:14](https://www.blueletterbible.org/niv/mat/10/14/s_939014)
 
@@ -2982,22 +2998,22 @@ The condemnation under the Gospel is seven times weightier than the condemnation
 | Spirit| the spirit of servant | the spirit of the Son |
 | blood| blood of animals| blood of JX|
 | promies| None| the Holy Spirit |
-| life-after-death | Abraham's side| Paradise|
-| resurrection     | second| first|
+| life-after-death | Abraham's side| Paradise |
+| resurrection | second | first |
 
 - [2Co1:21-22](https://www.blueletterbible.org/niv/2co/1/21/s_1079021)
 - [Ac2:38](https://www.blueletterbible.org/niv/act/2/38/s_1020038)
 
 | the works of JX | the Holy Spirit|
 | --- | --- |
-| received by sinners| received by saved souls|
-| by grace| by grace; requirement not for redemption but for salvation |
+| received by sinners| received by saved souls |
+| by grace | by grace; requirement not for redemption but for salvation |
 
 | Israel| Christians|
 | --- | --- |
-| nurtured by the prophets | nurtured by the Holy Spirit    |
-| under suffering, curse   | under grace and truth |
-| fear                     | in peace, joy, happiness |
+| nurtured by the prophets | nurtured by the Holy Spirit |
+| under suffering, curse | under grace and truth |
+| fear | in peace, joy, happiness |
 
 - [Rm8:32](https://www.blueletterbible.org/niv/rom/8/32/s_1054032)
 
@@ -3018,12 +3034,15 @@ the four men with leprosy in Samaria
 | co-workers for the death of JX | co-workers for the ministry of the grace of JX |
 | under curse| in suffering|
 
+"the sin in the era of grace is not preaching"
+
 Grace received (freely given)
 1. forgiven
 2. inspired by the Holy Spirit
 3. received the commandment to save souls
 
 ---
+
 ## Lec24
 ## XIX. The dispensation of God
 - [1Th4:14-17](https://www.blueletterbible.org/niv/1th/4/14/s_1115014)
@@ -3095,23 +3114,23 @@ X testified by Y
     = "the redemption of our bodies"
     = first resurrection
 
-    - [Rev7:9-10](https://www.blueletterbible.org/niv/rev/7/9/s_1174009)
+    - [Rev7:9-10](https://www.blueletterbible.org/niv/rev/7/9/s_1174009) symbolic
 
 4. the lesson from the fig tree and the second coming of the Son of Man
     - [Mt24:32](https://www.blueletterbible.org/niv/mat/24/32/s_953032)
-    - [Lk21:20-24](https://www.blueletterbible.org/niv/luk/21/20/s_994020)
+    - [Lk21:20-24](https://www.blueletterbible.org/niv/luk/21/20/s_994020) no sovereignty
 
 5. when people are saying "peace and safety"
     - [1Th5:1-3](https://www.blueletterbible.org/niv/1th/5/1/s_1116001)
-    - [Rev13:1-4](https://www.blueletterbible.org/niv/rev/13/1/s_1180001)
+    - [Rev13:1-4](https://www.blueletterbible.org/niv/rev/13/1/s_1180001) beast &rarr; antichrist
     - [Rev17:13](https://www.blueletterbible.org/niv/rev/17/13/s_1184013), [17](https://www.blueletterbible.org/niv/rev/17/17/s_1184017)
     - [Rev6:5-6](https://www.blueletterbible.org/niv/rev/6/5/s_1173005)
     - [Rev13:15-18](https://www.blueletterbible.org/niv/rev/13/15/s_1180015)
 
+- [2Pe3:8](https://www.blueletterbible.org/niv/2pe/3/8/s_1159008) live each day as the last day
 ---
 
 ## Lec 25
-
 ## XX. the second coming of Jesus Christ
 - [Mt24:32-51](https://www.blueletterbible.org/niv/mat/24/32/s_953032)
 
@@ -3121,23 +3140,27 @@ X testified by Y
 | HS | separates | works only in believers |
 | JX | the living and the dead | judges |
 
-"Eschatology" = the study of the End
+"Eschatology" (末世论) = the study of the End
 
 ### The time of the second coming
 
 - [Mt24:36](https://www.blueletterbible.org/niv/mat/24/36/s_953036)
 
-### Is the Sesond Coming ***before*** the tribulation or ***after***?
+period of tribulation
+
+#### Is the Sesond Coming ***before*** the tribulation or ***after***?
 before
 
-- [Mt24:37-39](https://www.blueletterbible.org/niv/mat/24/37/s_953037)
+- [Mt24:37-39](https://www.blueletterbible.org/niv/mat/24/37/s_953037) went in the ark 7 days before the rain
 - [Ge19:15-16](https://www.blueletterbible.org/niv/gen/19/15/s_19015)
 
 - Noah [Ge7:11](https://www.blueletterbible.org/niv/gen/7/11/s_7011) the flood
 
+Methuselah = Noah's grandpa = "END"
+
 ### "the Man of Lawlessness"
-the "antichrist", "rebellion", apostesy / defection
-- [2Th2:1-8](https://www.blueletterbible.org/niv/2th/2/1/s_1118001)
+the "antichrist", "rebellion", apostasy(rebelion) / defection
+- [2Th2:1-8](https://www.blueletterbible.org/niv/2th/2/1/s_1118001) all will be governed by the anti-christ,
 - [Rev3:10](https://www.blueletterbible.org/niv/rev/3/10/s_1170010)
 
 ### The order of the second coming
@@ -3148,7 +3171,7 @@ the "antichrist", "rebellion", apostesy / defection
 
 3. transformed into spiritual bodies [1Co15:51-54](https://www.blueletterbible.org/niv/1co/15/51/s_1077051), [1Th4:15](https://www.blueletterbible.org/niv/1th/4/15/s_1115015)
 
-4. welcoming Jesus in the air: ***the rapture*** [2Th1:10](https://www.blueletterbible.org/niv/2th/1/10/s_1117010)
+4. welcoming Jesus in the air: ***the rapture*** [2Th1:10](https://www.blueletterbible.org/niv/2th/1/10/s_1117010) to be taken up
 
 5. after the rapture of saints, tribulation begins in the world [Mt24:21](https://www.blueletterbible.org/niv/mat/24/21/s_953021)
 
@@ -3158,6 +3181,8 @@ the "antichrist", "rebellion", apostesy / defection
     3. [Rev9:5](https://www.blueletterbible.org/niv/rev/9/5/s_1176005), [10](https://www.blueletterbible.org/niv/rev/9/10/s_1176010)
 
 6. the appearance of ***the antichrist***
+   <br>
+   the man of lawlessness may or may not be
    - [Rev13:3-6](https://www.blueletterbible.org/niv/rev/13/3/s_1180003), [16-17](https://www.blueletterbible.org/niv/rev/13/16/s_1180016)
    - [Rev14:9-11](https://www.blueletterbible.org/niv/rev/14/9/s_1181009)
 
@@ -3165,7 +3190,7 @@ the "antichrist", "rebellion", apostesy / defection
 
 8. God shortens suffering of ***the elect*** [Mt24:21-22](https://www.blueletterbible.org/niv/mat/24/21/s_953021), [Rm11:28](https://www.blueletterbible.org/niv/rom/11/28/s_1057028)
 
-9. the Second Coming of the Son of Man to ***the earth*** [Mt24:29-31](https://www.blueletterbible.org/niv/mat/24/29/s_953029)
+9.  the Second Coming of the Son of Man to ***the earth*** [Mt24:29-31](https://www.blueletterbible.org/niv/mat/24/29/s_953029)
 
 10. the beast and the false prophet thrown into hell first [Rev19:11-14](https://www.blueletterbible.org/niv/rev/19/11/s_1186011), [20](https://www.blueletterbible.org/niv/rev/19/20/s_1186020)
 
@@ -3173,7 +3198,7 @@ the "antichrist", "rebellion", apostesy / defection
 
 12. the Millennium [Is65:17-25](https://www.blueletterbible.org/niv/isa/65/17/s_744017), [Rev14:1-3](https://www.blueletterbible.org/niv/rev/14/1/s_1181001) two types of people
     1. Israel in flesh
-    1. "royal priests" the people participated in the 1st resurrection
+    2. "royal priests" the people participated in the 1st resurrection
 
 13. the ***last*** temptation of the devil [Rev20:7-8](https://www.blueletterbible.org/niv/rev/20/7/s_1187007), [1Co15:24-28](https://www.blueletterbible.org/niv/1co/15/24/s_1077024)
 
@@ -3205,12 +3230,14 @@ the "antichrist", "rebellion", apostesy / defection
 - [Ac1:8](https://www.blueletterbible.org/niv/act/1/8/s_1019008)
 
 rev HS -> power
-"power" = angels
+"power" = angels being revealed
 
 ### 1. The beginning of angels
 
 - [Eze28:15](https://www.blueletterbible.org/niv/eze/28/15/s_830015) <br>
-  "you" = angels ("stars") = "living spirits", live by the life-giving spirit
+  - "blameless" -> (is fulfilling the role) "perfect" (KJV)
+  - "you" = angels ("stars") = "living spirits", live by the life-giving spirit (God)
+  - wickedness surfaces
 
 #### How do they live?
 
@@ -3222,7 +3249,7 @@ rev HS -> power
 
 |   |   |
 | --- | --- |
-| for Adam to live | - ***eat thte Word = obey*** <br> - the Word = life, light |
+| for Adam to live | - ***eat the Word = obey*** <br> - the Word = life, light |
 | Adam's sin | disobeyed the Word |
 | to live again | - eat the Word again <br> - eat the flesh and drink the blood of JX |
 
@@ -3241,7 +3268,7 @@ life = light = the Word [Jn1:4](https://www.blueletterbible.org/niv/jhn/1/4/s_99
 | the devil | left his proper position &rarr; to Hades &rarr; cannot return to heaven |
 | JX | sent (the Father's command) &rarr; to Hades &rarr; lifted up to heaven |
 
-angels to live = humility (service) <br>
+angels to live = humility (service), opposite of pride <br>
 man to live = ***faith*** (obedience)
 
 "know your position and stay there"? <br>
@@ -3254,13 +3281,15 @@ man to live = ***faith*** (obedience)
 | God - Man - Angels | God - Angels - Man | God - JX - Man(Christian) - Angels |
 
 - [He1:7](https://www.blueletterbible.org/niv/heb/1/7/s_1134007)
+- [Jude1:9](https://www.blueletterbible.org/niv/jde/1/9/s_1167009)
+- [Rev22:8-9](https://www.blueletterbible.org/niv/rev/22/8/s_1189008)
 
 ### 2. The characteristics of angels
 
 1. spiritual beings [He1:14](https://www.blueletterbible.org/niv/heb/1/14/s_1134014)
 1. no gender [Mt22:30](https://www.blueletterbible.org/niv/mat/22/30/s_951030), [Ge19:5](https://www.blueletterbible.org/niv/gen/19/5/s_19005), [7-8](https://www.blueletterbible.org/niv/gen/19/7/s_19007), [Jos5:13-14](https://www.blueletterbible.org/niv/jos/5/13/s_192013)
 
-1. the ***person*** is retained in the spirit
+1. the ***person*** is retained in the spirit (the moment when they are made)
 
 1. superior to men (in conditions)
     - surpass time and space to some extent [He2:6-7](https://www.blueletterbible.org/niv/heb/2/6/s_1135006)
@@ -3281,9 +3310,9 @@ man to live = ***faith*** (obedience)
 
 ## Lec 27
 
-## 3. Different types of angels and their roles
+### 3. Different types of angels and their roles
 
-### 3.1 One's own angels
+#### 3.1 One's own angels
 
 - [Mt18:10](https://www.blueletterbible.org/niv/mat/18/10/s_947010)
 - [Rev8:3-4](https://www.blueletterbible.org/niv/rev/8/3/s_1175003)
@@ -3308,7 +3337,7 @@ man to live = ***faith*** (obedience)
 
 #### The life of saints = angels ministering(侍候) them
 
-### 3.2 Jesus and angels
+#### 3.2 Jesus and angels
 - His birth
     - [Mt1:20-23](https://www.blueletterbible.org/niv/mat/1/20/s_930020)
     - [Lk1:26-38](https://www.blueletterbible.org/niv/luk/1/26/s_974026), [2:8-15](https://www.blueletterbible.org/niv/luk/2/8/s_975008)
@@ -3327,7 +3356,7 @@ man to live = ***faith*** (obedience)
     - [Mt16:27](https://www.blueletterbible.org/niv/mat/16/27/s_945027)
     - [Rev19:14](https://www.blueletterbible.org/niv/rev/19/14/s_1186014)
 
-### 3.3 Man's death and angel
+#### 3.3 Man's death and angel
 
 - [Lk16:22](https://www.blueletterbible.org/niv/luk/16/22/s_989022)
 

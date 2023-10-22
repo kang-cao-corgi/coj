@@ -3459,11 +3459,22 @@ learn and pray for the knowledge/wisdom/power of the word
 3. rulers of darkness:
     - Jim Jones and the Peoples Temple (1955 - 1978)
     - Heaven's Gate (1974 - 1997) "UFO cult"
-4. Evil spirits in heavenly places
+4. Evil spirits in heavenly places - church
 
 - [Job1:6](https://www.blueletterbible.org/niv/job/1/6/s_437006)
 - [Eph6:13-18](https://www.blueletterbible.org/niv/eph/6/13/s_1103013)
 - [Rev12:9-17](https://www.blueletterbible.org/niv/rev/12/9/s_1179009), [13:1](https://www.blueletterbible.org/niv/rev/13/1/s_1180001)
+
+"I need to know my enemies"
+
+
+```mermaid
+graph TD;
+    A-->B;
+    A-->C;
+    B-->D;
+    C-->D;
+```
 
 ### 7. Deceiving spirits
 - [1Ti4:1](https://www.blueletterbible.org/niv/1ti/4/1/s_1123001)

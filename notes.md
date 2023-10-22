@@ -3315,14 +3315,19 @@ man to live = ***faith*** (obedience)
 #### 3.1 One's own angels
 
 - [Mt18:10](https://www.blueletterbible.org/niv/mat/18/10/s_947010)
+- [Ac12:15](https://www.blueletterbible.org/niv/act/12/15/s_1030015)
+  - (review, 1 or 2, highly chance for test)
+  - we are 2 beings, living 2 lives
 - [Rev8:3-4](https://www.blueletterbible.org/niv/rev/8/3/s_1175003)
-    - the Holy Spirit &rarr; I must obey &rarr; re-live the public life of Christ
+    - the Holy Spirit &rarr; I must obey &rarr; re-live the public life(ministry) of Christ (live like Christ)
     - angels &rarr; I must use them &rarr; to help me to re-live that life
+    - [Rm12:6-7](https://www.blueletterbible.org/niv/rom/12/1/s_1058001) different gifts to answer the calling to be used according to the HS
 - [1Co12:4-7](https://www.blueletterbible.org/niv/1co/12/4/s_1074004)
     the person of God -> Holy Spirit
 
 #### The number of angels varies by the size of one's ***spiritual*** activity
-- [Ac1:11](https://www.blueletterbible.org/niv/act/1/11/s_1019011)
+- [2Ki6:15](https://www.blueletterbible.org/niv/2ki/6/1/s_319001) an example
+- [Ac1:11](https://www.blueletterbible.org/niv/act/1/11/s_1019011) Jx had many helping angels
 
 #### Angels help saints
 - [Da9:23](https://www.blueletterbible.org/niv/dan/9/23/s_859023), [10:12-14](https://www.blueletterbible.org/niv/dan/10/12/s_860012)
@@ -3330,12 +3335,15 @@ man to live = ***faith*** (obedience)
 - [Ex3:7-8](https://www.blueletterbible.org/niv/exo/3/7/s_53007)
 
 #### Praise
-- [Ps22:3](https://www.blueletterbible.org/niv/psa/22/3/s_500003)
+- [Ps22:3](https://www.blueletterbible.org/niv/psa/22/3/s_500003) more angels, more powerful praises in congregation
 - [Ps34:7](https://www.blueletterbible.org/niv/psa/34/7/s_512007)
-- [1Co4:9](https://www.blueletterbible.org/niv/1co/4/9/s_1066009)
+- [1Co4:9](https://www.blueletterbible.org/niv/1co/4/9/s_1066009) gladiators, "there are invisible beings watching us just as the Roman"
 - [Ps35:5-6](https://www.blueletterbible.org/niv/psa/35/5/s_513005)
+- TODO: Peter's vision of unclean animals
 
-#### The life of saints = angels ministering(侍候) them
+The life of saints = angels ministering(侍候) them<br>
+curse: there is not fellowship/connection between you and God <br>
+learn and pray for the knowledge/wisdom/power of the word
 
 #### 3.2 Jesus and angels
 - His birth
@@ -3343,7 +3351,7 @@ man to live = ***faith*** (obedience)
     - [Lk1:26-38](https://www.blueletterbible.org/niv/luk/1/26/s_974026), [2:8-15](https://www.blueletterbible.org/niv/luk/2/8/s_975008)
 - the devil's temptation
     - [Mt4:1-11](https://www.blueletterbible.org/niv/mat/4/1/s_933001)
-    - [1Co10:13](https://www.blueletterbible.org/niv/1co/10/13/s_1072013)
+    - [1Co10:13](https://www.blueletterbible.org/niv/1co/10/13/s_1072013) lead us not into temptation, tempation is expected but should be withstood
     - [Lk22:41-44](https://www.blueletterbible.org/niv/luk/22/41/s_995041)
 - His power
     - [Lk5:17](https://www.blueletterbible.org/niv/luk/5/17/s_978017)
@@ -3353,7 +3361,7 @@ man to live = ***faith*** (obedience)
     - [Ac1:10](https://www.blueletterbible.org/niv/act/1/10/s_1019010)
 - His return
     - [1Th4:16-17](https://www.blueletterbible.org/niv/1th/4/16/s_1115016)
-    - [Mt16:27](https://www.blueletterbible.org/niv/mat/16/27/s_945027)
+    - [Mt16:47](https://www.blueletterbible.org/niv/mat/16/1/s_945001)
     - [Rev19:14](https://www.blueletterbible.org/niv/rev/19/14/s_1186014)
 
 #### 3.3 Man's death and angel
@@ -3367,7 +3375,7 @@ man to live = ***faith*** (obedience)
 |"Satan" | 55 |
 | "the devil" | 17 |
 | "Demons", "unclean spirits"              | 90    |
-| pronouns for "demons", "unclean spirits" | 484 |
+| pronouns(代词, e.g. he, you) for "demons", "unclean spirits" | 484 |
 
 #### 4.1 Symbolic titles
 
@@ -3405,7 +3413,7 @@ man to live = ***faith*** (obedience)
 |   | Cults | Christianity |
 | --- | --- | --- |
 | salvation | other | by believing the works of Jesus |
-| mdediator | other | Jesus is the only innocent one [1Ti2:5](https://www.blueletterbible.org/niv/1ti/2/5/s_1121005)  |
+| mediator | other | Jesus is the only innocent one [1Ti2:5](https://www.blueletterbible.org/niv/1ti/2/5/s_1121005)  |
 | trinity | deny | acknowledge |
 | incarnation | deny  | acknowledge |
 
@@ -3434,7 +3442,7 @@ man to live = ***faith*** (obedience)
 
 |   |   |
 |---|---|
-| Principalities  |  ideologies, arguments |
+| Principalities(王国)  |  ideologies, arguments, political, idealism, ("ism") |
 | powers| political, religious powers|
 | rulers of darkness| idolatry, sorcery, psychic, pagan religions|
 |evil spirits in the heavenly places| cults, deceiving spirits|
@@ -3445,13 +3453,13 @@ man to live = ***faith*** (obedience)
     - socialism
     - democracy
     - materialism(唯物主义)
-1.  powers:
+2.  powers:
     - political power
-    - religious power (ecclesiastical authority) (the chuch of the state/nation)
-1. rulers of darkness
-    - Jim Jones and the Proples Temple (1955 - 1978)
+    - religious power (ecclesiastical (与基督教会有关的) authority) (the chuch of the state/nation)
+3. rulers of darkness:
+    - Jim Jones and the Peoples Temple (1955 - 1978)
     - Heaven's Gate (1974 - 1997) "UFO cult"
-1. Evil spirits in heavenly places
+4. Evil spirits in heavenly places
 
 - [Job1:6](https://www.blueletterbible.org/niv/job/1/6/s_437006)
 - [Eph6:13-18](https://www.blueletterbible.org/niv/eph/6/13/s_1103013)

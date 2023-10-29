@@ -3482,24 +3482,25 @@ graph TD;
 deceiving spirit = one's own-angels-changed = "seducing spirits", "lying spirits"
 
 #### Angels
-|The unchnageables   |  The chaneables | The corruptibles|
+|The unchangeables   |  The chaneables | The corruptibles|
 |---|---|---|
 | archangels  | angels, hosts, spirits, gods, deceiving spirits  | Satan and his angels, the antichrist, the false prophet (1/3 of heaven) |
 
 How to deceiving spirits develop
 
-#### King Saul
+#### Examples
+##### King Saul
 - [1Sa15:24](https://www.blueletterbible.org/niv/1sa/15/24/s_251024)
 - [1Sa16:14](https://www.blueletterbible.org/niv/1sa/16/14/s_252014)
 - [1Sa18:7-11](https://www.blueletterbible.org/niv/1sa/18/7-11/s_254007)
 - [1Sa19:22-24](https://www.blueletterbible.org/niv/1sa/19/22/s_255022)
 - [1Sa28:6-7](https://www.blueletterbible.org/niv/1sa/28/6/s_264006)
 
-#### King Ahab
+##### King Ahab
 - [1Ki16:31-33](https://www.blueletterbible.org/niv/1ki/16/31-33/s_307031)
 - [1Ki22:19-23](https://www.blueletterbible.org/niv/1ki/22/19-23/s_313019)
 
-#### Balaam
+##### Balaam
 - [Num22:8-13](https://www.blueletterbible.org/niv/num/22/8/s_139008)
 - [Num22:15-18](https://www.blueletterbible.org/niv/num/22/15/s_139015)
 - [Num22:19-20](https://www.blueletterbible.org/niv/num/22/19/s_139019)
@@ -3510,7 +3511,7 @@ How to deceiving spirits develop
 
 - [2Pe2:15-16](https://www.blueletterbible.org/niv/2pe/2/15/s_1158015)
 - [Eze14:9-10](https://www.blueletterbible.org/niv/eze/14/9/s_816009)
-- [Is66:3-4](https://www.blueletterbible.org/niv/isa/66/3/s_745003)
+- [Is66:3-4](https://www.blueletterbible.org/niv/isa/66/3/s_745003) e.g. Judas
 
 #### Works of deceiving spirits
 - [Rm1:28-31](https://www.blueletterbible.org/niv/rom/1/28/s_1047028)
@@ -3553,18 +3554,18 @@ How to deceiving spirits develop
 
 #### Unbelievers' life-after-death
 
-- [Lk16](https://www.blueletterbible.org/niv/luk/16/1/s_989001)
+- [Lk16](https://www.blueletterbible.org/niv/luk/16/1/s_989001) The Rich Man and Lazarus
 
-#### 1.1. Sheol
+#### 1.1. Sheol/Hades
 1. cast down from heaven
-[Is14:12-15](https://www.blueletterbible.org/niv/isa/14/12/s_693012), [Eze28:17](https://www.blueletterbible.org/niv/eze/12/8/s_814008), [Rev12:8-9](https://www.blueletterbible.org/niv/rev/12/8/s_1179008) sheol/hades != hell
+[Is14:12-15](https://www.blueletterbible.org/niv/isa/14/12/s_693012) (sheol in NKJV), [Eze28:17](https://www.blueletterbible.org/nkjv/eze/28/17/s_830017), [Rev12:8-9](https://www.blueletterbible.org/niv/rev/12/8/s_1179008) sheol/hades != hell
 1. where the devil exists
     - [2Pe2:4](https://www.blueletterbible.org/niv/2pe/2/4/s_1158004)
     "hell" = darkness / depts of the pit,
     - [Mt5:22](https://www.blueletterbible.org/niv/mat/5/22/s_934022) "hell" the pit = lake of fire
-1. where the power of the devil is [Mt16:18](https://www.blueletterbible.org/niv/mat/16/18/s_945018), [Hos13:14](https://www.blueletterbible.org/niv/hos/13/14/s_875014)
+2. where the power of the devil is [Mt16:18](https://www.blueletterbible.org/niv/mat/16/18/s_945018), [Hos13:14](https://www.blueletterbible.org/niv/hos/13/14/s_875014)
 
-1. Hades
+3. Hades
 - the universe
 - the world that we live in now
 - "the first heacen and the first earth"

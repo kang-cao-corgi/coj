@@ -188,10 +188,10 @@
   - [Lec 30](#lec-30)
     - [3. The characteristics of demons](#3-the-characteristics-of-demons)
     - [4. The method of demon's invasion](#4-the-method-of-demons-invasion)
-    - [the remedy for healing is ***repentance***](#the-remedy-for-healing-is-repentance)
+    - [the remedy(治疗) for healing is ***repentance***](#the-remedy治疗-for-healing-is-repentance)
     - [5. Demons cause sickness](#5-demons-cause-sickness)
   - [Lec 31](#lec-31)
-    - [6. Casting out demons is exercising authority](#6-casting-out-demons-is-exercising-authority)
+    - [6. Casting out demons is exercising (a form of) authority](#6-casting-out-demons-is-exercising-a-form-of-authority)
   - [III. The theory of the Holy Spirit (pneumatology)](#iii-the-theory-of-the-holy-spirit-pneumatology)
     - [1. the Holy Spirit is the person of God](#1-the-holy-spirit-is-the-person-of-god)
   - [Lec 32](#lec-32)
@@ -212,7 +212,6 @@
     - [1. Proclaiming the gospel is proclaiming the purpose of God](#1-proclaiming-the-gospel-is-proclaiming-the-purpose-of-god)
   - [Lec 36](#lec-36)
     - [the law is good](#the-law-is-good-1)
-    - [the gospel emphasizes the grace of the blood](#the-gospel-emphasizes-the-grace-of-the-blood)
     - [2. The ears that heard the gospel are equal](#2-the-ears-that-heard-the-gospel-are-equal)
     - [3. The attitude for receiving the gospel](#3-the-attitude-for-receiving-the-gospel)
     - [4. The condemnation under the gospel](#4-the-condemnation-under-the-gospel)
@@ -3561,15 +3560,17 @@ How to deceiving spirits develop
 [Is14:12-15](https://www.blueletterbible.org/niv/isa/14/12/s_693012) (sheol in NKJV), [Eze28:17](https://www.blueletterbible.org/nkjv/eze/28/17/s_830017), [Rev12:8-9](https://www.blueletterbible.org/niv/rev/12/8/s_1179008) sheol/hades != hell
 1. where the devil exists
     - [2Pe2:4](https://www.blueletterbible.org/niv/2pe/2/4/s_1158004)
-    "hell" = darkness / depts of the pit,
-    - [Mt5:22](https://www.blueletterbible.org/niv/mat/5/22/s_934022) "hell" the pit = lake of fire
-2. where the power of the devil is [Mt16:18](https://www.blueletterbible.org/niv/mat/16/18/s_945018), [Hos13:14](https://www.blueletterbible.org/niv/hos/13/14/s_875014)
+    "hell" = darkness / depts of the pit (right now)
+    - [Mt5:22](https://www.blueletterbible.org/niv/mat/5/22/s_934022) "hell" the pit = lake of fire (later)
+2. where the power of the devil is
+   - [Mt16:18](https://www.blueletterbible.org/niv/mat/16/18/s_945018) gates = authorities
+   - [Hos13:14](https://www.blueletterbible.org/niv/hos/13/14/s_875014)
 
 3. Hades
 - the universe
 - the world that we live in now
 - "the first heacen and the first earth"
-- the world &rarr; the Abyss &rarr; the lake of fire
+- the world &rarr; the Abyss &rarr; the lake of fire (the order which unbelievers will go to)
 
 #### The order of entering *HELL*
 1. the beast and the false prophet [Rev19:20](https://www.blueletterbible.org/niv/rev/19/20/s_1186020)
@@ -3582,7 +3583,7 @@ How to deceiving spirits develop
 - [Is8:19](https://www.blueletterbible.org/niv/isa/8/19/s_687019) mediums + spiritists &rarr; living people speak on be half of the dead (be possessed by the spirits of the dead)
 - [Ac16:16](https://www.blueletterbible.org/niv/act/16/16/s_1034016)
 
-meadiums = the spirit of the dead = the spirit of the medium(spiritist) = demons
+mediums = the spirit of the dead = the spirit of the medium(spiritist) = demons
 
 - [1Sa28:5-7](https://www.blueletterbible.org/niv/1sa/28/5/s_264005), [13-14](https://www.blueletterbible.org/niv/1sa/28/13/s_264013), [19](https://www.blueletterbible.org/niv/1sa/28/19/s_264019)
 - [1Sa31:4](https://www.blueletterbible.org/niv/1sa/31/4/s_267004)
@@ -3604,6 +3605,8 @@ Demons <br>
 = the dead <br>
 = their names are not found in the book of life <br>
 = the sprits of dead unbelievers
+
+"prayers are only for the living"
 
 #### 1.3. the natural lifespan
 - [Ge6:3](https://www.blueletterbible.org/niv/gen/6/3/s_6003) 120 years
@@ -3637,19 +3640,21 @@ Men - the person is developed from the flesh
 they are not transcendent
 
 they ***repeat*** the process of their death
+"enter body of the living"
 
 #### 3.2. They want to be ***consoled***
 - [Mt12:43](https://www.blueletterbible.org/niv/mat/12/43/s_941043)
 - [Lk16:24](https://www.blueletterbible.org/niv/luk/16/24/s_989024)
 
 #### 3.3. Their characteristics are the same as those of the devil
+steal, kill and destroy
 - [Jn10:10](https://www.blueletterbible.org/niv/jhn/10/10/s_1007010)
 
 #### 3.4. They enter by ***my*** free will
 - [1Co7:14](https://www.blueletterbible.org/niv/1co/7/14/s_1069014)
 - [Mt8:6](https://www.blueletterbible.org/niv/mat/8/6/s_937006) "servant" = child
 
-"Baal-Zebub" - "lord of the flies" or "the lord of the dung" [2Ki1:2](https://www.blueletterbible.org/niv/2ki/1/2/s_314002)
+"Baal-Zebub" - "lord of the flies" or "the lord of the dung(poop)" [2Ki1:2](https://www.blueletterbible.org/niv/2ki/1/2/s_314002)
 
 "Beelzebul" - "lord of the house" or "lord of the dung house"
 [Mt12:24](https://www.blueletterbible.org/niv/mat/12/24/s_941024)
@@ -3680,14 +3685,17 @@ Judas Iscariot <br>
 - [Ge6:5](https://www.blueletterbible.org/niv/gen/6/5/s_6005)
 - [Ac5:3](https://www.blueletterbible.org/niv/act/5/3/s_1023003)
 
-### the remedy for healing is ***repentance***
-[Lev16:20-22](https://www.blueletterbible.org/niv/lev/16/20/s_106020)
+### the remedy(治疗) for healing is ***repentance***
+[Lev16:20-22](https://www.blueletterbible.org/niv/lev/16/20/s_106020) scapegoat to be eaten by the monster, carrying the sin of Israel.
+
+This is fulfilled by JX dying on the cross.
 
 #### Destroy fixed ideas
+be set free
 
 ### 5. Demons cause sickness
 - [Jn11:4](https://www.blueletterbible.org/niv/jhn/11/4/s_1008004)
-- [Jn9:1-3](https://www.blueletterbible.org/niv/jhn/9/1/s_1006001)
+- [Jn9:1-3](https://www.blueletterbible.org/niv/jhn/9/1/s_1006001) sin caused sickedness
 
 #### The devil causes sickness
 
@@ -3695,7 +3703,7 @@ Judas Iscariot <br>
 - [Job2:7](https://www.blueletterbible.org/niv/job/2/7/s_438007)
 - [Ac10:38](https://www.blueletterbible.org/niv/act/10/38/s_1028038)
 - [Lk4:33-35](https://www.blueletterbible.org/niv/luk/4/33/s_977033)
-- [Mk9:20](https://www.blueletterbible.org/niv/mar/9/20/s_966020)
+- [Mk9:20-24](https://www.blueletterbible.org/niv/mar/9/20/s_966020)
 - [Lk13:11](https://www.blueletterbible.org/niv/luk/13/11/s_986011)
 - [Mt8:16](https://www.blueletterbible.org/niv/mat/8/16/s_937016)
 - [Lk4:40-41](https://www.blueletterbible.org/niv/luk/4/40/s_977040)
@@ -3713,9 +3721,9 @@ Demons display the characteristics they had when they died
 
 ## Lec 31
 
-### 6. Casting out demons is exercising authority
+### 6. Casting out demons is exercising (a form of) authority
 
-- [Mt28:18](https://www.blueletterbible.org/niv/mat/28/18/s_957018)
+- [Mt28:18-19](https://www.blueletterbible.org/niv/mat/28/18/s_957018) Triune God is mentioned, in the single name
 - [Mk16:17](https://www.blueletterbible.org/niv/mar/16/17/s_973017)
 
 The name of Yeshua = the name of the Father, the Son, the Holy Spirit = the Name of God = the Authority of God
@@ -3723,13 +3731,13 @@ The name of Yeshua = the name of the Father, the Son, the Holy Spirit = the Name
 #### Miracles
 
 - the prophets - by the power of God (robing the prophets temporarily)
-- Jesus - by the authority of God (possess the authority)
+- JX - by the authority of God (possess the authority)
 
 | Majesty | Authority | Power |
 | --- | --- | --- |
 | throne, king - God Himself | the authortity of a king | the works of a ruler |
 
-- [Rm13:1](https://www.blueletterbible.org/niv/rom/13/1/s_1059001)
+- [Rm13:1](https://www.blueletterbible.org/niv/rom/13/1/s_1059001) all authorities comes from God
 - [He1:3](https://www.blueletterbible.org/niv/heb/1/3/s_1134003)
 - [Jn12:31](https://www.blueletterbible.org/niv/jhn/12/31/s_1009031)
 - [Mt21:23-24](https://www.blueletterbible.org/niv/mat/21/23/s_950023)
@@ -3738,23 +3746,23 @@ The name of Yeshua = the name of the Father, the Son, the Holy Spirit = the Name
 
 - [Jn10:18](https://www.blueletterbible.org/niv/jhn/10/18/s_1007018)
 
-(JX) the kingdom of heaven (the authority of live and die) &rarr; the devil = the prince of the world (the ruler of death, to kill)
+(JX) the kingdom of heaven (the authority of live and die and live again) &rarr; the devil = the prince of the world (the ruler of death, to kill)
 
 | JX | the devil |
 | --- | --- |
-| authority to die  | authority to kill |
+| authority to die (it is His choice)  | authority to kill |
 | authority to live |  |
 | [Mt12:26-28](https://www.blueletterbible.org/niv/mat/12/26/s_941026)      |  |
 
 #### The Holy Spirit the Ruler
 
-- [Mk9:1](https://www.blueletterbible.org/niv/mar/9/1/s_966001)
+- [Mk9:1](https://www.blueletterbible.org/niv/mar/9/1/s_966001) Judas killed himself. The kingdom of God comes to the soul and the church after pentecost
 - [Ac1:8](https://www.blueletterbible.org/niv/act/1/8/s_1019008)
 
 #### The name of ***Yeshua*** is authority
 
 - [Lk10:17-20](https://www.blueletterbible.org/niv/luk/10/17/s_983017)
-- [Lk13:32](https://www.blueletterbible.org/niv/luk/13/32/s_986032)
+- [Lk13:32](https://www.blueletterbible.org/niv/luk/13/32/s_986032) 3 days &rarr; 3 years
 - [Mk1:21-27](https://www.blueletterbible.org/niv/mar/1/21/s_958021)
 
 #### Spiritual authority
@@ -3772,40 +3780,40 @@ The name of Yeshua = the name of the Father, the Son, the Holy Spirit = the Name
 - [Jn14:16-20](https://www.blueletterbible.org/niv/jhn/14/16/s_1011016)
 <br>
 - JX - in history - visibly - to the - world
-- HS - as Spirit - invisbly - to souls (of believers)
+- HS - as Spirit - invisbly - to souls (of believers) (has nothing to do with non-believing world, comes only when welcomed)
 
 ### 1. the Holy Spirit is the person of God
 - ***Intelligence***: knows lies [Ac5:3](https://www.blueletterbible.org/niv/act/5/3/s_1023003) and deep things [2Co2:10](https://www.blueletterbible.org/niv/2co/2/10/s_1080010)
-- ***Emotion***: He groams [Rm8:26](https://www.blueletterbible.org/niv/rom/8/26/s_1054026) and rejoices [Lk10:21](https://www.blueletterbible.org/niv/luk/10/21/s_983021)
+- ***Emotion***: He groans [Rm8:26](https://www.blueletterbible.org/niv/rom/8/26/s_1054026) and rejoices [Lk10:21](https://www.blueletterbible.org/niv/luk/10/21/s_983021)
 - ***Free will***: He is in accordance with God's will [Rm8:27](https://www.blueletterbible.org/niv/rom/8/27/s_1054027)
 
-- [Jn14:16](https://www.blueletterbible.org/niv/jhn/14/16/s_1011016)
+- [Jn14:16](https://www.blueletterbible.org/niv/jhn/14/16/s_1011016) another counselor
 - [Jn16:7-8](https://www.blueletterbible.org/niv/jhn/16/7/s_1013007)
 
 #### Jesus honored the Holy Spirit
 
 - [Rm8:9](https://www.blueletterbible.org/niv/rom/8/9/s_1054009)
-- [Jn12:47-48](https://www.blueletterbible.org/niv/jhn/12/47/s_1009047)
+
+  The Word became flesh &rarr; the Word became blood &rarr; the Spirit become blood
+
+  | "the spirit of God" | "the spirit of Christ" "the sprit of the Word" |
+  | --- | --- |
+  | the person of God (HS) | the blood of Christ |
+
+- [Jn12:47-48](https://www.blueletterbible.org/niv/jhn/12/47/s_1009047) pay attention to His words
 - [Ac1:2](https://www.blueletterbible.org/niv/act/1/2/s_1019002)
-
-The Word became flesh &rarr; the Word became blood &rarr; the Spirit become blood
-
-
-| "the spirit of God" | "the spirit of Christ" "the sprit of the Word" |
-| --- | --- |
-| the person of God (HS)) | the blood of Christ |
 
 the command of JX = the command of Father = the command of HS
 
 - [Mt12:31-32](https://www.blueletterbible.org/niv/mat/12/31/s_941031), [36-37](https://www.blueletterbible.org/niv/mat/12/36/s_941036)
 - [He10:28-29](https://www.blueletterbible.org/niv/heb/10/28/s_1143028)
 
-#### the HS is confined in His work
+#### the HS is confined(局限) in His work
 - [1Co3:16-17](https://www.blueletterbible.org/niv/1co/3/16/s_1065016)
 
 1. Do not disobey the HS
     - [Gal5:17](https://www.blueletterbible.org/niv/gal/5/17/s_1096017)
-1. Do not blaspheme against the HS
+2. Do not blaspheme against the HS
     <br>
     disobey HS - passive - one's own problem
     <br>vs.<br>
@@ -3816,7 +3824,7 @@ the command of JX = the command of Father = the command of HS
     2. the blasphemy against ***the Church***
         - [Ac20:28](https://www.blueletterbible.org/niv/act/20/28/s_1038028)
         - [Mt12:30](https://www.blueletterbible.org/niv/mat/12/30/s_941030)
-1. Do not limit the HS
+3. Do not limit the HS
 - [1Co12:4-7](https://www.blueletterbible.org/niv/1co/12/4/s_1074004)
 
 ---
@@ -3825,7 +3833,7 @@ the command of JX = the command of Father = the command of HS
 
 ### 2. the Holy Spirit is one person of the triune(trinity) God
 #### He is one with God
-- [Mt28:19](https://www.blueletterbible.org/niv/mat/28/19/s_957019)
+- [Mt28:19](https://www.blueletterbible.org/niv/mat/28/19/s_957019) 3 persons mentioned, "the name" (singular)
 - [Ac2:38](https://www.blueletterbible.org/niv/act/2/38/s_1020038)
 - [Ac19:5](https://www.blueletterbible.org/niv/act/19/5/s_1037005)
 
@@ -3835,11 +3843,16 @@ the command of JX = the command of Father = the command of HS
 |the Creator| the Redeemer | the Counselor |
 |to the created | ***to the sinner*** | ***to the saint*** |
 
+
+Trinity -> the foundation of salvation <br>
 ground being: the origin / source of beings
 
 - [Jn14:16-20](https://www.blueletterbible.org/niv/jhn/14/16/s_1011016) talking to the disciples <br>
-    "I am in My Father" &rarr; Son in Father, <br>
-    "and you are in me" &rarr; saint in HS, <br>
+
+    Q: "How many conselors to come" - Two, now JX, later HS
+
+    "I am in My Father" &rarr; Son in Father, (the Word) in the bosom of Father <br>
+    "and you are in me" &rarr; saint in HS ??? <br>
     "and I am in you" &rarr; HS in saint &rarr; interlocked
 
 The One who made me &rarr; the Father <br>
@@ -3854,7 +3867,7 @@ The three persons are ***NOT*** ranked
 |---|---|---|
 | before history | in history | in history |
 | heard from | visible | invisible |
-| object of admiration | rejected and killed | into the souls that welcome |
+| object of admiration | rejected and killed | into the souls who welcome |
 
 The Father established,
 the Son fullfilled,
@@ -3868,6 +3881,13 @@ the will.
 ### 3. The Holy Spirit is the counselor
 - [Jn14:16](https://www.blueletterbible.org/niv/jhn/14/16/s_1011016)
 #### 3.1 the Counselor (Defender)
+
+HS is not for sinners like the 1st counselor, it comes to tesify Yeshua
+
+
+Q: Why Yeshua needs to be defended? <br>
+A: He was accused as a sinner, which is undeservced, wrongful death. To clear His name, prove His innocence, to testify that He is God. 500 witnesses are not enough.
+
 - [Ac2:32-33](https://www.blueletterbible.org/niv/act/2/32/s_1020032)
 - [Ac3:14-15](https://www.blueletterbible.org/niv/act/3/14/s_1021014)
 - [Ac5:30-32](https://www.blueletterbible.org/niv/act/5/30/s_1023030)
@@ -3877,10 +3897,15 @@ the will.
 - the cross &rarr; the cursed tree &rarr; total death
 - HS &rarr; defends the innocence of JX (JX = the Righteousness)
 
-#### 3.2 the Comforter
-- [Mt1:18](https://www.blueletterbible.org/niv/mat/1/18/s_930018)
+Why testimony? Was sinner &rarr; saved by JX
 
-#### 3.3 the Advocate (pro bono counselor)
+#### 3.2 the Comforter
+
+the one who accompanies
+
+- [Mt1:18](https://www.blueletterbible.org/niv/mat/1/18/s_930018) conception &rarr; baptism &rarr; death &rarr; ... &rarr; comes back
+
+#### 3.3 the Advocate (pro bono 无偿的 counselor)
 
 #### Jesus Himself is a Counselor
 - [1Jn2:1](https://www.blueletterbible.org/niv/1jo/2/1/s_1161001)
@@ -3904,10 +3929,11 @@ baptism = uniting with Christ = the act of belonging to Christ = fulfilling righ
 - [Mt3:11](https://www.blueletterbible.org/niv/mat/3/11/s_932011), [13-14](https://www.blueletterbible.org/niv/mat/3/13/s_932013)
 
 #### 4.2 the baptism of JX
-- [Lk12:49-50](https://www.blueletterbible.org/niv/luk/12/49/s_985049)
+- [Lk12:49-50](https://www.blueletterbible.org/niv/luk/12/49/s_985049) righteousness revealed through His unconditional obedience to The Father's command, death which is His baptism
 - [Rm3:25-26](https://www.blueletterbible.org/niv/rom/3/25/s_1049025) justice &hArr; righteous
 
 #### 4.3 Baptism in the name of Yeshua
+"hitchhiking" with Yeshua
 
 #### 4.4 Baptism with the Holy Spirit
 - [Ac1:5](https://www.blueletterbible.org/niv/act/1/5/s_1019005)
@@ -3936,7 +3962,8 @@ baptism = uniting with Christ = the act of belonging to Christ = fulfilling righ
 - [1Jn4:6](https://www.blueletterbible.org/niv/1jo/4/6/s_1163006)
 
 ## V. Being filled with the HS
-- [Ac2:4](https://www.blueletterbible.org/niv/act/2/4/s_1020004) tongues
+- [Ac2:4](https://www.blueletterbible.org/niv/act/2/4/s_1020004) tongues <br>
+  verse 11 tongues or languages ???
 - [Ac4:8](https://www.blueletterbible.org/niv/act/4/8/s_1022008), [13](https://www.blueletterbible.org/niv/act/4/13/s_1022013), [31](https://www.blueletterbible.org/niv/act/4/31/s_1022031) "filled with ***the Holy Spirit***"
 - [Ac7:55](https://www.blueletterbible.org/niv/act/7/55/s_1025055)
 - [Ac13:9](https://www.blueletterbible.org/niv/act/13/9/s_1031009), [12](https://www.blueletterbible.org/niv/act/13/12/s_1031012)
@@ -3962,14 +3989,18 @@ baptism = uniting with Christ = the act of belonging to Christ = fulfilling righ
 |the Gift HS (OT) | the Counselor HS (NT) |
 |---|---|
 |gift  | dwells |
-|worked|the counselor|
-|***a shadow***|the true form|
+|worked (temporarily)|the counselor|
+|***a shadow of &rarr;***|the true form|
 |inspired|the person|
-|on-time|***forvever***|
-|outside the body|inside the body|
+|one-time|***forvever***, to not leave|
+|outside the body|inside the body/soul|
 
 - [Jn7:38-39](https://www.blueletterbible.org/niv/jhn/7/38/s_1004038)
 
+
+The counselor HS after JX died and ascened to the heaven.
+
+in the OT description: "filled with HS" <br>
 "Filled with the Holy Spirit"
 - [Lk1:15](https://www.blueletterbible.org/niv/luk/1/15/s_974015), [41](https://www.blueletterbible.org/niv/luk/1/41/s_974041), [67](https://www.blueletterbible.org/niv/luk/1/67/s_974067)
 - [Ps51:11](https://www.blueletterbible.org/niv/psa/51/11/s_529011)
@@ -3983,12 +4014,15 @@ baptism = uniting with Christ = the act of belonging to Christ = fulfilling righ
 
 <br>
 
-- [Mt11:13](https://www.blueletterbible.org/niv/mat/11/13/s_940013)
+- [Mt11:13](https://www.blueletterbible.org/niv/mat/11/13/s_940013) John the Baptist ends the OT
+
 #### signs
 A sign is that nobody has ever done / been seen until it came
 - prophets - prophecies
 - JX - drove out demons
 - HS - speaking in tongues (tangible proof???)
+
+faith by revelation &rarr; faith living by signs, things that only God can do, to be testified
 
 <br>
 
@@ -3996,27 +4030,33 @@ A sign is that nobody has ever done / been seen until it came
 
 #### 1.speaking in tongues
 - [Ac2:1-11](https://www.blueletterbible.org/niv/act/2/1/s_1020001)
+  - verse 6-11, other tongues(mother tongues) &rarr; languages ??? "the new kind of language that no one receives in the world unless you receive the HS"
+  - they can mock the sound but they cannot continue
+  - "verse 6-11, to understand it, they need gift of interpretation. They received gifts of both speaking tongues and interpret tongues" (my comment: 不是基于字面意义理解的说方言)
+
 - [1Co14:2](https://www.blueletterbible.org/niv/1co/14/2/s_1076002) "If I myself don't understand it, it's okay"?
 
 #### the content of tongues
 1. praising God
     - [Ac2:11](https://www.blueletterbible.org/niv/act/2/11/s_1020011), [10:46](https://www.blueletterbible.org/niv/act/10/46/s_1028046)
-1. uttering mysteries with the spirit
+1. uttering(说) mysteries with the spirit
     - [1Co14:2](https://www.blueletterbible.org/niv/1co/14/2/s_1076002), [14-15](https://www.blueletterbible.org/niv/1co/14/14/s_1076014), [27-28](https://www.blueletterbible.org/niv/1co/14/27/s_1076027), [39-40](https://www.blueletterbible.org/niv/1co/14/39/s_1076039) in gathering, speak in tongue is not allowed unless interpreted
 
 #### 2. Gifts of healing
 - [1Co12:8-11](https://www.blueletterbible.org/niv/1co/12/8/s_1074008), [28](https://www.blueletterbible.org/niv/1co/12/28/s_1074028)
 
-God: by mercy -> the one who uses power: by prayer/fasting -> the sick: by faith
+&rarr; God: by mercy <br>
+&rarr; the one who heals/uses power: by prayer/fasting <br>
+&rarr; the sick: by faith
 
 #### 3. Prophecy
 - [2Pe1:19-21](https://www.blueletterbible.org/niv/2pe/1/19/s_1157019)
 
 |prophecy | "fortune telling" |
 |---|---|
-|***edifies the church*** [1Co14:4](https://www.blueletterbible.org/niv/1co/14/4/s_1076004)<br> - for the common good<br>- not interpreted according to one's own [2Pe1:20](https://www.blueletterbible.org/niv/2pe/1/20/s_1157020)| ***benefits the individual*** [Ac16:16](https://www.blueletterbible.org/niv/act/16/16/s_1034016)<br> - for one's own [Eze14:7](https://www.blueletterbible.org/niv/eze/14/7/s_816007)<br> - personally interpreted |
-|***revealed*** [1Pe1:12](https://www.blueletterbible.org/niv/1pe/1/12/s_1152012)<br>- visions and revelations |***out of their own imagination*** [Eze13:1-3](https://www.blueletterbible.org/niv/eze/13/1/s_815001)<br>- False visions and divinations [Eze13:6](https://www.blueletterbible.org/niv/eze/13/6/s_815006) |
-|not dissuaded [Ac21:11-14](https://www.blueletterbible.org/niv/act/21/11/s_1039011) |expect their words to be fulfilled [Eze13:6](https://www.blueletterbible.org/niv/eze/13/6/s_815006) |
+|***edifies(启迪，教诲) the church*** [1Co14:4](https://www.blueletterbible.org/niv/1co/14/4/s_1076004)<br> - for the common good<br>- <u>not</u> interpreted according to one's own [2Pe1:20](https://www.blueletterbible.org/niv/2pe/1/20/s_1157020)| ***benefits the individual*** [Ac16:16](https://www.blueletterbible.org/niv/act/16/16/s_1034016)<br> - for one's own [Eze14:7](https://www.blueletterbible.org/niv/eze/14/7/s_816007)<br> - personally interpreted |
+|***revealed*** [1Pe1:12](https://www.blueletterbible.org/niv/1pe/1/12/s_1152012)<br>- through visions and revelations |***out of their own imagination*** [Eze13:1-3](https://www.blueletterbible.org/niv/eze/13/1/s_815001)<br>- False visions and divinations [Eze13:6](https://www.blueletterbible.org/niv/eze/13/6/s_815006) |
+|not dissuaded(劝阻) [Ac21:11-14](https://www.blueletterbible.org/niv/act/21/11/s_1039011) |expect their words to be fulfilled [Eze13:6](https://www.blueletterbible.org/niv/eze/13/6/s_815006) |
 
 - [Eze13:19](https://www.blueletterbible.org/niv/eze/13/19/s_815019)
 - [Eze14:7-10](https://www.blueletterbible.org/niv/eze/14/7/s_816007)
@@ -4035,7 +4075,7 @@ God: by mercy -> the one who uses power: by prayer/fasting -> the sick: by faith
     - [Ac16:26](https://www.blueletterbible.org/niv/act/16/26/s_1034026)
 
 1. "Fire" (judgement, wraith of God)
-    - [Lk3:16](https://www.blueletterbible.org/niv/luk/3/16/s_976016)
+    - [Lk3:16](https://www.blueletterbible.org/niv/luk/3/16/s_976016) with the Holy Spirit <u>and</u> (could also mean "but also" in Greek) with the fire
     - [Is4:4](https://www.blueletterbible.org/niv/isa/4/4/s_683004)
     - [Eze22:21](https://www.blueletterbible.org/niv/eze/22/21/s_824021)
     - [He12:29](https://www.blueletterbible.org/niv/heb/12/29/s_1145029)
@@ -4054,7 +4094,7 @@ God: by mercy -> the one who uses power: by prayer/fasting -> the sick: by faith
 - [Mk1:1](https://www.blueletterbible.org/niv/mar/1/1/s_958001)
 - [1Co2:4](https://www.blueletterbible.org/niv/1co/2/4/s_1064004)
 
-the gospel = the son of God + His works + His words
+the gospel = the story of the Son of God = the son of God (who He is &rarr; JX) + His works (What He did) + His words (What He said)
 
 #### God and the Son of God
 |God |the son of God |
@@ -4066,7 +4106,11 @@ the gospel = the son of God + His works + His words
 |peace|suffering|
 |glory|shame|
 
-#### All things are for the Son of God [1Co15:27-28](https://www.blueletterbible.org/niv/1co/15/27/s_1077027)
+#### All things are <u>for</u> the Son of God [1Co15:27-28](https://www.blueletterbible.org/niv/1co/15/27/s_1077027)
+When God reveal Himself thru angel, the name was Jehovah.
+When God became man, the name is Yeshua.
+
+"We wanna be like God &rarr; we wanna be like the Son of God, the flesh image, the son of man"
 
 ## I. sin is being deceived
 - [Ps78:57](https://www.blueletterbible.org/niv/psa/78/57/s_556057)
@@ -4075,8 +4119,10 @@ the gospel = the son of God + His works + His words
 - [Zec1:3](https://www.blueletterbible.org/niv/zec/1/3/s_912003)
 - [Jas4:8](https://www.blueletterbible.org/niv/jas/4/8/s_1150008)
 
-OT: sin &rarr; "a faulty bow" [Ps78:57](https://www.blueletterbible.org/niv/psa/78/57/s_556057) [Hos7:16](https://www.blueletterbible.org/niv/hos/7/16/s_869016) <br>
+OT: sin &rarr; "a faulty bow" [Ps78:57](https://www.blueletterbible.org/niv/psa/78/57/s_556057) [Hos7:16](https://www.blueletterbible.org/niv/hos/7/16/s_869016) <br> (wrong foundation) <br>
 NT: sin &rarr; "a missed arrow"
+
+"deceived &rarr; destruction"
 
 #### Satan deceived himself
 - [Jn8:44](https://www.blueletterbible.org/niv/jhn/8/44/s_1005044)
@@ -4085,34 +4131,36 @@ NT: sin &rarr; "a missed arrow"
 #### Pride is deceiving oneself
 - [Ps1:1-6](https://www.blueletterbible.org/niv/psa/1/1/s_479001)
 #### God punishes the proud
-- [Jer49:16](https://www.blueletterbible.org/niv/jer/49/16/s_794016)
+- [Jer49:16](https://www.blueletterbible.org/niv/jer/49/16/s_794016) "I will bring you down"
 - [Ob1:3-4](https://www.blueletterbible.org/niv/oba/1/3/s_889003)
+
+"sin = pride = lies = deceiving"
 
 1. God hates sin
     - [Ps5:4-5](https://www.blueletterbible.org/niv/psa/5/4/s_483004)
     sin = pride = lies = deceived
-1. fools are deceived
+2. fools are deceived
     - [Pr14:8](https://www.blueletterbible.org/niv/pro/14/8/s_642008)
     - [2Ti3:13](https://www.blueletterbible.org/niv/2ti/3/13/s_1128013)
-1. the antichrist deceives
+3. the antichrist deceives
     - [2Th2:9-10](https://www.blueletterbible.org/niv/2th/2/9/s_1118009)
-1. corruption is deception
+4. corruption is deception
     - [Jas1:14-15](https://www.blueletterbible.org/niv/jas/1/14/s_1147014)
     - [1Ti4:1-2](https://www.blueletterbible.org/niv/1ti/4/1/s_1123001)
-1. the truth does not deceive
+5. the truth does not deceive
     - [Jn8:40](https://www.blueletterbible.org/niv/jhn/8/40/s_1005040)
     - [Rev3:14](https://www.blueletterbible.org/niv/rev/3/14/s_1170014), [21:5](https://www.blueletterbible.org/niv/rev/21/5/s_1188005)
-1. the Israel God wants is a " reliable stock" (a people not deceived)
+6. the Israel God wants is a " reliable stock" (a people not deceived)
     - [Jer2:21-33](https://www.blueletterbible.org/niv/jer/2/21/s_747021)
-1. the real food that God wants to give
+7. the real food that God wants to give
     - [Jn6:55](https://www.blueletterbible.org/niv/jhn/6/55/s_1003055)
-1. God alone is true
+8. God alone is true
     - [Jn17:3](https://www.blueletterbible.org/niv/jhn/17/3/s_1014003)
     - [Rm3:4](https://www.blueletterbible.org/niv/rom/3/4/s_1049004)
     - [Rev6:10](https://www.blueletterbible.org/niv/rev/6/10/s_1173010)
 
 ### Summary
-1. Satan deceived himself
+1. Satan/Lucifer deceived himself
     1. to think that he could live on his own
     1. to think that he could be equal to God
     1. blinded by his own pride
@@ -4125,7 +4173,7 @@ NT: sin &rarr; "a missed arrow"
 the fruit of knowledge of good and evil
 - [Ge1:26](https://www.blueletterbible.org/niv/gen/1/26/s_1026)
 - [Ge22:17](https://www.blueletterbible.org/niv/gen/22/17/s_22017)
-- [Ge3:15](https://www.blueletterbible.org/niv/gen/3/15/s_3015), [22](https://www.blueletterbible.org/niv/gen/3/22/s_3022)
+- [Ge3:15](https://www.blueletterbible.org/niv/gen/3/15/s_3015), [22](https://www.blueletterbible.org/niv/gen/3/22/s_3022) "one of us" &rarr; the Son who will experience death
 
 #### the fall of the devil
 - the first Adam - the devil made him eat the fruit
@@ -4138,7 +4186,7 @@ the fruit of knowledge of good and evil
 - the law - through Moses - decrees and the law
 - ***the Gospel*** - through JX - the works of JX - ***grace and truth***
 
-"law-centered" (Legalism)
+"law-centered" (Legalism - salvation through the law)
 - [Gal1:7-10](https://www.blueletterbible.org/niv/gal/1/7/s_1092007)
 - [Gal2:4](https://www.blueletterbible.org/niv/gal/2/4/s_1093004), [11-14](https://www.blueletterbible.org/niv/gal/2/11/s_1093011)
 
@@ -4150,13 +4198,13 @@ the fruit of knowledge of good and evil
 - [Lk18:18-23](https://www.blueletterbible.org/niv/luk/18/18/s_991018)
 - [Mt22:37-40](https://www.blueletterbible.org/niv/mat/22/37/s_951037)
 - [1Co13:2-3](https://www.blueletterbible.org/niv/1co/13/2/s_1075002)
-- [Jn15:12-13](https://www.blueletterbible.org/niv/jhn/15/12/s_1012012)
+- [Jn15:12-13](https://www.blueletterbible.org/niv/jhn/15/12/s_1012012) the only one who can do this perfectly is Yeshua
 
 ---
 
 ## Lec 36
 ### the law is good
-### the gospel emphasizes the grace of the blood
+#### the gospel emphasizes the grace of the blood
 - [Lev4:16-17](https://www.blueletterbible.org/niv/lev/4/16/s_94016)
 - [He9:12](https://www.blueletterbible.org/niv/heb/9/12/s_1142012)
 

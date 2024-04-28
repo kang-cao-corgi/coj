@@ -22,14 +22,14 @@
     - [Evolution and Ceation commons](#evolution-and-ceation-commons)
     - [The higher revelation](#the-higher-revelation)
   - [Lec 3 Culture](#lec-3-culture)
-    - [II. The human world illustated in the Bbible is about ***the mutual and exclusive*** relationship between ***culture and faith***](#ii-the-human-world-illustated-in-the-bbible-is-about-the-mutual-and-exclusive-relationship-between-culture-and-faith)
+    - [II. The human world illustated in the Bible is about ***the mutual and exclusive*** relationship between ***culture and faith***](#ii-the-human-world-illustated-in-the-bible-is-about-the-mutual-and-exclusive-relationship-between-culture-and-faith)
     - [The causal relationship between culture and faith](#the-causal-relationship-between-culture-and-faith)
     - [Heaven](#heaven)
     - [III. The Bible differentiates ***three heavens*** that are distinct in level and describes the events that develop in them](#iii-the-bible-differentiates-three-heavens-that-are-distinct-in-level-and-describes-the-events-that-develop-in-them)
     - [Three different heavens](#three-different-heavens)
     - [Hell](#hell)
   - [Lec 4](#lec-4)
-  - [III. Religion, though unclearly, demonstrations the common organization and deeds of faith](#iii-religion-though-unclearly-demonstrations-the-common-organization-and-deeds-of-faith)
+  - [III. Religion, albeit unclearly, demonstrates the common organization and deeds of faith](#iii-religion-albeit-unclearly-demonstrates-the-common-organization-and-deeds-of-faith)
     - [Christianity is ***not*** a religion](#christianity-is-not-a-religion)
     - [Religiosity vs. Faith](#religiosity-vs-faith)
     - [1. God gave men not religion but His Son](#1-god-gave-men-not-religion-but-his-son)
@@ -222,20 +222,16 @@
 - [Chapter 5 Mediating the gospel](#chapter-5-mediating-the-gospel)
   - [I. ***Worship*** mediates the gospel](#i-worship-mediates-the-gospel)
     - [1. Definition](#1-definition)
-    - [1. the sacrifice in the OT](#1-the-sacrifice-in-the-ot)
-    - [2. the living sacrifice of NT](#2-the-living-sacrifice-of-nt)
     - [3. The history of worship](#3-the-history-of-worship)
     - [4. The elements of worship](#4-the-elements-of-worship)
     - [5. The content of worship](#5-the-content-of-worship)
   - [Lec 38](#lec-38)
-  - [II. Sacraments - mediate the gospel](#ii-sacraments---mediate-the-gospel)
+  - [II. Sacraments(圣礼) - mediate the gospel](#ii-sacraments圣礼---mediate-the-gospel)
     - [Communion and baptism](#communion-and-baptism)
-    - [Importance of baptism](#importance-of-baptism)
-    - [4. The meaning](#4-the-meaning)
-    - [5. The method](#5-the-method)
-    - [Communion](#communion)
+    - [1. Baptism](#1-baptism)
+    - [2. Communion](#2-communion)
 - [Lec 39](#lec-39)
-  - [III. ***Feasts*** mediate the gospel](#iii-feasts-mediate-the-gospel)
+  - [III. ***Feasts(festival)*** mediate the gospel](#iii-feastsfestival-mediate-the-gospel)
     - [The feasts in the Old Testment](#the-feasts-in-the-old-testment)
     - [The historicity and the meaning of feasts](#the-historicity-and-the-meaning-of-feasts)
     - [The essence of the santuary is holiness](#the-essence-of-the-santuary-is-holiness)
@@ -286,7 +282,7 @@
     - [2. language of faith fixes faith and seizes faithlessness](#2-language-of-faith-fixes-faith-and-seizes-faithlessness)
     - [3. the language of faith is repeating the words of JX](#3-the-language-of-faith-is-repeating-the-words-of-jx)
 - [Lec 46](#lec-46)
-    - [3. the posituve sides to language](#3-the-posituve-sides-to-language)
+    - [3. the positive sides to language](#3-the-positive-sides-to-language)
     - [4. negative side to language](#4-negative-side-to-language)
   - [3. languages protect nations](#3-languages-protect-nations)
     - [1. the confusion of language has a great meaning in protecting the Hebrew language (Ex34:15)](#1-the-confusion-of-language-has-a-great-meaning-in-protecting-the-hebrew-language-ex3415)
@@ -327,8 +323,8 @@
 #### the phrase "in the beginning" appears twice in the Bible
 
 1. [Jn1:1](https://www.blueletterbible.org/niv/jhn/1/1/s_998001) before creation, an eternal "time"
-    > In the beginning was the Word, and the Word was with God, and the Word was God.
-1. [Ge1:1](https://www.blueletterbible.org/niv/gen/1/1/s_1001) the beginning of creation
+    - the Word (ho Logos) = the self manifestation of God
+2. [Ge1:1](https://www.blueletterbible.org/niv/gen/1/1/s_1001) the beginning of creation
     > In the beginning God created the heavens and the earth.
 
 "In the beginning" also in Genesis1:1
@@ -341,7 +337,7 @@ Bible is the way we can know God, only through the Bible, we can know the whole 
 Those who have the Word of God are called ***gods*** [Jn10:35](https://www.blueletterbible.org/niv/jhn/10/35/s_1007035)
 
 ### What does Logos Bible institute teach?
-It teaches how to view the Bible. It teaches the word.
+It teaches ***how to vie***w the Bible. It teaches the word.
 
 ### Do not re-interpret
 not like theological school, which considers various sources of interpretation
@@ -413,7 +409,7 @@ John's role was to introduce Jesus, after that he is finished (died).
 | natural revelation | higher revelation |
 | --- | --- |
 | the Creator | the Savior |
-| through the creation | through the Son |
+| through the creation | through ***the Son*** |
 | to all | to believers |
 | [Ge1:1](https://www.blueletterbible.org/niv/gen/1/1/s_1001); [Rm1:19-20](https://www.blueletterbible.org/niv/rom/1/19/s_1047019) | [Jn1:1-3](https://www.blueletterbible.org/niv/jhn/1/1/s_998001),[14](https://www.blueletterbible.org/niv/jhn/1/14/s_998014),[18](https://www.blueletterbible.org/niv/jhn/1/18/s_998018); [He1:1-2](https://www.blueletterbible.org/niv/heb/1/1/s_1134001) |
 
@@ -477,7 +473,7 @@ Everything formed w/o direction.
 ---
 
 ### The theory of evolution
-  Over a **gradual time-consuming** process a new speies arises from an existing one trough random spontaneous genetic mutations that give a surviaval advantae in to hostile environment
+  Over a **gradual time-consuming** process a new speies arises from an existing one trough random spontaneous genetic mutations that give a survival advantage in to hostile environment
 
   ### Fossiles
   - evidence that Charles Darwin used for his theory in *On The Origins Of Species (1859)*
@@ -532,7 +528,7 @@ Evolution denies the role of God in the universe
 
 ### The higher revelation
 
-- Jn1:1-3,14,18
+- [Jn1:1-3](https://www.blueletterbible.org/niv/jhn/1/1/s_998001),[14](https://www.blueletterbible.org/niv/jhn/1/14/s_998014),[18](https://www.blueletterbible.org/niv/jhn/1/18/s_998018)
 
 > In the beginning was the Word, and the Word was with God, and the Word was God. He was with God in the beginning. Through him all things were made; without him nothing was made that has been made.
 
@@ -540,15 +536,15 @@ Evolution denies the role of God in the universe
 
 > No one has ever seen God, but the one and only Son, who is himself God and is in closest relationship with the Father, has made him known.
 
-- He1:1-2
-- 1Jn1:1
-- Jn1:16
+- [He1:1-2](https://www.blueletterbible.org/niv/heb/1/1/s_1134001)
+- [1Jn1:1](https://www.blueletterbible.org/niv/1jo/1/1/s_1160001)
+- [Jn1:16](https://www.blueletterbible.org/niv/jhn/1/16/s_998016)
 
 ---
 
 ## Lec 3 Culture
 
-### II. The human world illustated in the Bbible is about ***the mutual and exclusive*** relationship between ***culture and faith***
+### II. The human world illustated in the Bible is about ***the mutual and exclusive*** relationship between ***culture and faith***
 
 #### Is culture first or faith?
 culture = the environment where humans can be humans (live as)
@@ -676,7 +672,7 @@ prepared mechanism of punishment for devils
 
 - [Is14:15](https://www.blueletterbible.org/niv/isa/14/15/s_693015)
 - [Rev20:14](https://www.blueletterbible.org/niv/rev/20/14/s_1187014)
-- [Rev21:1](https://www.blueletterbible.org/niv/rev/21/1/s_1188001)
+- [Rev21:1](https://www.blueletterbible.org/niv/rev/21/1/s_1188001) the new earth and new heaven
 - [2Pe3:7](https://www.blueletterbible.org/niv/2pe/3/7/s_1159007)
 
 #### Believers to paradise
@@ -690,7 +686,7 @@ prepared mechanism of punishment for devils
 
 ## Lec 4
 
-## III. Religion, though unclearly, demonstrations the common organization and deeds of faith
+## III. Religion, albeit unclearly, demonstrates the common organization and deeds of faith
 
 ### <u>Christianity is ***not*** a religion</u>
 
@@ -700,9 +696,11 @@ Christian faith exists without the text
 
 | religion | Christianity |
 | --- | --- |
-| general, natural faith | faith by revelation, faith by grace |
+| general, natural faith | ***faith by revelation, faith by grace*** |
 | through doctrines, rituals and organization | through the revealed Word of God |
 | Upward | Downward |
+
+to have relationship with God: do according to the word
 
 ### Religiosity vs. Faith
 
@@ -712,7 +710,8 @@ Christian faith exists without the text
 #### you cannot know God through philosophy
 
 Philosophy is the basis of knowledge?
-Could you know god through philosophy?
+Could you know god through philosophy? <br>
+"from philosophy comes math and physics"?
 
 #### Two approaches in Greek philosophy to understand *deity though reason*
 
@@ -755,7 +754,7 @@ Could you know god through philosophy?
 
 *children* are those who are pure-minded and bumble-hearted.
 
-#### The Bible offers evidence for Faith: the resurrection of Jesus
+#### The Bible offers evidence for Faith: the <u>resurrection</u> of Jesus
 - [1Co15:13-19](https://www.blueletterbible.org/niv/1co/15/13/s_1077013)
 - [Ac2:32](https://www.blueletterbible.org/niv/act/2/32/s_1020032)
 
@@ -858,21 +857,26 @@ Jesus - preach - to save souls - [Mt4:10](https://www.blueletterbible.org/niv/ma
 preach <br>
 - to bring good news
 - to proclaim/declare
+- ultimately to save souls
 
 #### Christianity does ***NOT*** challenge
 
 - [Jn18:36](https://www.blueletterbible.org/niv/jhn/18/36/s_1015036)
 - [1Ti6:20-21](https://www.blueletterbible.org/niv/1ti/6/20/s_1125020)
 
-social justice is human invention, God is just God, God is not socially just God
+social justice is human invention, God is just God, God is not socially just God. Other than love, there is a part of God (righteousness) that He judges.
+
+The effort for social justice != salvation of soul.
 
 Christianity does ***not*** discuss or debate but ***declares***
+- preaching(not teaching) is to declare
+- truth cannot be debated / compromised
 
-truth cannot be debated / compromised
+#### Ecumenism (普世教会合一运动): to promote unity among the world's Christian churches
 
-#### Ecumenism: to promote unity among the world's Christian churches
+religious pluralism/unity (all roads lead to one God)
 
-religious pluralism/unity
+Christian faith is standalone, not related to any religion
 
 - [2Co6:14-18](https://www.blueletterbible.org/niv/2co/6/14/s_1084014)
 - [1Jn5:16](https://www.blueletterbible.org/niv/1jo/5/16/s_1164016)
@@ -882,9 +886,9 @@ religious pluralism/unity
 
 ### 4. Worship is ***NOT*** a religious ritual
 
-We do not do the apostle's creed
+We do not do the [apostle's creed](https://en.wikipedia.org/wiki/Apostles%27_Creed)(使徒信经) (a prayer that you recite)
 
-worship = seeing the face of the Lord in spirit and truth
+worship(Greek: προσκυνώ, Proskuneo) = seeing the face of the Lord in spirit and truth
 - [Mt18:10](https://www.blueletterbible.org/niv/mat/18/10/s_947010)
 
 worship - to fall at another's feet - to meet with Him face to face - kiss the hand of God
@@ -2807,7 +2811,10 @@ In Hades unto 120 years &rarr; to the ***Abyss*** (within Hades)(spiritual space
 
 | saints | believers |
 |:---:|:---:|
-| use their flesh as God's tools | use their flesh as man |
+| use their flesh as God|   |   |
+|---|---|
+|   |   |
+'s tools | use their flesh as man |
 | the ***first*** resurrection | the ***second*** resurrection |
 
 - [Rev4:6-10](https://www.blueletterbible.org/niv/rev/4/6/s_1171006)
@@ -3452,7 +3459,7 @@ learn and pray for the knowledge/wisdom/power of the word
     - socialism
     - democracy
     - materialism(唯物主义)
-2.  powers:
+2. powers:
     - political power
     - religious power (ecclesiastical (与基督教会有关的) authority) (the chuch of the state/nation)
 3. rulers of darkness:
@@ -4300,12 +4307,13 @@ the cross is ***not*** a symbol of the gospel
 ### 1. Definition
 1. Encountering God, kissing the hand of God
     - [Ge32:29-30](https://www.blueletterbible.org/niv/gen/32/29/s_32029)
-    to worship (greek: to fall at another's feet, to prostratem kneel, to meet with God closely)
+    - to worship (greek: to fall at another's feet, to prostratem kneel, to meet with God closely)
+    - to fall &rarr; to surrender
 
 1. Service is carrying our one's duty
     - worship = to serve (a hired servant)
 
-### 1. the sacrifice in the OT
+#### 1. the sacrifice in the OT
 - [He1:14](https://www.blueletterbible.org/niv/heb/1/14/s_1134014)
 <br>
 Three elements of sacrifice:
@@ -4317,7 +4325,7 @@ Three elements of sacrifice:
 - [He7:23-28](https://www.blueletterbible.org/niv/heb/7/23/s_1140023)　
 - [He10:4](https://www.blueletterbible.org/niv/heb/10/4/s_1143004)
 
-### 2. the living sacrifice of NT
+#### 2. the living sacrifice of NT
 - [Rm12:1](https://www.blueletterbible.org/niv/rom/12/1/s_1058001)
 
 #### Worship in spirit and in truth
@@ -4344,7 +4352,11 @@ the southen kingdom (Juda - 2 tribes), worship in the temple of Jeruselem - do a
     - [Jn2:19-22](https://www.blueletterbible.org/niv/jhn/2/19/s_999019)
 
 #### "In spirit and in truth"
+"in spirit" = doing it spiritually<br>
+"in truth" = doing it orderly<br>
 spiritual doesn't mean you do outside-of-body things
+
+"What the Lord has spoken to me today through the preacher?"
 
 #### worship is holy "chaos"
 
@@ -4377,7 +4389,7 @@ spiritual doesn't mean you do outside-of-body things
 ---
 
 ## Lec 38
-## II. Sacraments - mediate the gospel
+## II. Sacraments(圣礼) - mediate the gospel
 through sacramants we can experience invisible God
 #### The method of God's salf-manifestation
 - JX: the incarnate Word
@@ -4389,25 +4401,27 @@ through sacramants we can experience invisible God
 Commandment <u>before</u> the death of JX| Commandment <u>after</u> the resurrection of JX|
 |commemorating the flesh and the blood of JX|uniting with the death and the resurrection of JX|
 
-- [Mk16:16](https://www.blueletterbible.org/niv/mar/16/16/s_973016) "to immerse"
+- [Mk16:16](https://www.blueletterbible.org/niv/mar/16/16/s_973016)
+
+### 1. Baptism
+Greek &rarr; "to immerse"
 - [Mt28:19-20](https://www.blueletterbible.org/niv/mat/28/19/s_957019)
 - [Ac16:29-34](https://www.blueletterbible.org/niv/act/16/29/s_1034029)
 
-### Importance of baptism
-1. Yeshua Himself was baptized [Mt4:11](https://www.blueletterbible.org/niv/mat/4/11/s_933011), [13-17](https://www.blueletterbible.org/niv/mat/4/13/s_933013)
-1. The sacrament in the name of God [Mt28:19](https://www.blueletterbible.org/niv/mat/28/19/s_957019), [Ac2:38](https://www.blueletterbible.org/niv/act/2/38/s_1020038), [Ac19:5](https://www.blueletterbible.org/niv/act/19/5/s_1037005)
-1. Christ's command [Jn12:48-50](https://www.blueletterbible.org/niv/jhn/12/48/s_1009048)
+#### Importance of baptism
+1. Yeshua Himself was baptized [Mt3:11](https://www.blueletterbible.org/niv/mat/3/11/s_932011), [13-17](https://www.blueletterbible.org/niv/mat/3/13/s_932013)
+2. The sacrament in the name of God [Mt28:19](https://www.blueletterbible.org/niv/mat/28/19/s_957019), [Ac2:38](https://www.blueletterbible.org/niv/act/2/38/s_1020038), [Ac19:5](https://www.blueletterbible.org/niv/act/19/5/s_1037005)
+3. Christ's command [Jn12:48-50](https://www.blueletterbible.org/niv/jhn/12/48/s_1009048)
+4. The meaning
+   - the mark of salvation [1Pe3:20-21](https://www.blueletterbible.org/niv/1pe/3/20/s_1154020)
+   - uniting with Christ [Rm6:3-6](https://www.blueletterbible.org/niv/rom/6/3/s_1052003)
+   - belonging to Christ [1Co10:2](https://www.blueletterbible.org/niv/1co/10/2/s_1072002), [Gal3:27](https://www.blueletterbible.org/niv/gal/3/27/s_1094027)
+   - the sign of the covenant [Ge17:11](https://www.blueletterbible.org/niv/gen/17/11/s_17011), [Col2:11-12](https://www.blueletterbible.org/niv/col/2/11/s_1109011)
+   - a seal of the righteousness [Rm4:11](https://www.blueletterbible.org/niv/rom/4/11/s_1050011)
 
-### 4. The meaning
-- the mark of salvation [1Pe3:20-21](https://www.blueletterbible.org/niv/1pe/3/20/s_1154020)
-- uniting with Christ [Rm6:3-6](https://www.blueletterbible.org/niv/rom/6/3/s_1052003)
-- belonging to Christ [1Co10:2](https://www.blueletterbible.org/niv/1co/10/2/s_1072002), [Gal3:27](https://www.blueletterbible.org/niv/gal/3/27/s_1094027)
-- the sign of the covenant [Ge17:11](https://www.blueletterbible.org/niv/gen/17/11/s_17011), [Col2:11-12](https://www.blueletterbible.org/niv/col/2/11/s_1109011)
-- a seal of the righteousness [Rm4:11](https://www.blueletterbible.org/niv/rom/4/11/s_1050011)
-
-### 5. The method
-- [Mt3:16](https://www.blueletterbible.org/niv/mat/3/16/s_932016)
-- [Ac8:36](https://www.blueletterbible.org/niv/act/8/36/s_1026036)
+5. The method
+   - [Mt3:16](https://www.blueletterbible.org/niv/mat/3/16/s_932016)
+   - [Ac8:36](https://www.blueletterbible.org/niv/act/8/36/s_1026036)
 
 #### Is baptism necessary for ***salvation***?
 - [Mk16:16](https://www.blueletterbible.org/niv/mar/16/16/s_973016)
@@ -4420,7 +4434,7 @@ Commandment <u>before</u> the death of JX| Commandment <u>after</u> the resurrec
 - [Jn17:11](https://www.blueletterbible.org/niv/jhn/17/11/s_1014011)
 - [Rev22:18-19](https://www.blueletterbible.org/niv/rev/22/18/s_1189018)
 
-### Communion
+### 2. Communion
 - [1Co11:23-26](https://www.blueletterbible.org/niv/1co/11/23/s_1073023)
 Partaking in the Lord's table supper
 
@@ -4441,7 +4455,7 @@ bread and water (wine)
 
 ---
 # Lec 39
-## III. ***Feasts*** mediate the gospel
+## III. ***Feasts(festival)*** mediate the gospel
 - [Gal4:10](https://www.blueletterbible.org/niv/gal/4/10/s_1095010)
 - [Col2:16-17](https://www.blueletterbible.org/niv/col/2/16/s_1109016)
 
@@ -4456,8 +4470,8 @@ bread and water (wine)
 - the feast of harvest
 - the Sabbath
 - Christmans
-- Good Fridat
-- resurection day
+- Good Friday
+- Resurection day
 - the Pentecost
 - the Lord's Day
 
@@ -4554,7 +4568,7 @@ the book of *Hebrews* illustrates the completion of the heart of the Old Testmen
         - Those who do not give blood to the Lord God [Lev7:3-4](https://www.blueletterbible.org/niv/lev/7/3/s_97003)
         - those who curse their parents etc. [Lev20:9-16](https://www.blueletterbible.org/niv/lev/20/9/s_110009)
     - cleanses [He9:22](https://www.blueletterbible.org/niv/heb/9/22/s_1142022)
-    - returns to God [Ge9:5](https://www.blueletterbible.org/niv/gen/9/5/s_9005), [He9:12](https://www.blueletterbible.org/niv/heb/9/12/s_1142012), [10:19](https://www.blueletterbible.org/niv/heb/10/19/s_1143019)
+    - (life) returns to God [Ge9:5](https://www.blueletterbible.org/niv/gen/9/5/s_9005), [He9:12](https://www.blueletterbible.org/niv/heb/9/12/s_1142012), [10:19](https://www.blueletterbible.org/niv/heb/10/19/s_1143019)
 1. blood's work in the gospel
     - the covenant of blood [Mt26:28](https://www.blueletterbible.org/niv/mat/26/28/s_955028)
     - the blood of JX is the new covenant [Lk22:20](https://www.blueletterbible.org/niv/luk/22/20/s_995020)
@@ -4605,7 +4619,7 @@ The blood of Christ &rarr; redeem &rarr; sanctifies/cleanses &rarr; life
 
 #### Who is a servant(preacher)?
 - knows that he belongs to Christ [Rm14:7-9](https://www.blueletterbible.org/niv/rom/14/7/s_1060007)
-- in charge of Christ's work Rm1:1, [1Co1:1](https://www.blueletterbible.org/niv/1co/1/1/s_1063001), [2Pe1:1](https://www.blueletterbible.org/niv/2pe/1/1/s_1157001)
+- in charge of Christ's work [Rm1:1](https://www.blueletterbible.org/niv/rom/1/1/s_1047001), [1Co1:1](https://www.blueletterbible.org/niv/1co/1/1/s_1063001), [2Pe1:1](https://www.blueletterbible.org/niv/2pe/1/1/s_1157001)
 - knows that testifying the gospel is ***life*** [Ac20:23-24](https://www.blueletterbible.org/niv/act/20/23/s_1038023)
 - considers the suffering with Christ as joy [He11:24-25](https://www.blueletterbible.org/niv/heb/11/24/s_1144024)
 - ***not ashamed*** [Php1:20-22](https://www.blueletterbible.org/niv/phl/1/20/s_1104020)
@@ -4689,6 +4703,8 @@ JX took up sin and disease on to His body; Healing is one of the purposes of His
 - [Ac4:29-30](https://www.blueletterbible.org/niv/act/4/29/s_1022029)
 
 ## VII. ***Spiritual inspiration*** mediates the gospel
+
+being inspired/filled/moved by the HS
 - [2Pe1:21](https://www.blueletterbible.org/niv/2pe/1/21/s_1157021)
 - [Jn3:8](https://www.blueletterbible.org/niv/jhn/3/8/s_1000008)
 
@@ -4875,14 +4891,14 @@ the purpose of writings
     - [Jn15:25](https://www.blueletterbible.org/niv/jhn/15/25/s_1012025), [17:12](https://www.blueletterbible.org/niv/jhn/17/12/s_1014012), [19:28](https://www.blueletterbible.org/niv/jhn/19/28/s_1016028)
     #### 5. The HS reminds what is written
     1. writings are for remembrance
-    1. writings are to mkae one believe
+    1. writings are to make one believe
     1. what is written can be believed only <u>after</u> it is fulfilled
     #### 6. Events were fulfilled according to what was written
     1. the conception of the virgin [Is7:14](https://www.blueletterbible.org/niv/isa/7/14/s_686014), [11:1](https://www.blueletterbible.org/niv/isa/11/1/s_690001), [Mt1:23](https://www.blueletterbible.org/niv/mat/1/23/s_930023)
     1. the messenger prepared the way before hum [Mal3:1](https://www.blueletterbible.org/niv/mal/3/1/s_928001), [Lk1:76](https://www.blueletterbible.org/niv/luk/1/76/s_974076)
     1. the birth of JX [Mi5:2](https://www.blueletterbible.org/niv/mic/5/2/s_898002), [Mt2:5-6](https://www.blueletterbible.org/niv/mat/2/5/s_931005)
     1. His journey to Egypt and return [Hos11:1](https://www.blueletterbible.org/niv/hos/11/1/s_873001), [Mt2:14-15](https://www.blueletterbible.org/niv/mat/2/14/s_931014)
-    1. the betrayal of his disciples [Ps41:9](https://www.blueletterbible.org/niv/psa/41/9/s_519009), [Ac1:16](https://www.blueletterbible.org/niv/act/1/16/s_1019016)
+    1. the betrayal of his disciples [Ps41:9](https://www.blueletterbible.org/niv/psa/41/9/s_519009), [Ac1:16](https://www.blueletterbible.org/niv/act/1/16/s_1019016), [Jn13:18](https://www.blueletterbible.org/niv/jhn/13/18/s_1010018)
     1. "I am thirsty" [Ps22:15](https://www.blueletterbible.org/niv/psa/22/15/s_500015), [Jn19:28](https://www.blueletterbible.org/niv/jhn/19/28/s_1016028)
     1. his side pierced with a spear [Zec12:10], [Jn19:34](https://www.blueletterbible.org/niv/jhn/19/34/s_1016034), [37](https://www.blueletterbible.org/niv/jhn/19/37/s_1016037)
     1. Not breaking his legs [Ex12:46](https://www.blueletterbible.org/niv/exo/12/46/s_62046), [Jn19:33](https://www.blueletterbible.org/niv/jhn/19/33/s_1016033), [36](https://www.blueletterbible.org/niv/jhn/19/36/s_1016036)
@@ -4934,29 +4950,36 @@ The Hebrew Bible (Tanakt) and the Masoretic Text (MT)
 ## Lec 43
 ## IX. Man (flesh) mediates the gospel
 ### 1. the plan of God
-- [Rm1:1](https://www.blueletterbible.org/niv/rom/1/1/s_1047001)
+- [Rm1:1](https://www.blueletterbible.org/niv/rom/1/1/s_1047001) set apart
+
+
+
+God uses man
+- [Ge1:27](https://www.blueletterbible.org/niv/gen/1/27/s_1027) - man to rule over all things
+- [Ge2:7-25](https://www.blueletterbible.org/niv/gen/2/7/s_2007) - Ad to rule over the
 
 | circumcision | baptism |
 |---|---|
-| the mark of obedience tot the law | the mark of obedience to Christ |
+| the mark of obedience to the law | the mark of obedience to Christ |
 | sevants of the Lord God | servants of Christ |
-|  parent's faith | By one's own faith |
+| by parent's faith | ***By one's own faith*** |
 
-- [Ge1:27](https://www.blueletterbible.org/niv/gen/1/27/s_1027) - man to rule over all things
-- [Ge2:7-25](https://www.blueletterbible.org/niv/gen/2/7/s_2007) - Ad to rule over the
-1. man was created to prepare the way for JX - [Mk1:2-3](https://www.blueletterbible.org/niv/mar/1/2/s_958002)
+#### 1. man was created to prepare the way for JX - [Mk1:2-3](https://www.blueletterbible.org/niv/mar/1/2/s_958002)
 <br>
-man provided the way for
-    1. JX's birth [Ge3:15](https://www.blueletterbible.org/niv/gen/3/15/s_3015), [18:14](https://www.blueletterbible.org/niv/gen/18/14/s_18014), [Mt1:21](https://www.blueletterbible.org/niv/mat/1/21/s_930021)
-    1. JX's death [Rm5:12-14](https://www.blueletterbible.org/niv/rom/5/12/s_1051012), [He2:9](https://www.blueletterbible.org/niv/heb/2/9/s_1135009), the first of Adam's sin was prepared for the last Adam's death
-    1. delivering the name Yeshua (the way to expand the kingdom of God)
-1. the birth of JX
+
+#### man provided the way for
+1. JX's birth [Ge3:15](https://www.blueletterbible.org/niv/gen/3/15/s_3015), [18:14](https://www.blueletterbible.org/niv/gen/18/14/s_18014), [Mt1:21](https://www.blueletterbible.org/niv/mat/1/21/s_930021)
+2. JX's death [Rm5:12-14](https://www.blueletterbible.org/niv/rom/5/12/s_1051012)
+3. the first of Adam's sin was prepared for the last Adam's death [He2:9](https://www.blueletterbible.org/niv/heb/2/9/s_1135009)
+4. delivering the ***name of Yeshua*** (the way to expand the kingdom of God)
+
+#### 2. the birth of JX
 - [Mt1:16](https://www.blueletterbible.org/niv/mat/1/16/s_930016), [20](https://www.blueletterbible.org/niv/mat/1/20/s_930020)
 - [Jn1:14](https://www.blueletterbible.org/niv/jhn/1/14/s_998014)
 
 the immaculate conception dogma is satanic
 1. the condition of JX's flesh is the same as that of man
-1. men killed JX
+2. men killed JX
 
 ### 2. the victory of God
 - Rm1:1
@@ -4968,7 +4991,7 @@ the immaculate conception dogma is satanic
     - [1Co15:55-57](https://www.blueletterbible.org/niv/1co/15/55/s_1077055)
     the world
     - the kingdom of the devil: JX destroyed
-    - men: JX saved (n3:16, 12:47)
+    - men: JX saved [Jn3:16](https://www.blueletterbible.org/niv/jhn/3/16/s_1000016), [12:47](https://www.blueletterbible.org/niv/jhn/12/47/s_1009047)
     - materuals: JX nullified [1Jn2:15](https://www.blueletterbible.org/niv/1jo/2/15/s_1161015)
 1. the devil was banished from heaven
 1. the devil attacks those who betrayed him
@@ -4983,13 +5006,14 @@ the immaculate conception dogma is satanic
 |---|---|---|
 |   the spirit of God [Rm8:9](https://www.blueletterbible.org/niv/rom/8/9/s_1054009)| the spirit of the word (Rm8:9)  |the gospel [Rm8:15](https://www.blueletterbible.org/niv/rom/8/15/s_1054015)|
 |the person of God|the blood of Christ|the spirit of the Son|
+|"the Spirit of adoption"|the Gospel [Rm8:15](https://www.blueletterbible.org/niv/rom/8/15/s_1054015)|the spirit of the Son|
 
 positions of those who believe: apostles, saints, believers
 - [1Co1:2](https://www.blueletterbible.org/niv/1co/1/2/s_1063002)
 - [Jn16:8-11](https://www.blueletterbible.org/niv/jhn/16/8/s_1013008)
-1. the HS uses the flesh
+2. the HS uses the flesh
     - [1Jn5:16-17](https://www.blueletterbible.org/niv/1jo/5/16/s_1164016)
-    <br>
+    - [Rm8:18-21](https://www.blueletterbible.org/niv/rom/8/18/s_1054018)<br>
     God uses those who sanctify themselves
     - [2Ti2:20-21](https://www.blueletterbible.org/niv/2ti/2/20/s_1127020)
     - [He6:4-6](https://www.blueletterbible.org/niv/heb/6/4/s_1139004)
@@ -5031,7 +5055,7 @@ positions of those who believe: apostles, saints, believers
 ---
 ## Lec 44. ***Materials*** mediate the gospel
 ## God created all things
-- [Ps42:1](https://www.blueletterbible.org/niv/psa/42/1/s_520001)
+- [Ps24:1](https://www.blueletterbible.org/niv/psa/24/1/s_502001)
 
 ### 1.The fruit of the tree of  the knowledge of good and evil indicates the limits to materials
 1. men belong to God [Ps100:3](https://www.blueletterbible.org/niv/psa/100/3/s_578003)
@@ -5064,7 +5088,7 @@ positions of those who believe: apostles, saints, believers
     - [Mt12:42](https://www.blueletterbible.org/niv/mat/12/42/s_941042)
     - [Mk10:29-30](https://www.blueletterbible.org/niv/mar/10/29/s_967029)
 
-    material is the power to move God
+    "material is the power to move God"
 
 1. the material relationship between God and man
     - [Ge14:19-20](https://www.blueletterbible.org/niv/gen/14/19/s_14019)
@@ -5072,22 +5096,20 @@ positions of those who believe: apostles, saints, believers
     - giving to God is not losing it
 
 1. Jacob's oath [Ge28:21-22](https://www.blueletterbible.org/niv/gen/28/21/s_28021)
-
-
     |   |   |   |   |
     |---|---|---|---|
     |Moses   |under a tutor (the Law)   |to little children| kept by force|
-    |JX|under the Gospel| to the mature| willingly keep|
+    |***JX***|under the Gospel| to the mature| ***willingly*** keep|
 
-    - Tithe is not the Law of Moses [Mt23:1-3](https://www.blueletterbible.org/niv/mat/23/1/s_952001), [23](https://www.blueletterbible.org/niv/mat/23/23/s_952023)
+ - Tithe is not the Law of Moses [Mt23:1-3](https://www.blueletterbible.org/niv/mat/23/1/s_952001), [23](https://www.blueletterbible.org/niv/mat/23/23/s_952023)
 
-    |   |   |   |
-    |---|---|---|
-    | Justice (law)  |holiness   |it belongs to God|
-    |Mercy|love| do not hold back|
-    |Faithfulness|faith|God blesses|
+   |   |   |   |
+   |---|---|---|
+   | Justice (law)  |holiness   |it belongs to God|
+   |Mercy|love| do not hold back|
+   |Faithfulness|faith|God blesses|
 
-1. tithe is the faith of Israel [Mal3:10-11](https://www.blueletterbible.org/niv/mal/3/10/s_928010)
+2. tithe is the faith of Israel [Mal3:10-11](https://www.blueletterbible.org/niv/mal/3/10/s_928010)
 
     tithe is the return to God <br>
     tithe is giving back what belongs to God <br>
@@ -5095,12 +5117,12 @@ positions of those who believe: apostles, saints, believers
     - [Lev27:30](https://www.blueletterbible.org/niv/lev/27/30/s_117030)
     - [Dt14:22](https://www.blueletterbible.org/niv/deu/14/22/s_167022)
     - [Ge28:22](https://www.blueletterbible.org/niv/gen/28/22/s_28022)
-1. tithe is the faith of Israel
+3. tithe is the faith of Israel
     - [Mal3:10-11](https://www.blueletterbible.org/niv/mal/3/10/s_928010)
-1. tithe is the mark of returning to God
+4. tithe is the mark of returning to God
     - [Mal3:7-8](https://www.blueletterbible.org/niv/mal/3/7/s_928007)
     - [Ge28:22](https://www.blueletterbible.org/niv/gen/28/22/s_28022)
-1. tithe is the fruit of the knowledge of good and evil
+5. tithe is the fruit of the knowledge of good and evil
     - [Mt7:7-12](https://www.blueletterbible.org/niv/mat/7/7/s_936007)
 
 <!-- ---
@@ -5202,7 +5224,7 @@ church: a group of holy language
 
 ---
 # Lec 46
-### 3. the posituve sides to language
+### 3. the positive sides to language
 1. carries knowledge ideaology and will
 1. runs swiftly (Ps147:15)
 1. can have many listeners simultaneously

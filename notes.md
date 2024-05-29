@@ -42,6 +42,7 @@
   - [Lec 6](#lec-6)
     - [2. the Bible emphasizes obedience by faith](#2-the-bible-emphasizes-obedience-by-faith)
     - [what is faith?](#what-is-faith)
+  - [example of Moses not entering Canaan](#example-of-moses-not-entering-canaan)
     - [What is faith](#what-is-faith-1)
     - [3. Those who absolutely trust the Bible as the Word of god have Godly authority Jn5:24](#3-those-who-absolutely-trust-the-bible-as-the-word-of-god-have-godly-authority-jn524)
     - [4. not even a part of the Bible can be abolished/dismissed because it is all about Jesus](#4-not-even-a-part-of-the-bible-can-be-abolisheddismissed-because-it-is-all-about-jesus)
@@ -64,11 +65,11 @@
   - [Lec 9](#lec-9)
     - [15. the Bible is a story about the gardener](#15-the-bible-is-a-story-about-the-gardener)
     - [16. the Bible views revelation as light](#16-the-bible-views-revelation-as-light)
-    - [17 the Bible is the father's inheritance](#17-the-bible-is-the-fathers-inheritance)
+    - [17 the Bible is the Father's inheritance](#17-the-bible-is-the-fathers-inheritance)
     - [18. the Bible says men are worth existing only as God's fellow workers](#18-the-bible-says-men-are-worth-existing-only-as-gods-fellow-workers)
-    - [19. There are three *climaxes* in the Bible](#19-there-are-three-climaxes-in-the-bible)
+    - [19. The Bible is the road that follows not men but Yeshua](#19-the-bible-is-the-road-that-follows-not-men-but-yeshua)
+    - [20. There are three *climaxes* in the Bible](#20-there-are-three-climaxes-in-the-bible)
   - [Lec 10](#lec-10)
-    - [20. The Bible is the road that follows not men but Yeshua](#20-the-bible-is-the-road-that-follows-not-men-but-yeshua)
     - [21. the Bible demonstates the absolutism of God](#21-the-bible-demonstates-the-absolutism-of-god)
     - [22. the definition of sin in the Bible leans towards a code of conduct rather than morals](#22-the-definition-of-sin-in-the-bible-leans-towards-a-code-of-conduct-rather-than-morals)
     - [23. Hebrews chapter 11 shows the ***faith*** that God demands](#23-hebrews-chapter-11-shows-the-faith-that-god-demands)
@@ -976,8 +977,9 @@ need to have experience of Word
 
 #### Have faith in God - [Mk11:22](https://www.blueletterbible.org/niv/mar/11/22/s_968022)
 - possessing the faith of God
-- continually obeying the Word of God
+- <u>continually (all time)</u> obeying the Word of God
 
+example of Moses not entering Canaan
 ---
 
 - [Mal3:6](https://www.blueletterbible.org/niv/mal/3/6/s_928006)
@@ -987,7 +989,7 @@ need to have experience of Word
 
 ### What is faith
 
-#### faith is ***surrendering*** your experience even if risky and holding on to ***the Word***
+faith is <u>***surrendering***</u> your experience even if risky and holding on to <u>***the Word***</u>
 
 #### Now faith is ***the substance*** of things hoped for and ***the evidence*** of things not seen - [He11:1](https://www.blueletterbible.org/nkjv/heb/11/1/s_1144001), NKJV
 
@@ -1004,7 +1006,7 @@ the subject of his forgiveness = souls of men, because they were deceived
 
 #### the authority of preachers
 
-- [Jn20:23](https://www.blueletterbible.org/niv/jhn/20/23/s_1017023)
+- [Jn20:23](https://www.blueletterbible.org/niv/jhn/20/23/s_1017023) // TODO
 - [Jn1:12](https://www.blueletterbible.org/niv/jhn/1/12/s_998012)
 - [Eze33:1-9](https://www.blueletterbible.org/niv/eze/33/1/s_835001)
 
@@ -1022,7 +1024,7 @@ new testment: a robe assembled and put on by Jesus
 
 Jesus is testified by
 
-1. the Bible [Jn5:29](https://www.blueletterbible.org/niv/jhn/5/29/s_1002029)
+1. the Bible [Jn5:39](https://www.blueletterbible.org/niv/jhn/5/39/s_1002039)
 2. the prophets [Jn1:34](https://www.blueletterbible.org/niv/jhn/1/34/s_998034)
 3. the Father [Jn8:18](https://www.blueletterbible.org/niv/jhn/8/18/s_1005018)
 4. Jesus himself [Jn8:18](https://www.blueletterbible.org/niv/jhn/8/18/s_1005018)
@@ -1050,9 +1052,9 @@ Jesus is testified by
 ### Jesus is the Christ, the Son of the living God
 - [Mt16:16](https://www.blueletterbible.org/niv/mat/16/16/s_945016)
 
-"Christ" = his duty/mission as man
+"Christ" = His duty/mission as man
 (the "anointed")
-"the son of God" = his essence
+"the son of God" = His essence
 
 #### Those who deny the death of Jesus are satanic
 - [1Jn4:2-3](https://www.blueletterbible.org/niv/1jo/4/2/s_1163002)
@@ -1067,10 +1069,10 @@ Jesus is testified by
 ### 6. Jesus fulfilled what is written in the Bible
 
 #### Jesus's view of the Bible
-
+(3 temptations from the devil)
 - Live by the Word of God
 - do not put the Lord Your God to test
-- serve only god
+- serve only God
 
 #### Jesus fulfilled according to the written word
 - [Mt26:24](https://www.blueletterbible.org/niv/mat/26/24/s_955024)
@@ -1101,13 +1103,15 @@ The four gospel books were written decades after Jesus' death.
 
 - [1Co10:11](https://www.blueletterbible.org/niv/1co/10/11/s_1072011)
 
-the Bible is a mirror that reflects invisible ***spiritual*** beings
+#### the Bible is a mirror that reflects invisible ***spiritual*** beings
 
-if you read the bible correctly, you will find Jesus
+Adam &rarr; "I am a living being"
+
+#### If you read the bible correctly, you will find Jesus
 
 - [Jn5:39](https://www.blueletterbible.org/niv/jhn/5/39/s_1002039)
 
-the Bible is a tool that reflects the real image and lets you correct yourself
+#### the Bible is a tool that reflects the real image and lets you correct yourself
 
 - [Jas1:23-25](https://www.blueletterbible.org/niv/jas/1/23/s_1147023)
 - [Tit3:5](https://www.blueletterbible.org/niv/tit/3/5/s_1132005)
@@ -1128,7 +1132,9 @@ God created the world by His Word, and also destroy it one day, for His plan and
 - [He1:2](https://www.blueletterbible.org/niv/heb/1/2/s_1134002)
 - [1Pe1:5](https://www.blueletterbible.org/niv/1pe/1/5/s_1152005), [20](https://www.blueletterbible.org/niv/1pe/1/20/s_1152020)
 
-the Holy Spirit lets us know that the prince of this world has been judged
+"new thing" &rarr; the end of the old
+
+#### the Holy Spirit lets us know that the prince of this world has been judged
 
 - [Jn16:11](https://www.blueletterbible.org/niv/jhn/16/11/s_1013011)
 - [Rev22:13](https://www.blueletterbible.org/niv/rev/22/13/s_1189013)
@@ -1146,15 +1152,15 @@ the world is made ***for*** Jesus and by Jesus???
 
 Jesus will come back like a lightning.
 
-### 10. the Old Testment is a prophecy of the coming of the messiah; while the New Testment is a prophecy of the coming of the kingdom of Christ
+### 10. the <u>Old Testment</u> is a prophecy of the coming of the messiah; while the <u>New Testment</u> is a prophecy of the coming of the kingdom of Christ
 
-- Ge18:10
-- Mt3:2
+- [Ge18:10](https://www.blueletterbible.org/niv/gen/18/10/s_18010)
+- [Mt3:2](https://www.blueletterbible.org/niv/mat/3/2/s_932002)
 
 | Old Testment | New Testment |
 | --- | --- |
 | Genesis &rarr; Luke | John &rarr; Revelation |
-| the King who will come according to the prophecy | the King who will return according to the prophecy |
+| the King who will ***come*** according to the prophecy | the King who will ***return*** according to the prophecy |
 | "the coming Messiah" | "Christ who came",  "Christ who will return" |
 
 #### ***Prophets*** are the servants who prepared the way for ***the Messiah***
@@ -1194,6 +1200,9 @@ the pharistic law + 613 commandments of Moses
 - [Mk14:21](https://www.blueletterbible.org/niv/mar/14/21/s_971021)
 
 #### The purpose of the coming of the Son of God
+
+(different from the "incarnation of the Word"! You lost 16 points on this)
+
 <!-- XXX: listen again! -->
 1. to ***glorify*** the Father - the ***purpose*** of God [Php2:6-11](https://www.blueletterbible.org/niv/phl/2/6/s_1105006)
 1. to ***destory*** (the works of) the devil - the ***mission*** of God [1Jn3:8](https://www.blueletterbible.org/niv/1jo/3/8/s_1162008)
@@ -1208,6 +1217,7 @@ the pharistic law + 613 commandments of Moses
 Vietnam and Iraq for glory of America??? bad example
 - (2022.5.7) is it bad example?
 - (2023.5.13) USA went to vietnam not for the love of vietnam people (but for the glory of America?), saving man is just a side effect
+- (2024.5.11) hmm still feel the same, not a good example but understood the point
 
 ---
 
@@ -1215,18 +1225,20 @@ Vietnam and Iraq for glory of America??? bad example
 
 ### 12. Read the Bible knowing the purpose of God
 
-knowing God is faith
+#### knowing God is faith
 - unbelievers: deny the existance of God
 - the antichrist: denies the fact that Jesus came in flesh (they do not believe Jesus is Son of God, incarnation of God)
 - cults: insist on salvation other than Jesus
 
+Faith is knowledge + <u>action</u>
+
 #### The Bible cannot be interpreted without the works of the Holy Spirit
-- [Ac2:44-47](https://www.blueletterbible.org/niv/act/2/44/s_1020044)
+- [Ac2:44-47](https://www.blueletterbible.org/niv/act/2/44/s_1020044) early church, communal pod
 
 Is communism/socialism a perfect world??? Soviet Union is not a perfect instance.
 
 #### The Bilble acknowledges differences (inequalities)
-
+"unfairness accepted"
 - [Ge25:23](https://www.blueletterbible.org/niv/gen/25/23/s_25023)
 - [Ge49:8](https://www.blueletterbible.org/niv/gen/49/8/s_49008)
 - [Mt25:29](https://www.blueletterbible.org/niv/mat/25/29/s_954029)
@@ -1240,7 +1252,7 @@ Is communism/socialism a perfect world??? Soviet Union is not a perfect instance
 - [Mk2:27-28](https://www.blueletterbible.org/niv/mar/2/27/s_959027)
 
 God &rarr; Christ &rarr; men &rarr; all things <br>
-Isn't Christ also God? <br>
+??? Isn't Christ also God? <br>
 Jesus Christ has to surrender to the will of God
 
 | men | Jesus |
@@ -1249,9 +1261,11 @@ Jesus Christ has to surrender to the will of God
 | from the point of the will of God | from the point of salvation |
 | the attribute of God (the God who has will) | the character(heart) of God (to save mankind) |
 
+"Jesus died in place of me."
+
 anthropocentricism vs. theocentricism
 
-we are vessels that made for God the potter(制陶工人)
+"we are vessels(器皿) that made for God the potter(制陶工人)"
 
 - [2Ti2:20](https://www.blueletterbible.org/niv/2ti/2/20/s_1127020)
 - [Rm9:20-21](https://www.blueletterbible.org/niv/rom/9/20/s_1055020)
@@ -1266,7 +1280,7 @@ we are vessels that made for God the potter(制陶工人)
 
 ### 13. the Bible must be read only through the lens of the ***blood of Jesus***
 
-from Genesis to Revelation , it is all about the history and the story of ***the blood***
+from Genesis to Revelation, it is all about the history and the story of ***the blood***
 
 #### God's interest is solely in the blood
 
@@ -1328,13 +1342,18 @@ General conscience is variant and relative
 | the righteous | the righteousness of God | called "righteous" |
 
 - [Rm8:1-2](https://www.blueletterbible.org/niv/rom/8/1/s_1054001)
+<br>
+
+- the law: by obeying one is righteous (the righteous)
+- JX: fulfilled the law (the righteousness of God)
+- faith: justified (called righteous)
 
 ---
 
 ## Lec 9
 ### 15. the Bible is a story about the gardener
 
-- [Jn15:1-2](https://www.blueletterbible.org/niv/jhn/15/1/s_1012001)
+- [Jn15:1-2](https://www.blueletterbible.org/niv/jhn/15/1/s_1012001) "no mercy when He cuts"
 - [Mt21:33-46](https://www.blueletterbible.org/niv/mat/21/33/s_950033)
 - [Lk13:6-9](https://www.blueletterbible.org/niv/luk/13/6/s_986006)
 
@@ -1349,6 +1368,7 @@ first day He created light
 ***the origin of light*** : the higher revelation
 
 - [Jn1:4](https://www.blueletterbible.org/niv/jhn/1/4/s_998004), [9-10](https://www.blueletterbible.org/niv/jhn/1/9/s_998009), [14](https://www.blueletterbible.org/niv/jhn/1/14/s_998014)
+the light in the Word
 
 the intertestamental period: the "middle ages" of Israel
 
@@ -1356,13 +1376,13 @@ the intertestamental period: the "middle ages" of Israel
 
 - [Jn5:35](https://www.blueletterbible.org/niv/jhn/5/35/s_1002035)
 - [Mal4:2-6](https://www.blueletterbible.org/niv/mal/4/2/s_929002)
-- [Mt11:12-14](https://www.blueletterbible.org/niv/mat/11/12/s_940012) Who is this Elijah
+- [Mt11:12-14](https://www.blueletterbible.org/niv/mat/11/12/s_940012) Who is this Elijah - John the baptist
 
 the role of a prophet is to introduce
 
-- If you see John as Christ -> Jesus is just a man
-- If you see John as prophet -> Jesus is Christ
-- If you see Jesus as a prophet -> must wait for the Messiah
+- If you see John as Christ &rarr; Jesus is just a man
+- If you see John as prophet &rarr; Jesus is Christ
+- If you see Jesus as a prophet &rarr; must wait for the Messiah
 
 #### Jesus is the light of life
 "Light of life gives perfect life, it does not kill or take like a laser."
@@ -1374,7 +1394,7 @@ spit to ground as ground is sinned/cursed where flesh came from
 (but why put mud on the blind's eye)
 
 
-### 17 the Bible is the father's inheritance
+### 17 the Bible is the Father's inheritance
 
 - [Eze44:28](https://www.blueletterbible.org/niv/eze/44/28/s_846028)
 - [He1:4-5](https://www.blueletterbible.org/niv/heb/1/4/s_1134004) God's greatest inheritance to His children is ***His name***
@@ -1392,9 +1412,10 @@ Jacob(Israel as a name of blessing) wrestled with angel
 
 [Bible Project](https://www.youtube.com/watch?v=eLrGM26pmM0)<br>
 "I AM": <br>
-"YHMH" => "Yahweh" => "Jehovah"
-<br>
-"Yahweh" + "Adonai" = "Yahowah" &rarr; "Jehovah"
+"YHMH" &rarr; "Yahweh" &rarr; "Jehovah"
+
+
+"Yahweh"("YWHW") + "Adonai"("aoa") = "Yahowah" &rarr; "Jehovah"
 <br>
 -> "Elohim": God <br>
 -> "Adonai" Lord <br>
@@ -1411,7 +1432,7 @@ Jacob(Israel as a name of blessing) wrestled with angel
 There is not upper case "*LORD*" in the New Testment
 - [Jn17:26](https://www.blueletterbible.org/niv/jhn/17/26/s_1014026)
 - [Ac19:5](https://www.blueletterbible.org/niv/act/19/5/s_1037005)
-- [Mt28:19](https://www.blueletterbible.org/niv/mat/28/19/s_957019)
+- [Mt28:19](https://www.blueletterbible.org/niv/mat/28/19/s_957019) there is only one single name
 - [Jn5:43](https://www.blueletterbible.org/niv/jhn/5/43/s_1002043) capitalized LORD has never appeared in the NT
 - [Jn10:25](https://www.blueletterbible.org/niv/jhn/10/25/s_1007025)
 
@@ -1424,12 +1445,10 @@ which is Yeshua
 - [Ac19:5](https://www.blueletterbible.org/niv/act/19/5/s_1037005)
 - [Rev:14:1](https://www.blueletterbible.org/niv/rev/14/1/s_1181001)
 
-
-
 #### The name of salvation
-
+[video skipped](https://www.youtube.com/watch?v=5Xwc_E_q3oQ)
 - [Mt1:21-23](https://www.blueletterbible.org/niv/mat/1/21/s_930021)
-- [Ac3:12](https://www.blueletterbible.org/niv/act/3/12/s_1021012)
+- [Ac4:12](https://www.blueletterbible.org/niv/act/4/12/s_1022012)
 - [Rm10:13](https://www.blueletterbible.org/niv/rom/10/13/s_1056013)
 - [He5:9](https://www.blueletterbible.org/niv/heb/5/9/s_1138009)
 
@@ -1458,8 +1477,13 @@ which is Yeshua
 
 ---
 
-### 19. There are three *climaxes* in the Bible
+### 19. The Bible is the road that follows not men but Yeshua
+- [M1:1-16](https://www.blueletterbible.org/niv/mat/1/1/s_930001)
+
+### 20. There are three *climaxes* in the Bible
 - [Lk1:1-4](https://www.blueletterbible.org/niv/luk/1/1/s_974001)
+
+Ps105-106, Jn, He
 
 #### Climax 1. the event of the Exodus of Israel
 
@@ -1490,8 +1514,8 @@ which is Yeshua
    5. Citizens of heaven [Php3:20](https://www.blueletterbible.org/niv/phl/3/20/s_1106020)
    6. The Holy Spirit guides
    7. Eat the flesh and drink the blood of JX [Jn6:53-58](https://www.blueletterbible.org/niv/jhn/6/53/s_1003053)
-   8. ***Lay down wife, children, ad fields*** [Mk10:29](https://www.blueletterbible.org/niv/mar/10/29/s_967029)
-   9. Entered the Father's house
+   8. ***Lay down wife, children, and fields*** [Mk10:29](https://www.blueletterbible.org/niv/mar/10/29/s_967029)
+   9. Enter the Father's house
 
 #### Climax 3. the return of Christ and resurrection of saints
 
@@ -1499,7 +1523,7 @@ which is Yeshua
    2. Salvation from the universe (Hades)
    3. Eternally free
    4. All creation submits [1Co15:28](https://www.blueletterbible.org/niv/1co/15/28/s_1077028)
-   5. Royal priests [Rev20:6](https://www.blueletterbible.org/niv/rev/20/6/s_1187006)
+   5. Royal priests [Rev20:6](https://www.blueletterbible.org/niv/rev/20/6/s_1187006) kings who serve(priests)
    6. The groom Christ guides
    7. Eat of the tree of life [Rev22:2](https://www.blueletterbible.org/niv/rev/22/2/s_1189002)
    8. A loud command to ***Rise*** [1Th4:16](https://www.blueletterbible.org/niv/1th/4/16/s_1115016)
@@ -1509,8 +1533,7 @@ which is Yeshua
 
 ## Lec 10
 
-### 20. The Bible is the road that follows not men but Yeshua
-- [M1:1-16](https://www.blueletterbible.org/niv/mat/1/1/s_930001)
+
 
 
 ### 21. the Bible demonstates the absolutism of God

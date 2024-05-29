@@ -63,7 +63,7 @@ When one seizes the chance and carries out even if there is risk and burden invo
 <br> When describe, following the format: <br>
 God's specific calling - risk / burden involving - individual take the risk to obey God's instruction - blessing)
 
-## 7. What is the Truth?
+## 7. What is the Truth? (L11)
 1. The words of the Father <br>
     [Jn17:17]() Sanctify them by (or them to live in accordance with) the truth; your word is truth.
 1. Jesus Himself <br>
@@ -139,7 +139,7 @@ Christ(Greek) / Messiah(Hebrew) = "The Anointed" / King
 |Highlighting the duty / mission in the flesh|Highlighting deity, the Name given to us, in me, blood came through the Name|
 
 
-## 15. Explain three types of spiritual beings in the Bible
+## 15. Explain three types of spiritual beings in the Bible (L1)
 | God  |Angels   |Men|
 |---|---|---|
 | Transcendent(极其伟大的, 超越认识的事物)  |Intermediary(中间人；调解人)   |Limited|

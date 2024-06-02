@@ -1533,9 +1533,6 @@ Ps105-106, Jn, He
 
 ## Lec 10
 
-
-
-
 ### 21. the Bible demonstates the absolutism of God
 
 - [Ge1:1](https://www.blueletterbible.org/niv/gen/1/1/s_1001)
@@ -1564,18 +1561,19 @@ sin vs. iniquity vs. transgression
 - against God: sin
 - against men: transgression &rarr; going through &rarr; breaking the law/rules
 
+not a clear black&white division, but applies most of the time
+
 #### The structure of ***the Ten Commandments***
 4(sin) + 6(transgression)
 
-| ethics of ***faith*** | ethics of ***faith life*** |
+| ethics of ***faith*** (prioritize) | ethics of ***faith life*** |
 | --- | --- |
 | Commandaments 1-4 | Commandments 5-10 |
 | regarding relationship with God | regarding relationship among men |
-| ethics regarding God | ethics regarding men |
+| ***ethics regarding God*** | ethics regarding men |
 
 - [Mt10:37-38](https://www.blueletterbible.org/niv/mat/10/37/s_939037)
 - [Lk9:59-60](https://www.blueletterbible.org/niv/luk/9/59/s_982059) "He is demanding exclusive love"
-
 
 ### 23. Hebrews chapter 11 shows the ***faith*** that God demands
 
@@ -1584,7 +1582,7 @@ sin vs. iniquity vs. transgression
 
 #### What is faith?
 
-(In Hebrews 11)
+(In [Hebrews 11](https://www.blueletterbible.org/niv/heb/11/1/s_1144001))
 
 - judged by one's offering
 - pleasing to God
@@ -1600,7 +1598,7 @@ sin vs. iniquity vs. transgression
 - [Ps24:1](https://www.blueletterbible.org/niv/psa/24/1/s_502001)
 - [Ps100:3](https://www.blueletterbible.org/niv/psa/100/3/s_578003)
 - [Ps23:1](https://www.blueletterbible.org/niv/psa/23/1/s_501001)
-- [Jn15:5-7](https://www.blueletterbible.org/niv/jhn/15/5/s_1012005)
+- [Jn15:5-7](https://www.blueletterbible.org/niv/jhn/15/5/s_1012005) "heart of John", church is dependent part of Jesus
 - [1Jn4:5-6](https://www.blueletterbible.org/niv/1jo/4/5/s_1163005)
 - [Jn8:31](https://www.blueletterbible.org/niv/jhn/8/31/s_1005031), [44](https://www.blueletterbible.org/niv/jhn/8/44/s_1005044)
 - [Jn15:19](https://www.blueletterbible.org/niv/jhn/15/19/s_1012019)
@@ -1610,20 +1608,23 @@ the lord O kupios = master, owner, lord, king, head
 
 ### 25. the Bible says men are God's partakers(partners, coworkers)
 
+e.g. stock &rarr; owner/shareholder
+
 - [Eph1:4-5](https://www.blueletterbible.org/niv/eph/1/4/s_1098004), [9](https://www.blueletterbible.org/niv/eph/1/9/s_1098009)
 - [He2:13](https://www.blueletterbible.org/niv/heb/2/13/s_1135013)
 - [Jn15:15](https://www.blueletterbible.org/niv/jhn/15/15/s_1012015)
 
 #### schedule - predestination - providence
 
-- [Jn15:16](https://www.blueletterbible.org/niv/jhn/15/16/s_1012016)
+- [Jn15:15](https://www.blueletterbible.org/niv/jhn/15/15/s_1012015)
 - [Rm8:17](https://www.blueletterbible.org/niv/rom/8/17/s_1054017)
-- [Mt24:35-36](https://www.blueletterbible.org/niv/mat/24/35/s_953035)
+- [Mt24:35-36](https://www.blueletterbible.org/niv/mat/24/35/s_953035) only the Father knows
 
-| schedule | predestination | providence |
+| schedule <br>(dispensation)</br> | predestination | providence |
 | --- | --- | --- |
 | divine decision, God's timetable | establishing parts (scripts that different people will play) | pre-video ("see ahead") |
 | before creation, unilateral | before creation | becomes "casting" when God's will meets man |
+|"script"||the person has been seeing what's gonna happen in the future(pre-video), then takes the part|
 
 #### God's schedule: "the time is near" etc.
 - [Jer23:5](https://www.blueletterbible.org/niv/jer/23/5/s_768005), [30:3](https://www.blueletterbible.org/niv/jer/30/3/s_775003)
@@ -1641,6 +1642,14 @@ the lord O kupios = master, owner, lord, king, head
 - [Ge25:23](https://www.blueletterbible.org/niv/gen/25/23/s_25023), [27:12-13](https://www.blueletterbible.org/niv/gen/27/12/s_27012)
 - [Lk1:31](https://www.blueletterbible.org/niv/luk/1/31/s_974031), [38](https://www.blueletterbible.org/niv/luk/1/38/s_974038)
 - [Ac4:13](https://www.blueletterbible.org/niv/act/4/13/s_1022013)
+
+***2024***
+God's plan is the track, God's schedule(dispensation) is the train(which will keep running non-stop), the sleeper(to carry out providence)(Rebecca, Moses, Mary ... one by one) will respond to the calling and fulfill the predestination.
+
+"The dog barks and the train goes."
+
+Providence goes to everyone of us (baptism etc.), there is risk(burden of the cross) (how to prioritize?) (dilemma to choose, yes &rarr; blessing, no &rarr; curse)
+
 
 ***2022***: Tracks/rail ways as God's plan, the train running as "schedule" (does not stop or change).
 Providence, as the sleeper, is the individual's life to meet God's plan.<br>

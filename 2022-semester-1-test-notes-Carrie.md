@@ -27,7 +27,7 @@ Christianity is not a religion. Appearance of similarity, but fundamentally diff
 |Through doctrine(教义；信条), rituals(程序；仪规；礼节) and organizations|Through the revealed Word of God|
 |Upward (Men trying to attain to God)|Downward (God came to man, given word)|
 
-Men cannot know God through religiosity. God gave men not religion but His Son, not doctrine but fact - ***the Word in the beginning became flesh*** and came to us, finished the redemptive work to give sinners like us a chance to respond to this divine call and be saved. It starts with God, and is the amazing grace of God. No religion promises salvation by grace through faith ***in God's redemption through Jx*** like in Christianity.
+Men cannot know God through religiosity. God gave men not religion but His Son, not doctrine but fact - ***the Word in the beginning became flesh*** and came to us, finished the (redemptive work 不要写直接写这个词，要自己解释) to give sinners like us a chance to respond to this divine call and be saved. It starts with God, and is the amazing grace of God. No religion promises salvation by grace through faith ***in God's redemption through Jx*** like in Christianity.
 
 ## 4. Explain the Law and the Gospel - Definition, Purpose, Result? (L8)
 |   | The Law  |The Gospel|
@@ -138,6 +138,7 @@ Christ(Greek) / Messiah(Hebrew) = "The Anointed" / King
 |Death, resurrection, ascension, the throne, the return|Immanuel (God with us)|
 |Highlighting the duty / mission in the flesh|Highlighting deity, the Name given to us, in me, blood came through the Name|
 
+100% man and 100% God
 
 ## 15. Explain three types of spiritual beings in the Bible (L1)
 | God  |Angels   |Men|

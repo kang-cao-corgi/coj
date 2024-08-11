@@ -32,21 +32,21 @@ Men cannot know God through religiosity. God gave men not religion but His Son, 
 ## 4. Explain the Law and the Gospel - Definition, Purpose, Result? (L8)
 |   | The Law  |The Gospel|
 |---|---|---|
-| It is ...  |The conscience of God, the righteousness of God   |The freedom from conscience [Jn8:32]()|
-|Definition|No one is righteous [Rm3:10]() (the law of condemnation, the law of sin and death)|The righteous will live by faith [Rm1:17]() By faith in the redemptive work of Jx, we can be justified as righteous|
-|Purpose|The condemn [Rm3:19]() All men in Adam are sinners|To reveal the righteousness of God [Rm1:17]() (Jesus)|
-|Result|The price of sin is death [Rm6:23]() All are doomed to go to hell to pay our price|Eternal life [Rm5:20-21] Simply by believing and receiving, one's debts of sin have been fully paid by Jx, one can then have eternal life instead of eternal punishment in the fire of hell|
+| It is ...  |The conscience of God, the righteousness of God   |The freedom from conscience [Jn8:32](https://www.blueletterbible.org/niv/jhn/8/32/s_1005032)|
+|Definition|No one is righteous [Rm3:10](https://www.blueletterbible.org/niv/rom/3/10/s_1049010) (the law of condemnation, the law of sin and death)|The righteous will live by faith [Rm1:17](https://www.blueletterbible.org/niv/rom/1/17/s_1047017) By faith in the redemptive work of Jx, we can be justified as righteous|
+|Purpose|The condemn [Rm3:19](https://www.blueletterbible.org/niv/rom/3/19/s_1049019) All men in Adam are sinners|To reveal the righteousness of God [Rm1:17](https://www.blueletterbible.org/niv/rom/1/17/s_1047017) (Jesus)|
+|Result|The price of sin is death [Rm6:23](https://www.blueletterbible.org/niv/rom/6/23/s_1052023) All are doomed to go to hell to pay the price|Eternal life [Rm5:20-21](https://www.blueletterbible.org/niv/rom/5/20/s_1051020) Simply by believing and receiving, one's debts of sin have been fully paid by Jx, one can then have eternal life instead of eternal punishment in the fire of hell|
 
 
 ## 5. Explain the incarnation of the Word, and the purpose of this. Please cite Bible verses. (L6)
 - the incarnation of the Word [Jn1:1-3]()<br>
-The essence / very nature of the Word is God [Php2:6]()<br>
+The essence / very nature of the Word is God [Php2:6](https://www.blueletterbible.org/niv/phl/2/6/s_1105006)<br>
 The Word became flesh, God became flesh, Spirit became flesh [Jn1:14]()<br>
 His flesh = spirit; His blood = spirit
 
 - Why did the Word become flesh?
-1. ***to die***: for redemption (pay the price of sin for all) [Mt20:28](), at the Father's command [Jn10:18]()
-1. ***to shed blood***: to cleanse, forgive sins [lev17:11]() (atonement), [He9:22](); and give life [Jn6:63]()
+1. ***to die***: for redemption (pay the price of sin for all) [Mt20:28](https://www.blueletterbible.org/niv/mat/20/28/s_949028), at the Father's command [Jn10:17-18](https://www.blueletterbible.org/niv/lev/17/11/s_107011)
+2. ***to shed blood***: to cleanse, forgive sins [lev17:11]() (atonement), [He9:22](https://www.blueletterbible.org/niv/heb/9/22/s_1142022); and give life [Jn6:63](https://www.blueletterbible.org/niv/jhn/6/63/s_1003063)
 
 ## 6. What is God's schedule, predestination, and providence? What should we do when facing providence? Use an example to explain. (L10)
 
@@ -86,7 +86,7 @@ ethic (伦理学；道德准则；伦理标准；道德体系)
 |ethics regarding God| ethics regarding men|
 |if break, against God, "sin"|if break, against men, "transgression(违反；罪过)" (weight differs)|
 
-We should always prioritize the ethics of faith. God is the trust-worthy rock, if we trust God, we put everything else in His hand. God created us, therefore knows our every care, but His will is wanting us to treat Him the right way, loving Him more than anything else, because He alone is worthy. E.g. Abraham sacrifices his one and only Son. In [Mt10:37]() and [Lk9:59]() Jesus demanded priority of "following Him" than "honoring one's parents", because He is God who came as man. Therefore, we need to follow Jx first.
+We should always prioritize the ethics of faith. God is the trust-worthy rock, if we trust God, we put everything else in His hand. God created us, therefore knows our every care, but His will is wanting us to treat Him the right way, loving Him more than anything else, because He alone is worthy. E.g. Abraham sacrifices his one and only Son. In [Mt10:37](https://www.blueletterbible.org/niv/mat/10/37/s_939037) and [Lk9:59](https://www.blueletterbible.org/niv/luk/9/59/s_982059) Jesus demanded priority of "following Him" than "honoring one's parents", because He is God who came as man. Therefore, we need to follow Jx first.
 
 ## 9. What is Faith and self-confidence? What are the differences? Which should we choose? (L6)
 | Self-confidence  |Faith   |
@@ -156,11 +156,11 @@ Jesus is the Messiah and the light of life. [Jn1:4]() <br>
 As soon as Jesus starts to preach, the true light comes, then lamp is no longer necessary. So John the baptist died.
 
 ## 17. explain the purpose of the coming of the Son. (Why did God send the Son of God / Man?) (L7)
-To die to:
+To die to: (要写！)
 
-1. glorify the Father [Php2:6-11]() - mission completed at the cross
-1. destroy the devil [1Jn3:8]()
-1. save mankind [Jn3:16]() - all giving glory to Yeshua, Father receives glory.
+1. glorify the Father [Php2:6-11](https://www.blueletterbible.org/niv/phl/2/6/s_1105006) - mission completed at the cross
+1. destroy the devil's work [1Jn3:8](https://www.blueletterbible.org/niv/1jo/3/8/s_1162008)
+1. save mankind [Jn3:16](https://www.blueletterbible.org/niv/jhn/3/16/s_1000016) - all giving glory to Yeshua, Father receives glory.
 
 
 

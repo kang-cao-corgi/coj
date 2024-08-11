@@ -1623,7 +1623,7 @@ e.g. stock &rarr; owner/shareholder
 | schedule <br>(dispensation)</br> | predestination | providence |
 | --- | --- | --- |
 | divine decision, God's timetable | establishing parts (scripts that different people will play) | pre-video ("see ahead") |
-| before creation, unilateral | before creation | becomes "casting" when God's will meets man |
+| before creation, unilateral(单方的) | before creation | becomes "casting" when God's will meets man |
 |"script"||the person has been seeing what's gonna happen in the future(pre-video), then takes the part|
 
 #### God's schedule: "the time is near" etc.
@@ -1663,7 +1663,7 @@ Sleeper has a free will: "yes" -> blessing, "no" -> curse
 
 ### 26. the Bible says to ***not*** miss spiritual opportunity
 
-- [Rev2:10-12](https://www.blueletterbible.org/niv/rev/2/10/s_1169010)
+- [Rev2:10-11](https://www.blueletterbible.org/niv/rev/2/10/s_1169010)
 - [Rev3:11-12](https://www.blueletterbible.org/niv/rev/3/11/s_1170011)
 - [Php3:12](https://www.blueletterbible.org/niv/phl/3/12/s_1106012)
 - [2Co6:2](https://www.blueletterbible.org/niv/2co/6/2/s_1084002)
@@ -1672,7 +1672,7 @@ Prayer is training
 
 ### 27. There is a common thread in the Bible
 
-- [Jn5:39](https://www.blueletterbible.org/niv/jhn/5/39/s_1002039)
+- [Jn5:39](https://www.blueletterbible.org/niv/jhn/5/39/s_1002039) "testify about me"
 
 the blood orange example: take sample from each book, you will find the image of Jesus <br>
 every book has a common topic: Jesus,
@@ -1744,7 +1744,8 @@ the gospel book: first 4 books of new testment, look in Jesus from different per
 
 ### 1. the truth
 
-- "If you hold to my teaching, you are really my disciples" [Jn8:32](https://www.blueletterbible.org/niv/jhn/8/32/s_1005032)
+- "If you hold to my teaching, you are really my disciples"
+- [Jn8:32](https://www.blueletterbible.org/niv/jhn/8/32/s_1005032)
 - [Ps119:142](https://www.blueletterbible.org/niv/psa/119/142/s_597142)
 - [Jn17:17](https://www.blueletterbible.org/niv/jhn/17/17/s_1014017)
 
@@ -1783,7 +1784,7 @@ truth:
 | Easy to fall into mysticism | super natural law, the truth |
 
 ### 1.How do we believe the "mythical" parts of the Bible
-[Ge11](https://www.blueletterbible.org/niv/gen/11/1/s_11001)
+generally referring to [Ge1-11](https://www.blueletterbible.org/niv/gen/11/1/s_11001)
 
 Deny signs <=> deny Jesus <=> deny God
 
@@ -1865,6 +1866,13 @@ which route has the accurate word of Father? ***Both***
 - [Mk16:20](https://www.blueletterbible.org/niv/mar/16/20/s_973020)
 - [1Ki18:26](https://www.blueletterbible.org/niv/1ki/18/36/s_309036)
 
+the template that how Elijah pray:
+- "Let the name of Yeshua, the name of God, be known today"
+- "I am your servant, let Your Name be glorified"
+- "I have lived according to Your word as the truth"
+
+PJ: "Believers with signs are normal"
+
 ## 5. the supernatural signs in the writting
 
 - man walking on water (Mt14:26-29)
@@ -1879,7 +1887,7 @@ which route has the accurate word of Father? ***Both***
 
 - Peter caught fish by His word (Lk5:4-7)
 
-- the two fish and five loaves of bread (Jn2:1-11)
+- the two fish and five loaves of bread (Mt14:19-21)
 
 - water turned into wine (Jn2:1-11)
 
@@ -1887,11 +1895,11 @@ which route has the accurate word of Father? ***Both***
 
 - the dead rose (Jn11:1-44)
 
-- Mk9:23
+---
 
-- Mk16:17
-
-- Php4:13
+- [Mk9:23](https://www.blueletterbible.org/niv/mar/9/23/s_966023)
+- [Mk16:17](https://www.blueletterbible.org/niv/mar/16/17/s_973017)
+- [Php4:13](https://www.blueletterbible.org/niv/phl/4/13/s_1107013)
 
 ---
 
@@ -1901,28 +1909,23 @@ which route has the accurate word of Father? ***Both***
 ## I. the will of God
 
 ### 1. the revelation of God
+natural/higher (might be in test even from 1st semester)
 
 #### a. those under nature [Rm1:20](https://www.blueletterbible.org/niv/rom/1/20/s_1047020)
 
 #### b. Those under the Law (in the Old Testment)
-
 - [Jn14:26](https://www.blueletterbible.org/niv/jhn/14/26/s_1011026)
 
 #### c. Those under the Gospel
-
 - [1Jn1:1-2](https://www.blueletterbible.org/niv/1jo/1/1/s_1160001)
-
 - [Jn5:22-23](https://www.blueletterbible.org/niv/jhn/5/22/s_1002022), [30](https://www.blueletterbible.org/niv/jhn/5/30/s_1002030)
-
 - [Jn12:47-48](https://www.blueletterbible.org/niv/jhn/12/47/s_1009047)
 
 ### 2. Who is God?
-
 1. the Only God [1Ti1:7](https://www.blueletterbible.org/niv/1ti/1/7/s_1120007)
 1. the Self-Existent (the un-created) [Ge11:3-4](https://www.blueletterbible.org/niv/gen/11/3/s_11003)
 1. the Everlasting [Neh9:5](https://www.blueletterbible.org/niv/neh/9/5/s_422005), [Jn1:1](https://www.blueletterbible.org/niv/jhn/1/1/s_998001)
-
-4. God loves Himself
+1. God loves Himself
     - He expresses His love through the Son [Mt3:16-17](https://www.blueletterbible.org/niv/mat/3/16-17/s_932016)
     - He acknowledges only the things in the Son [Jn14:21](https://www.blueletterbible.org/niv/jhn/14/21/s_1011021)
 
@@ -1940,7 +1943,7 @@ which route has the accurate word of Father? ***Both***
 - [1Pe3:22](https://www.blueletterbible.org/niv/1pe/3/22/s_1154022) "the right hand man" &rarr; the most trusted
 
 #### 4) God placed the throne in heaven
-- [He1:2-3](https://www.blueletterbible.org/niv/heb/1/2/s_1134002)
+- [He1:3](https://www.blueletterbible.org/niv/heb/1/3/s_1134003)
 
 ### 4. the three-day long death of Jesus
 - [Jn10:18](https://www.blueletterbible.org/niv/jhn/10/18/s_1007018)
@@ -1970,7 +1973,7 @@ which route has the accurate word of Father? ***Both***
 3. The glory of God
 - [He1:4-5](https://www.blueletterbible.org/niv/heb/1/4/s_1134004)
 
-What is glory?
+What is glory???
 
 ## IV. the only begotten(从父永远被生的) Son
 mono-gene, "one of a kind"
@@ -1996,7 +1999,6 @@ Greek "Mono+genus" <br>
 - [Pr8:22-31](https://www.blueletterbible.org/niv/pro/8/22/s_636022)
 
 #### 2) Jesus resurrected and sat on the throne
-
 - [He8:1-3](https://www.blueletterbible.org/niv/heb/8/1/s_1141001), [9:24](https://www.blueletterbible.org/niv/heb/9/24/s_1142024)
 - [Jn1:2-3](https://www.blueletterbible.org/niv/jhn/1/2/s_998002)
 
@@ -2007,7 +2009,7 @@ Greek "Mono+genus" <br>
 - As expected Lucifer rebelled: the way for JX to come as Christ
 - The very nature God who was in the bosom of the Father became flesh and appeared on earth and died on a cross
 - JX resurrected, ascended to heaven and sat on the throne
-- As the most glorious One in the heavenly sanctuary He serves the Father forever.
+- As the most glorious One in the heavenly sanctuary He serves the Father forever. (from the throne)
 
 ---
 
@@ -2015,7 +2017,8 @@ Greek "Mono+genus" <br>
 
 ### V. God placed angels
 
-the order of thing God created:
+MIGHT BE IN THE TEST!!! &darr;
+#### the order of thing God created:
 1. the spiritual heaven - the throne, the name, the glory of God (therefore angels were created)
 2. the angels - "host", "the cherubim" - for the glory of God
 3. the universe / world
@@ -2026,35 +2029,33 @@ Michael, Gabriel etc. <br>
 the hebrew (enoch) apocrypha
 
 ### 2. "the angel of the LORD"
-
-"the angel of the LORD", "the angel of God", "the LORD" refer to angel
+"the angel of the (LORD &rarr; Jehovah)", "the angel of God", "the LORD" refer to angel
 - [Ge18:1-2](https://www.blueletterbible.org/niv/gen/18/1/s_18001), [22](https://www.blueletterbible.org/niv/gen/18/22/s_18022)
     "three men" -> angels <br>
-    who is "the lord" -> angel (in OT) <br>
+    who is "the LORD" -> angel (in OT) come in the name of Jehovah <br>
 
 - [Ge19:1](https://www.blueletterbible.org/niv/gen/19/1/s_19001) The reference became "angels", but they are the same being as in Ge18
-- [Ge16:7](https://www.blueletterbible.org/niv/gen/16/7/s_16007), [13](https://www.blueletterbible.org/niv/gen/16/13/s_16013)
-- [Ex3:2](https://www.blueletterbible.org/niv/exo/3/2/s_53002), [4-5](https://www.blueletterbible.org/niv/exo/3/4/s_53004)
-- [Ac7:35](https://www.blueletterbible.org/niv/act/7/35/s_1025035), [53](https://www.blueletterbible.org/niv/act/7/53/s_1025053)
+- [Ge16:7](https://www.blueletterbible.org/niv/gen/16/7/s_16007) the angel of the LORD &rarr; [13](https://www.blueletterbible.org/niv/gen/16/13/s_16013) LORD, You are the God
+- [Ex3:2](https://www.blueletterbible.org/niv/exo/3/2/s_53002) the angel of the LORD &rarr; [4-5](https://www.blueletterbible.org/niv/exo/3/4/s_53004)   the LORD &rarr; God
+- [Ac7:30](https://www.blueletterbible.org/niv/act/7/30/s_1025030), [35](https://www.blueletterbible.org/niv/act/7/35/s_1025035), [53](https://www.blueletterbible.org/niv/act/7/53/s_1025053)
 
 ### 3. Lucifer
 
 - [Is14:12-15](https://www.blueletterbible.org/niv/isa/14/12/s_693012)
 
-    "morning star, Son of the Dawn" ->
-
-    luciel/lucifer(after his sin): lux/lucis + ferre -> "light-bringer"
+    "morning star, Son of the Dawn" &rarr; <br>
+    luciel/lucifer(after his sin): lux/lucis + ferre &rarr; "light-bringer"
 
     person is made of intelligence, emotion and free will
 
-- [Jn1:1](https://www.blueletterbible.org/niv/jhn/1/1/s_998001), [4](https://www.blueletterbible.org/niv/jhn/1/4/s_998004)
+- [Jn1:1](https://www.blueletterbible.org/niv/jhn/1/1/s_998001), [4](https://www.blueletterbible.org/niv/jhn/1/4/s_998004) that life was the light of men
 
 - [Jn12:50](https://www.blueletterbible.org/niv/jhn/12/50/s_1009050) "I have to obey"
 
 - [Eze28:12-17](https://www.blueletterbible.org/niv/eze/28/12/s_830012)
 
 #### the perfection of the created
-- [Eze28:12-17](https://www.blueletterbible.org/niv/eze/28/12/s_830012)
+- [Eze28:12-17](https://www.blueletterbible.org/niv/eze/28/12/s_830012) &rarr; the archangel created to praise God
 - [Is14:11](https://www.blueletterbible.org/niv/isa/14/11/s_693011)
 
 the perfection = free will of the created (its duality)
@@ -2064,12 +2065,13 @@ angels fell
 ### 4. the universe
 
 - [2Pe2:4](https://www.blueletterbible.org/niv/2pe/2/4/s_1158004) "gloomy dungeons", "chains of darkness", "Greek Tartarus"
-- [Jude1:6](https://www.blueletterbible.org/niv/jde/1/6/s_1167006) "in darkness"
+- [Jude1:6](https://www.blueletterbible.org/niv/jde/1/6/s_1167006) "in darkness",
 - [Is14:15](https://www.blueletterbible.org/niv/isa/14/15/s_693015)
-- Ge1:1-2 the spirit of God hovering over the "outer" surface of water
+- [Ge1:1-2](https://www.blueletterbible.org/niv/gen/1/1/s_1001)
+  - the spirit of God hovering over the "outer" surface of water
+  - "everlasting chains" from [Jude1:6](https://www.blueletterbible.org/niv/jde/1/6/s_1167006)
 
 #### the universe is finite
-
 - [Ge1:2](https://www.blueletterbible.org/niv/gen/1/2/s_1002), [7-10](https://www.blueletterbible.org/niv/gen/1/7/s_1007)
 - [2Pe3:5](https://www.blueletterbible.org/niv/2pe/3/5/s_1159005)
 
@@ -2087,15 +2089,13 @@ angels fell
 3. blasphemed the name of God: "you will not surely die"
 4. destroyed the order of the Garden of Eden
 
-#### the devil's challenge to Jesus
-
-1. denied the Son of God by tempting with food and stressing His humanity
-2. tested the Word of God and blasphemed
-3. tempted Him to worship the devil
-4. a creature tested the Son of God and destroyed the order of things
+#### the devil's temptation to Jesus
+1. denied the deity of JX by tempting with food and stressing His humanity
+2. tempted the Son of God to worship the devil
+3. Tested th Word of God and blasphemed
+4. a creature tempted the Son of God and destroyed the order of things
 
 #### the Ten Commandments and the ethics of faith
-
 1. ehics regarding deity
 2. ehics regarding image
 3. ehics regarding honor
@@ -2107,12 +2107,12 @@ angels fell
 | | | | |
 
 #### Sheol (hades)
-
-1. Sheol
-
+1. Sheol <br>
     = the universe <br>
     = "the first heaven and the first earth" [Rev21:1](https://www.blueletterbible.org/niv/rev/21/1/s_1188001) <br>
     = the world that will become hell [Is14:15](https://www.blueletterbible.org/niv/isa/14/15/s_693015)
+
+   The universe is preserved for fire [2Pe3:7](https://www.blueletterbible.org/niv/2pe/3/7/s_1159007)
 
 2. Sheol = the lowest place for the Son of God
 
@@ -2125,7 +2125,9 @@ angels fell
 - [Mt25:34](https://www.blueletterbible.org/niv/mat/25/34/s_954034), [41](https://www.blueletterbible.org/niv/mat/25/41/s_954041)
 - [Rev21:1](https://www.blueletterbible.org/niv/rev/21/1/s_1188001)
 - [Jn3:13](https://www.blueletterbible.org/niv/jhn/3/13/s_1000013)
-- [Ge1:6-8](https://www.blueletterbible.org/niv/gen/1/6/s_1006) At the second day of creation, God did not see that it was good
+- [Ge1:6-8](https://www.blueletterbible.org/niv/gen/1/6/s_1006) At the second day of creation, God did not see that it was good. Because the universe will become hell eventually.
+
+the work has been done (devil's destroyed) &rarr; the era of grace continuing, giving men time/opporitunities to work on reward/salvation
 
 <!-- ### eschatology -->
 
@@ -2136,7 +2138,7 @@ angels fell
     one God in three persons, in agreement of each other: the Father, the Son, the Holy Spirit
 
 - [1Jn3:8](https://www.blueletterbible.org/niv/1jo/3/8/s_1162008)
-- [Jn1:1, 14, 18](https://www.blueletterbible.org/niv/jhn/1/1/s_998001)
+- [Jn1:1](https://www.blueletterbible.org/niv/jhn/1/1/s_998001), [14](https://www.blueletterbible.org/niv/jhn/1/14/s_998014), [18](https://www.blueletterbible.org/niv/jhn/1/18/s_998018)
 
 the Son has already had an image when He was with the Word
 
@@ -2149,6 +2151,8 @@ the Son has already had an image when He was with the Word
 | outside the universe | within the universe | inside the soul, inside the church |
 | before the creation of the heavens and the earth | 2000 years ago | after the Pentecost |
 
+- [Jn14:17](https://www.blueletterbible.org/niv/jhn/14/17/s_1011017)
+
 #### Satan and the devil are the same person
 
 | Satan | the Devil |
@@ -2157,12 +2161,14 @@ the Son has already had an image when He was with the Word
 | rebelled ***against God*** | ***against men*** |
 | traitor, rebel, betrayer | separator, divider |
 
+Jesus: "Away from me <u>Satan</u>", "Get behind me <u>Satan</u>" &rarr; Jesus is God
+
 #### God's method of punishment
 - [Jas1:13](https://www.blueletterbible.org/niv/jas/1/13/s_1147013)
 
 #### The Devil
 
--> diablo "to separate, to destroy"
+&rarr; diablo "to separate, to destroy"
 
 - [Rm13:1](https://www.blueletterbible.org/niv/rom/13/1/s_1059001)
 - [Jude1:6](https://www.blueletterbible.org/niv/jde/1/6/s_1167006)
@@ -2185,9 +2191,9 @@ the Son has already had an image when He was with the Word
 | --- | --- | --- |
 | past | present | future |
 | JX paid the price of sin through His death | those who believe in the redemption of JX are forgiven | begins at the time of the resurrection to life |
-| "believe this historical fact" | "come out of the wicked world" | "live with the hope of resurrection" |
+| "believe this historical fact" | "come out of the wicked world" | ***<u>"live with the hope of resurrection"</u>*** |
 
-- [Rm10:10](https://www.blueletterbible.org/niv/rom/10/10/s_1056010)
+- [Rm10:10](https://www.blueletterbible.org/niv/rom/10/10/s_1056010) come out of the "cave/closet"
 
 
 | "you have been saved" | "be saved" | "you will be saved" |
@@ -2221,6 +2227,8 @@ we are formed in the original pattern of JX
 #### The creation of man
 
 - [Eph1:4](https://www.blueletterbible.org/niv/eph/1/4/s_1098004)
+  - the Calvinistic predestination: "some ppl are chosen/predestined to be saved", misinterpretation
+  - PJ: use Hebrew thinking, the entire humanrace. Human vs. other spiritual beings
 - [Mt1:21](https://www.blueletterbible.org/niv/mat/1/21/s_930021), [23](https://www.blueletterbible.org/niv/mat/1/23/s_930023)
 - [Col1:15-17](https://www.blueletterbible.org/niv/col/1/15/s_1108015)
 
@@ -2264,12 +2272,11 @@ the spirit that became flesh
 | the law of condemnation | the one who brings false charges | the One who judges |
 | the criminal law | the prosecutor (检举人) | the judge |
 
-JX &rarr; sin &rarr; the law &rarr; the devil &rarr; the judge
+JX(Pacman吃豆人) &rarr; sin &rarr; the law &rarr; the devil(bring false charges) &rarr; God(the judge)
 
 #### The plan of God
-
 1. Decided in eternity to appoint the Son as the Heir of all things [He1:2](https://www.blueletterbible.org/niv/heb/1/2/s_1134002)
-2. Created the spiritual heavenL put His name, the throne and glory
+2. Created the spiritual heaven: put His name, the throne and glory
 3. Placed angels in heaven to glorify Him - Satan rebelled
 4. Created Hades (the first heaven and the first earth) - contained the fallen angels until judgement
 5. Created man in the image of God - Adam's sin - death
@@ -2316,20 +2323,25 @@ God is love, but love is not God.
 - [He2:7](https://www.blueletterbible.org/niv/heb/2/7/s_1135007)
 
 #### the origin of sin is the devil
-
 - [He2:9](https://www.blueletterbible.org/niv/heb/2/9/s_1135009),[11](https://www.blueletterbible.org/niv/heb/2/11/s_1135011), [14](https://www.blueletterbible.org/niv/heb/2/14/s_1135014) "taste death", the purpose for JX to come and resurrect
 - [1Jn3:8](https://www.blueletterbible.org/niv/1jo/3/8/s_1162008)
 - [1Co15:45](https://www.blueletterbible.org/niv/1co/15/45/s_1077045)
 
-#### Jesus and men were born for the ***same*** purpose
+#### Yeshua and men were born for the ***same*** purpose
+???
 - [Mt3:16-17](https://www.blueletterbible.org/niv/mat/3/16/s_932016)
 
 We should reflect God's love, to shine His glory. We are given the function to love and to be loved.
 
 #### the duty and the right to ***be loved***
+- [Mt27:46](https://www.blueletterbible.org/niv/mat/27/46/s_956046) "Does JX fail here? No" take it as a exclamation from JX: "Father, how much love you love them that you let me die like this." We have God's un-deserving love.
+
 - [1Pe1:23](https://www.blueletterbible.org/niv/1pe/1/23/s_1152023)
 - [Ps138:8](https://www.blueletterbible.org/niv/psa/138/8/s_616008)
 - [He2:18](https://www.blueletterbible.org/niv/heb/2/18/s_1135018)
+
+"suffering is a chance for you to experience God's love"
+"Only if you received God's unconditional love, you may have love for one another"
 
 ##### "My Father"
 Trinity: <br>
@@ -2342,7 +2354,7 @@ Trinity: <br>
 ## Lec 18
 
 ## IX. The offspring of the woman
-- [Ge3:14-22](https://www.blueletterbible.org/niv/gen/3/14/s_3014) <br>
+- [Ge3:14-21](https://www.blueletterbible.org/niv/gen/3/14/s_3014) <br>
 offspring of woman vs. offspring of serpent <br>
 "eat dust", dust is flesh
 - [1Ti2:13-14](https://www.blueletterbible.org/niv/1ti/2/13/s_1121013)
@@ -2369,7 +2381,7 @@ offspring of woman vs. offspring of serpent <br>
 1. pierced - transgressions(违反)
 2. crushed - iniquities(不义之行为，罪孽)
 3. punished - peace
-4. wounded- healing
+4. wounded - healing
 5. poor - rich
 
 #### ***The serpent*** - animal - no legs after his corruption
@@ -2387,20 +2399,21 @@ although made in the image of God, the moment man sinned, he belonged to the dev
 
 - [Ge2:10-17](https://www.blueletterbible.org/niv/gen/2/10/s_2010)
 - [Ge3:22-24](https://www.blueletterbible.org/niv/gen/3/22/s_3022)
-- the FRIST Adam = the living spirit = the branch
+- the FIRST Adam = the living spirit = the branch
 - the LAST Adam = the life-giving spirit = the vine
 - [Jn6:63](https://www.blueletterbible.org/niv/jhn/6/63/s_1003063)
 
 #### The Garden of Eden is an appropriate place ***for the living being***'s spiritual life
-
-1. the Pishon: wealth
+<!-- XXX 去年考了!吗？ -->
+1. the Pishon: wealth(abundance)
     - [3Jn1:2](https://www.blueletterbible.org/niv/3jo/1/2/s_1166002)
-    - [Dt8:16](https://www.blueletterbible.org/niv/deu/8/16/s_161016), [18](https://www.blueletterbible.org/niv/deu/8/18/s_161018)
+    - [Dt8:16](https://www.blueletterbible.org/niv/deu/8/16/s_161016), [18](https://www.blueletterbible.org/niv/deu/8/18/s_161018) gives you the ability to produce wealth
     - [Eze44:28](https://www.blueletterbible.org/niv/eze/44/28/s_846028)
 
 2. the Gihon: grace
     - [Jn1:16](https://www.blueletterbible.org/niv/jhn/1/16/s_998016)
     - [Eph2:8-9](https://www.blueletterbible.org/niv/eph/2/8/s_1099008)
+    - [2Co13:14](https://www.blueletterbible.org/niv/2co/13/14/s_1091014) Benediction
 
     | the grace of Christ | the love of the Father | the fellowship of the HS |
     | :---: | :---: | :---: |
@@ -2420,6 +2433,12 @@ although made in the image of God, the moment man sinned, he belonged to the dev
     - [Ac4:29-30](https://www.blueletterbible.org/niv/act/4/29/s_1022029)
     - [Ge3:22]()
 
+- The last Adam - obeyed - came to know good and evil
+- The first Adam - disobeyed - came to know good and evil - of the same" [He2:11](https://www.blueletterbible.org/niv/heb/2/11/s_1135011)
+
+- [Eph2:2](https://www.blueletterbible.org/niv/eph/2/2/s_1099002)
+- [Jn7:38-39](https://www.blueletterbible.org/niv/jhn/7/38/s_1004038)
+
 ---
 
 ## Lec 19
@@ -2428,7 +2447,7 @@ although made in the image of God, the moment man sinned, he belonged to the dev
 
 ### 1. the plan for the form of man
 
-- [Ge1:26-31](https://www.blueletterbible.org/niv/gen/1/26/s_1026)
+- [Ge1:26-31](https://www.blueletterbible.org/niv/gen/1/26/s_1026) "Let us make mankind in our image" &rarr; the God the Son
 
 by functions/abilities men are below angels, but by status men are above angels
 
@@ -2436,7 +2455,13 @@ by functions/abilities men are below angels, but by status men are above angels
     - "from the dust of the ground", repeated on Day 6
     -  the man became a living being
 2. creating man and woman [Ge1:27-28](https://www.blueletterbible.org/niv/gen/1/27/s_1027)
+   - "male and female he created them" plural
+   - Adam is not the first human; "Be fruitful and increase in number"
 3. making man ***a living being*** [Ge2:7](https://www.blueletterbible.org/niv/gen/2/7/s_2007)
+   - "God formed a man from the dust of the ground" is the repeat of [Ge1:27](https://www.blueletterbible.org/niv/gen/1/27/s_1027)(day 6 of creation of man), a summary of Genesis 1
+   - "breathed into his nostrils the breath of life" occuring time after, the process of how a man became living being
+   - break the sentence, referring to 2 separate time point
+   - ***PJ: "This is the only way of how we <u>reconcile with science</u> that how men were dated such a long time ago"***
 
 "dust comes from water" [2Pe3:5](https://www.blueletterbible.org/niv/2pe/3/5/s_1159005)
 
@@ -2445,31 +2470,41 @@ by functions/abilities men are below angels, but by status men are above angels
 - given the work of guarding the Garden
 - God gave the Word as his food
 
-- [Ge2:4-7](https://www.blueletterbible.org/niv/gen/2/4/s_2004)
+- [Ge2:4-7](https://www.blueletterbible.org/niv/gen/2/4/s_2004) mentioning Genesis 1
 - [Ge1:12](https://www.blueletterbible.org/niv/gen/1/12/s_1012)
-- [Mal2:15](https://www.blueletterbible.org/nkjv/mal/2/15/s_927015)(NKJV) "make them one (spirit)", "He seeks", "only one" &rarr; godly offspring &rarr; Jesus
+- [Mal2:15](https://www.blueletterbible.org/nkjv/mal/2/15/s_927015)(NKJV) "make them one (spirit)", "He seeks", "only one" &rarr; godly offspring(to come) &rarr; Jesus(as the last Adam)
 
 #### The sons of God and the daughters of men, and the Nephilim
 
-- spiritual being * non-spiritual being &rarr; born non-spiritual being (The power of zero)
-
+- [Ge6:1-4](https://www.blueletterbible.org/niv/gen/6/1/s_6001), [9](https://www.blueletterbible.org/niv/gen/6/9/s_6009)
+- [Ge2:18](https://www.blueletterbible.org/niv/gen/2/18/s_2018), [23-24](https://www.blueletterbible.org/niv/gen/2/23/s_2023)
+- spiritual being * non-spiritual being &rarr; born non-spiritual being
+- The power of zero
+    ```
+    1*1=1
+    1*0=0
+    0*0=0
+    ```
 - the Nephilim: those without spirit, offspring of mixed, "the fallen out", "the fallen", "giants" [Ez32:27](https://www.blueletterbible.org/niv/eze/32/27/s_834027)
 
+??? Is there Nephilim after Noah's flood ???
+<!-- TODO Seth -->
 
-&rarr;Ge1:27 blessed to be fruitful<br>
-&rarr;Ge2:7 Adam picked to have spirit<br>
-&rarr;Ge2:22, comes Eve<br>
-&rarr;Ge3:23-24 Adam Eve kicked out of Garden, return to the ground He was taken from. world is filled with man w/ and w/o spirit<br>
+&rarr;[Ge1:27](https://www.blueletterbible.org/niv/gen/1/27/s_1027) blessed to be fruitful<br>
+&rarr;[Ge2:7](https://www.blueletterbible.org/niv/gen/2/7/s_2007) Adam picked to have spirit<br>
+&rarr;[Ge2:22](https://www.blueletterbible.org/niv/gen/2/22/s_2022), comes Eve<br>
+&rarr;[Ge3:23-24](https://www.blueletterbible.org/niv/gen/3/23/s_3023) Adam Eve kicked out of Garden, return to the ground He was taken from. world is filled with man w/ and w/o spirit, "to work the ground from which he had been taken"<br>
 
 "daughters of men" &rarr; Nephilim,
-God did not create Nephilim
+God did not create Nephilim <!-- XXX: why I wrote this 2023 -->
 
 Does Adam have belly button? Eve?
 Ans: Yes, Adam was descendent of men/women created at Ge1:26. And Eve was from Adam, so no.
 
-- [Ge6:1-4](https://www.blueletterbible.org/niv/gen/6/1/s_6001), [9](https://www.blueletterbible.org/niv/gen/6/9/s_6009)
-- [Ge2:18](https://www.blueletterbible.org/niv/gen/2/18/s_2018), [23-24](https://www.blueletterbible.org/niv/gen/2/23/s_2023)
 - [Ge3:23](https://www.blueletterbible.org/niv/gen/3/23/s_3023) Adam was taken outside of Garden of Eden
+
+#### "Human evelution"
+the first man(not Adam) dated more than 6000 yrs ago
 
 #### Man's work and the (Holy) Spirit's work
 
@@ -2488,12 +2523,14 @@ Ans: Yes, Adam was descendent of men/women created at Ge1:26. And Eve was from A
 #### the person(a)
 
 = intelligence + emotion + free will <br>
-!= a being (a being lives or dies)<br>
+***NOT*** a being (definition: a being lives or dies)<br>
 = a function <br>
+
+"When you resurrect into spiritual body(children of God), the person goes with you"
 
 Tripartite - Nee, Watchman
 
-Watchman Nees' the trichotomy theoty of the constitution of human being (***wrong***)
+Watchman Nees' the trichotomy theory of the constitution of human being (***wrong***)
 
 a living being has:
 - 2 beings: flesh + spirit
@@ -2507,14 +2544,15 @@ the true me = ***the spirit***
 - [2Co4:16](https://www.blueletterbible.org/niv/2co/4/16/s_1082016)
 
 #### The great judgement
-
-- Noah's time: judgement by water - on the flesh formed out of water [2Pe3:5-6](https://www.blueletterbible.org/niv/2pe/3/5/s_1159005)
-- The last day: judgement by the Word(spirit) - on the spirit, Adam's descendants [2Pe3:7](https://www.blueletterbible.org/niv/2pe/3/7/s_1159007)
+- Noah's time: judgement by water - on ***the flesh*** formed out of water [2Pe3:5-6](https://www.blueletterbible.org/niv/2pe/3/5/s_1159005)
+- The last day: judgement by the Word(spirit) - on ***the spirit***, Adam's descendants [2Pe3:7](https://www.blueletterbible.org/niv/2pe/3/7/s_1159007)
 
 ## XII. the righteousness of God
 
 #### Righteousness (law)
 the measuring of judgement. God being righteousness, He is also the judge.
+
+<u>"God will judge"</u>
 
 #### Different interpretations of sin
 |  religious (doctrine) | ethical (social)  | moral (individual)|
@@ -2522,10 +2560,10 @@ the measuring of judgement. God being righteousness, He is also the judge.
 |  greed |  destruction of order |  corruption of the heart |
 |deny the self|coexistence|correct oneself|
 
-**WInterpretation of sin**:
+**interpretation of sin**:
 
 - the Greek thinking &rarr; the separation from the self (humanistic) (anthropocentric)
-- the Hebrew thinking &rarr; the separation from God (theistic) (theocentric)
+- :white_check_mark: the Hebrew thinking &rarr; the separation from God (theistic) (theocentric)
 
 #### The origin of sin is devil
 3 historical points

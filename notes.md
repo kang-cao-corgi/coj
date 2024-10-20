@@ -123,7 +123,7 @@
     - [1. the plan for the form of man](#1-the-plan-for-the-form-of-man)
   - [XII. the righteousness of God](#xii-the-righteousness-of-god)
   - [Lec 20](#lec-20)
-  - [XIII. The spirit of man is transmitted](#xiii-the-spirit-of-man-is-transmitted)
+  - [XIII. The spirit of man is transmitted(inherited)](#xiii-the-spirit-of-man-is-transmittedinherited)
   - [Lec 21](#lec-21)
   - [XIV. The fig leaves and the garments of skin (human civilization and spiritual grace)](#xiv-the-fig-leaves-and-the-garments-of-skin-human-civilization-and-spiritual-grace)
   - [XV. The day God made holy](#xv-the-day-god-made-holy)
@@ -2581,8 +2581,8 @@ the measuring of judgement. God being righteousness, He is also the judge.
 - [Ps121:4](https://www.blueletterbible.org/niv/psa/121/4/s_599004)
 - [Ge3:22-24](https://www.blueletterbible.org/niv/gen/3/22/s_3022)  tree of life ("one of us" &rarr; the Son)
 
-
-As an encompass, the first Adam is the first base point, the last Adam is the second rotating point driven(fulfilling) by the will of God.
+<!-- As an encompass, the first Adam is the first base point, the last Adam is the second rotating point driven(fulfilling) by the will of God.  -->
+First Adam is prepared for the death of last Adam
 
 |  | The first Adam  | The devil| The last Adam|
 |:---:|:---:|:---:|:---:|
@@ -2591,51 +2591,55 @@ As an encompass, the first Adam is the first base point, the last Adam is the se
 |Intent|to be like God|to be like God [Is14:14](https://www.blueletterbible.org/niv/isa/14/14/s_693014)|became like man, lowered himself [Php2:8](https://www.blueletterbible.org/niv/phl/2/8/s_1105008)|
 |Obeyed?|No, ate the fruit|No, left his proper domain [Jude1:6](https://www.blueletterbible.org/niv/jde/1/6/s_1167006)|Yes, died|
 |Result| death, the price of sin [Rm6:23](https://www.blueletterbible.org/niv/rom/6/23/s_1052023)|the ruler of death [He2:14](https://www.blueletterbible.org/niv/heb/2/14/s_1135014)|Died [He2:14](https://www.blueletterbible.org/niv/heb/2/14/s_1135014)|
-|The law|condemned under|accuses sinners [Rev12:10](https://www.blueletterbible.org/niv/rev/12/10/s_1179010)|Fiulfilled righteousness, one act of righteousness [Rm5:18](https://www.blueletterbible.org/niv/rom/5/18/s_1051018)|
+|The law|condemned under|accuses sinners [Rev12:10](https://www.blueletterbible.org/niv/rev/12/10/s_1179010)|Fulfilled righteousness, one act of righteousness [Rm5:18](https://www.blueletterbible.org/niv/rom/5/18/s_1051018)|
 |Redeemed|By grace [Jn16:11](https://www.blueletterbible.org/niv/jhn/16/11/s_1013011)|Judged [1Jn3:8](https://www.blueletterbible.org/niv/1jo/3/8/s_1162008)|redeemed the first Adam [Mt20:28](https://www.blueletterbible.org/niv/mat/20/28/s_949028)|
 |Judged|justified by faith|the evil one [Jn5:27](https://www.blueletterbible.org/niv/jhn/5/27/s_1002027); [12:48](https://www.blueletterbible.org/niv/jhn/12/48/s_1009048)|the righteous Judge [2Ti4:8](https://www.blueletterbible.org/niv/2ti/4/8/s_1129008)|
 |Result of faith| eternal life|eternal punishement|resurrection|
-|Command received|The fruit of the tree of the knoeledge of good and evil|The fruit of the tree of the knoeledge of good and evil|he cross|
+|Command received|The fruit of the tree of the knowledge of good and evil|The fruit of the tree of the knowledge of good and evil|The cross|
 ||Alpha|&larr;&rarr;|Omega|
+
+"His righteouness is proven by His resurrection"
 
 - [Rm5:18](https://www.blueletterbible.org/niv/rom/5/18/s_1051018) died on the cross, being obedient
 
 "knowing good and evil" <br> != normal terms <br> = knowing life / resurrection &rarr; death
 
-- [Lk12:49-50](https://www.blueletterbible.org/niv/luk/12/49/s_985049) death
+- [Lk12:49-50](https://www.blueletterbible.org/niv/luk/12/49/s_985049) JX has been baptized, this "baptism" here refers to His death
 
 #### The Fruit of the tree of life
-- [Ge3:22-23](https://www.blueletterbible.org/niv/gen/3/22/s_3022)
+- [Ge3:22-23](https://www.blueletterbible.org/niv/gen/3/22/s_3022) "eat this fruit of life &rarr; eternal physical life with sin &rarr; death, so God banished Adam from Garden of Eden". [Similar explanation here](https://www.gotquestions.org/tree-of-life.html)
 
 #### ***Satanic*** sin and ***disobedient*** sin
 - Satanic sin cannot be forgiven
 - Disobedient sin can be forgiven
 
-the **sin** htat leads to death - unbelief &rarr; hell <br>
+the **sin** that leads to death - unbelief &rarr; hell <br>
 the **sin** that does <u>not</u> lead to death - disobedience &rarr; curse
 
 Sin = being deceived by the deceiver - unbelief <br>
 The truth = the law that does <u>not</u> deceive - disobedience
 
-- [1Jn5:16-17](https://www.blueletterbible.org/niv/1jo/5/16/s_1164016)
+- [1Jn5:16-17](https://www.blueletterbible.org/niv/1jo/5/16/s_1164016) "death" refers to spiritual death. The sin deprives you from good.
 
-First Adam is a boat, attach to God. When Adam sinned, sin and death entered all men [Rm5:12](https://www.blueletterbible.org/niv/rom/5/12/s_1051012), [1Co15:22](https://www.blueletterbible.org/niv/1co/15/22/s_1077022), the anker broke and boat is going backwards down to a waterfall(hell, lake of fire) [Rev20:15](https://www.blueletterbible.org/niv/rev/20/15/s_1187015). God sent His Son as the last Adam, coming to die and send the Holy Spirit (as another boat going up forward) to ask them to repent [Ac2:38](https://www.blueletterbible.org/niv/act/2/38/s_1020038) and jump off the first boat to join the second boat.
+"Smoking leads not to hell but curse"
 
-## XIII. The spirit of man is transmitted
+First Adam is a boat, attach to God. When Adam sinned, sin and death entered all men [Rm5:12](https://www.blueletterbible.org/niv/rom/5/12/s_1051012), [1Co15:22](https://www.blueletterbible.org/niv/1co/15/22/s_1077022), the anker broke and boat is going backwards down to a waterfall(hell, lake of fire) [Rev20:14-15](https://www.blueletterbible.org/niv/rev/20/14/s_1187014). God sent His Son as the last Adam, coming to die and send the JX(2023 version was Holy Spirit) (as another boat going up forward) to ask them to repent [Ac2:38](https://www.blueletterbible.org/niv/act/2/38/s_1020038) and jump off the first boat to join the second boat.
+
+## XIII. The spirit of man is transmitted(inherited)
 #### (the spirit of man and the redemption of Christ)
 - [Ge2:18-25](https://www.blueletterbible.org/niv/gen/2/18/s_2018)
 
 #### Theories on the transmission(inheritance) of the spirit
 - The pre-existence theory (the spirit exists before conception, "spirit in-stock to be sent by God")
 - Creationism (God creates each spirit on-spot during conception)
-- Traducianism (one spirit is passed down to the next)
+- Traducianism (one spirit is passed down to the next along with the flesh)
 <br><br>
 
-
 one spirit
-- [Mal2:15](https://www.blueletterbible.org/niv/mal/2/15/s_927015)
+- [Mal2:15](https://www.blueletterbible.org/niv/mal/2/15/s_927015), clear
 - [Rm5:12-14](https://www.blueletterbible.org/niv/rom/5/12/s_1051012) Spiritually there is only one spirit, through one Adam (like iris)
 
+"When a fetus becomes a person, we don't know"
 
 "the spirit of Christ aka. the blood of Christ"
 
@@ -2707,11 +2711,13 @@ sanctification: be holy, be set apart from the world, do not live the lust of fl
 - Garments of skin: God's grace
 
 knowing "good and evil" not in moral terms <br>
-In spiritual terms: associated waht they have done, understanding the problem of life and death
+In spiritual terms: associated what they have done, understanding the problem of life and death
+
+"be insensitive about culture for your soul"
 
 #### The fruit:
 1. good for food [Dan1:8](https://www.blueletterbible.org/niv/dan/1/8/s_851008) men loses the right to food, "nobody gets free food"
-2. pleasing to the eye [Ge6:2](https://www.blueletterbible.org/niv/gen/6/2/s_6002) for aesthetics
+2. pleasing to the eye [Ge6:2](https://www.blueletterbible.org/niv/gen/6/2/s_6002) for aesthetics, there's a desire to pursue beauty
 3. desirable for gaining wisdom [Rev13:15-18](https://www.blueletterbible.org/niv/rev/13/15/s_1180015)
 
 #### ***How it applies to the modern life***
@@ -2800,9 +2806,13 @@ the souls, sanctified by the blood of JX, who put effort to resurrect with Chris
 1. God created all things  -- the Creator
 2. He finished His work -- rested -- became the Owner of all things
 
+"work to redeem the souls of men - the Lord"
+
 #### Why we need to keep the Lord's day
 - [Ac20:7](https://www.blueletterbible.org/niv/act/20/7/s_1038007)
 - [Jn17:3](https://www.blueletterbible.org/niv/jhn/17/3/s_1014003) this is eternal life
+
+"On Lord's day Christian gather in His body - the church."
 
 #### How do we keep it holy?
 - [Is58:13-14](https://www.blueletterbible.org/niv/isa/58/13/s_737013)
@@ -2820,7 +2830,7 @@ the souls, sanctified by the blood of JX, who put effort to resurrect with Chris
 |  |  |  |
 |---|---|---|
 | offspring of Adam (offspring of ***Seth***) | living being | ***"Sons of God"*** |
-| Nephilim | no spirit    | "daughters of men" |
+| Nephilim | No spirit    | "daughters of men" |
 |Mixed offspring (of two groups)|No spirit|"daughters of men"|
 
 why son of Seth? <br>
@@ -2829,16 +2839,16 @@ Noah was descendent of <u>neither</u> Cain and Abel.
 ### The descendants of Seth
 
 1. Adam &lrhar; Noah [Ge4:26](https://www.blueletterbible.org/niv/gen/4/26/s_4026); [1Pe3:19-20](https://www.blueletterbible.org/niv/1pe/3/19/s_1154019)
-   - (the original sin) no other commandment received.
+   - (the original sin) no other commandment received (esp. regarding blood)
    - no revelation (faint)
    - no covenant
+   - go to spiritual prison != hell
 2. Noah &lrhar; Moses [Ge9:4](https://www.blueletterbible.org/niv/gen/9/4/s_9004)
    - given commandment, original sin, spiritual sin
 3. Moses &lrhar; Jesus [Ex24:6-8](https://www.blueletterbible.org/niv/exo/24/6/s_74006); [Lev17:11-13](https://www.blueletterbible.org/niv/lev/17/11/s_107011)
    - given commandment(do not eat blood, do shed blood of animal for sacrifice)
 4. Jesus &lrhar; the second coming  [Mt26:27-28](https://www.blueletterbible.org/niv/mat/26/27/s_955027)
-   - given commandment("drink my blood")
-   -
+   - given commandment("drink my blood") &rarr; ("receive my blood")
 
 resurrection starts from Noah
 
@@ -2881,10 +2891,7 @@ In Hades unto 120 years &rarr; to the ***Abyss*** (within Hades)(spiritual space
 
 | saints | believers |
 |:---:|:---:|
-| use their flesh as God|   |   |
-|---|---|
-|   |   |
-'s tools | use their flesh as man |
+| use their flesh as God's tools | use their flesh as man |
 | the ***first*** resurrection | the ***second*** resurrection |
 
 - [Rev4:6-10](https://www.blueletterbible.org/niv/rev/4/6/s_1171006)
@@ -2955,6 +2962,8 @@ the last Adam has no flesh thus no tendency to sin (flesh = life-giving spirit =
 #### Redemption and the forgeveness of sin
 - [Rm8:11](https://www.blueletterbible.org/niv/rom/8/11/s_1054011), [17-20](https://www.blueletterbible.org/niv/rom/8/17/s_1054017)
 
+Chicken egg embryo development - mother hen(HS), individual soul absorbs nutrience nad cracks out of egg.
+
 ---
 
 ## Lec 23
@@ -2985,12 +2994,6 @@ the last Adam has no flesh thus no tendency to sin (flesh = life-giving spirit =
 | PostMillennium | the Millennium - the Second Coming of Jesus - the Great Judgement |
 
 <br>
-
-|A |B|
-|--|--|
-|1<td rowspan="2">3</td>
-|4
-|6|7|
 
 <table>
     <thead>
@@ -3043,20 +3046,22 @@ the last Adam has no flesh thus no tendency to sin (flesh = life-giving spirit =
 | --- | --- |
 | had faith, had sin | the death of Jesus |
 | testified by blood | the death of Jesus |
-| died in sin | sins taken away |
+| lived and died in sin | sins taken away |
 | ***sin of disobedience*** | ***sin of unbelief*** (go to hell) |
 
 the NT people (judged by believing or not)
 - [Jn3:18](https://www.blueletterbible.org/niv/jhn/3/18/s_1000018)
 - [Jn16:9](https://www.blueletterbible.org/niv/jhn/16/9/s_1013009)
-- [Jn11:25-26](https://www.blueletterbible.org/niv/jhn/11/25/s_1008025)
+- [Jn11:25-26](https://www.blueletterbible.org/niv/jhn/11/25/s_1008025) OT vs. NT
 
-the OT people (judged by sin)
+the OT people (judged later by sin)
 - [Rm2:12-16](https://www.blueletterbible.org/niv/rom/2/12/s_1048012)
 - [Mt10:14](https://www.blueletterbible.org/niv/mat/10/14/s_939014)
 
+non-believers after NT has no 2nd chance to live again
+
 ### The sign of Jonah
-- [Mt12:39-41](https://www.blueletterbible.org/niv/mat/12/39/s_941039)
+- [Mt12:39-41](https://www.blueletterbible.org/niv/mat/12/39/s_941039) something greater than Jonah is here &rarr; JX
 - [Mt3:10](https://www.blueletterbible.org/niv/mat/3/10/s_932010)
 - [Mt12:43-45](https://www.blueletterbible.org/niv/mat/12/43/s_941043)
 
@@ -3073,7 +3078,7 @@ The condemnation under the Gospel is seven times weightier than the condemnation
 | --- | --- | --- |
 | Spirit| the spirit of servant | the spirit of the Son |
 | blood| blood of animals| blood of JX|
-| promies| None| the Holy Spirit |
+| promise| None| the Holy Spirit |
 | life-after-death | Abraham's side| Paradise |
 | resurrection | second | first |
 
@@ -3117,6 +3122,8 @@ Grace received (freely given)
 2. inspired by the Holy Spirit
 3. received the commandment to save souls
 
+[Rm1:14-16](https://www.blueletterbible.org/niv/rom/1/14/s_1047014)
+
 ---
 
 ## Lec24
@@ -3126,7 +3133,7 @@ Grace received (freely given)
 )
 
 The dispensation of God =
-God's schedule / timetable devided within history
+God's schedule / timetable / calendar devided within human history
 
 ### The timetable of God
 the Bible = the prophecy of God's schedule = OT + NT ("testament" = will, prophecy)
@@ -3167,6 +3174,8 @@ X testified by Y
 - [Mt10:19-20](https://www.blueletterbible.org/niv/mat/10/19/s_939019)
 - [Rev22:18-19](https://www.blueletterbible.org/niv/rev/22/18/s_1189018)
 
+"keep the truth, defend the truth, teach the truth."
+
 ### The second coming of JX and its signs (the apocalypse)
 
 - [Mt24:33-36](https://www.blueletterbible.org/niv/mat/24/33/s_953033)
@@ -3178,7 +3187,7 @@ X testified by Y
 2. the Son of Man comes before we finish going through the cities of Isarael
     - [Mt10:23](https://www.blueletterbible.org/niv/mat/10/23/s_939023), [26-27](https://www.blueletterbible.org/niv/mat/10/26/s_939026)
 
-3. when the number of those sealed among Israel reaches 144,100
+3. when the number of those sealed among Israel reaches 144,000
     - [Rev7:4-8](https://www.blueletterbible.org/niv/rev/7/4/s_1174004)
     - [Rev14:3-5](https://www.blueletterbible.org/niv/rev/14/3/s_1181003)
     - [Rm8:17-25](https://www.blueletterbible.org/niv/rom/8/17/s_1054017)
@@ -3262,7 +3271,7 @@ the "antichrist", "rebellion", apostasy(rebelion) / defection
    - [Rev13:3-6](https://www.blueletterbible.org/niv/rev/13/3/s_1180003), [16-17](https://www.blueletterbible.org/niv/rev/13/16/s_1180016)
    - [Rev14:9-11](https://www.blueletterbible.org/niv/rev/14/9/s_1181009)
 
-7. the great tribulation [Rev6:12-17](https://www.blueletterbible.org/niv/rev/6/12/s_1173012), [9:5-6](https://www.blueletterbible.org/niv/rev/9/5/s_1176005)
+7. the great tribulation 大灾难 [Rev6:12-17](https://www.blueletterbible.org/niv/rev/6/12/s_1173012), [9:5-6](https://www.blueletterbible.org/niv/rev/9/5/s_1176005)
 
 8. God shortens suffering of ***the elect*** [Mt24:21-22](https://www.blueletterbible.org/niv/mat/24/21/s_953021), [Rm11:28](https://www.blueletterbible.org/niv/rom/11/28/s_1057028)
 
@@ -3303,7 +3312,7 @@ the "antichrist", "rebellion", apostasy(rebelion) / defection
 ## I. The theory of angels
 
 - [1Co4:19-20](https://www.blueletterbible.org/niv/1co/4/19/s_1066019)
-- [Ac1:8](https://www.blueletterbible.org/niv/act/1/8/s_1019008)
+- [Ac1:8](https://www.blueletterbible.org/niv/act/1/8/s_1019008) HS comes with power and present
 
 rev HS -> power
 "power" = angels being revealed
@@ -3311,8 +3320,9 @@ rev HS -> power
 ### 1. The beginning of angels
 
 - [Eze28:15](https://www.blueletterbible.org/niv/eze/28/15/s_830015) <br>
-  - "blameless" -> (is fulfilling the role) "perfect" (KJV)
-  - "you" = angels ("stars") = "living spirits", live by the life-giving spirit (God)
+  - "blameless" -> (is fulfilling the role) "perfect" (KJV) (different from God's perfectness)
+    - "when a creature functions as God's plan/intention, it is perfetct"
+  - "you" (as creature) = angels ("stars") = "living spirits", live by the life-giving spirit (God).
   - wickedness surfaces
 
 #### How do they live?
@@ -3358,14 +3368,14 @@ man to live = ***faith*** (obedience)
 
 - [He1:7](https://www.blueletterbible.org/niv/heb/1/7/s_1134007)
 - [Jude1:9](https://www.blueletterbible.org/niv/jde/1/9/s_1167009)
-- [Rev22:8-9](https://www.blueletterbible.org/niv/rev/22/8/s_1189008)
+- [Rev22:8-9](https://www.blueletterbible.org/niv/rev/22/8/s_1189008) "some part can be taken literally, but the rest is very visionary"
 
 ### 2. The characteristics of angels
 
 1. spiritual beings [He1:14](https://www.blueletterbible.org/niv/heb/1/14/s_1134014)
 1. no gender [Mt22:30](https://www.blueletterbible.org/niv/mat/22/30/s_951030), [Ge19:5](https://www.blueletterbible.org/niv/gen/19/5/s_19005), [7-8](https://www.blueletterbible.org/niv/gen/19/7/s_19007), [Jos5:13-14](https://www.blueletterbible.org/niv/jos/5/13/s_192013)
 
-1. the ***person*** is retained in the spirit (the moment when they are made)
+1. their ***person*** is retained in the spirit (the moment when they are made)
 
 1. superior to men (in conditions)
     - surpass time and space to some extent [He2:6-7](https://www.blueletterbible.org/niv/heb/2/6/s_1135006)
@@ -3390,11 +3400,12 @@ man to live = ***faith*** (obedience)
 
 #### 3.1 One's own angels
 
-- [Mt18:10](https://www.blueletterbible.org/niv/mat/18/10/s_947010)
+- [Mt18:10](https://www.blueletterbible.org/niv/mat/18/10/s_947010) angels came with HS in work
 - [Ac12:15](https://www.blueletterbible.org/niv/act/12/15/s_1030015)
   - (review, 1 or 2, highly chance for test)
   - we are 2 beings, living 2 lives
 - [Rev8:3-4](https://www.blueletterbible.org/niv/rev/8/3/s_1175003)
+    - be careful what we pray for
     - the Holy Spirit &rarr; I must obey &rarr; re-live the public life(ministry) of Christ (live like Christ)
     - angels &rarr; I must use them &rarr; to help me to re-live that life
     - [Rm12:6-7](https://www.blueletterbible.org/niv/rom/12/1/s_1058001) different gifts to answer the calling to be used according to the HS
@@ -3402,8 +3413,10 @@ man to live = ***faith*** (obedience)
     the person of God -> Holy Spirit
 
 #### The number of angels varies by the size of one's ***spiritual*** activity
-- [2Ki6:15](https://www.blueletterbible.org/niv/2ki/6/1/s_319001) an example
+- [2Ki6:15](https://www.blueletterbible.org/niv/2ki/6/15/s_319015) an example
 - [Ac1:11](https://www.blueletterbible.org/niv/act/1/11/s_1019011) Jx had many helping angels
+
+In history, miracles were done by angels.
 
 #### Angels help saints
 - [Da9:23](https://www.blueletterbible.org/niv/dan/9/23/s_859023), [10:12-14](https://www.blueletterbible.org/niv/dan/10/12/s_860012)
@@ -3417,9 +3430,12 @@ man to live = ***faith*** (obedience)
 - [Ps35:5-6](https://www.blueletterbible.org/niv/psa/35/5/s_513005)
 - TODO: Peter's vision of unclean animals
 
-The life of saints = angels ministering(侍候) them<br>
-curse: there is not fellowship/connection between you and God <br>
-learn and pray for the knowledge/wisdom/power of the word
+    God sees you 24/7, so are angels
+
+#### The life of saints = angels ministering(侍候) them<br>
+curse: there is no fellowship/connection between you and God <br>
+learn and pray for the knowledge/wisdom/power of the word, pray for the preacher <br>
+
 
 #### 3.2 Jesus and angels
 - His birth
@@ -3428,7 +3444,7 @@ learn and pray for the knowledge/wisdom/power of the word
 - the devil's temptation
     - [Mt4:1-11](https://www.blueletterbible.org/niv/mat/4/1/s_933001)
     - [1Co10:13](https://www.blueletterbible.org/niv/1co/10/13/s_1072013) lead us not into temptation, tempation is expected but should be withstood
-    - [Lk22:41-44](https://www.blueletterbible.org/niv/luk/22/41/s_995041)
+    - [Lk22:41-44](https://www.blueletterbible.org/niv/luk/22/41/s_995041) JX was in flesh, He had to pray to obey Father's will, then angel came
 - His power
     - [Lk5:17](https://www.blueletterbible.org/niv/luk/5/17/s_978017)
     - [Ac10:38](https://www.blueletterbible.org/niv/act/10/38/s_1028038)
@@ -3518,7 +3534,7 @@ learn and pray for the knowledge/wisdom/power of the word
 
 |   |   |
 |---|---|
-| Principalities(王国)  |  ideologies, arguments, political, idealism, ("ism") |
+| Principalities("ism"s, communisim)  |  ideologies, arguments, political, idealism, ("ism") |
 | powers| political, religious powers|
 | rulers of darkness| idolatry, sorcery, psychic, pagan religions|
 |evil spirits in the heavenly places| cults, deceiving spirits|
@@ -3529,13 +3545,16 @@ learn and pray for the knowledge/wisdom/power of the word
     - socialism
     - democracy
     - materialism(唯物主义)
+    - atheism
 2. powers:
     - political power
     - religious power (ecclesiastical (与基督教会有关的) authority) (the chuch of the state/nation)
+    - made thru doctrines, gather people with the same concensus - demoniations
 3. rulers of darkness:
     - Jim Jones and the Peoples Temple (1955 - 1978)
     - Heaven's Gate (1974 - 1997) "UFO cult"
-4. Evil spirits in heavenly places - church
+4. Evil spirits in heavenly places
+   - church
 
 - [Job1:6](https://www.blueletterbible.org/niv/job/1/6/s_437006)
 - [Eph6:13-18](https://www.blueletterbible.org/niv/eph/6/13/s_1103013)
@@ -3543,13 +3562,23 @@ learn and pray for the knowledge/wisdom/power of the word
 
 "I need to know my enemies"
 
-
 ```mermaid
-graph TD;
-    A-->B;
-    A-->C;
-    B-->D;
-    C-->D;
+flowchart TD
+A(SATAN <a href='https://www.blueletterbible.org/niv/jhn/12/31/s_1009031'>Jn12:31</a>, <a href='https://www.blueletterbible.org/niv/jhn/16/11/s_1013011'>16:11</a> ) --- WHERE(SYNAGOGUE OF SATAN <a href='https://www.blueletterbible.org/niv/rev/3/9/s_1170009'>Rev3:9</a> ; <a href='https://www.blueletterbible.org/niv/mar/3/22-26/s_960022'>Mk3:22-26</a> );
+WHERE --> W1("PRINCIPALITIES (Oppression)");
+WHERE --> W2("POWERS (Persecution)");
+WHERE --> W3("RULERS OF DARKNESS ");
+WHERE --> W4("EVIL SPIRITS IN HEAVENLY
+PLACES")
+W1 --> W11(Ideologies)
+W1 --> W12(Constitutions)
+W2 --> W21(Political power)
+W2 --> W22(Religious power)
+W3 --> W31("Demons (Ignorance)")
+W3 --> W32("False prophet (Idolatry)")
+W4 --> W41("Spirit of cult (Rebellion)")
+W4 --> W42("Deceiving spirits (Fall away)")
+
 ```
 
 ### 7. Deceiving spirits
@@ -3568,7 +3597,7 @@ How to deceiving spirits develop
 ##### King Saul
 - [1Sa15:24](https://www.blueletterbible.org/niv/1sa/15/24/s_251024)
 - [1Sa16:14](https://www.blueletterbible.org/niv/1sa/16/14/s_252014)
-- [1Sa18:7-11](https://www.blueletterbible.org/niv/1sa/18/7-11/s_254007)
+- [1Sa18:7-11](https://www.blueletterbible.org/niv/1sa/18/7-11/s_254007) evil spirits came from God
 - [1Sa19:22-24](https://www.blueletterbible.org/niv/1sa/19/22/s_255022)
 - [1Sa28:6-7](https://www.blueletterbible.org/niv/1sa/28/6/s_264006)
 
@@ -3587,7 +3616,7 @@ How to deceiving spirits develop
 
 - [2Pe2:15-16](https://www.blueletterbible.org/niv/2pe/2/15/s_1158015)
 - [Eze14:9-10](https://www.blueletterbible.org/niv/eze/14/9/s_816009)
-- [Is66:3-4](https://www.blueletterbible.org/niv/isa/66/3/s_745003) e.g. Judas
+- [Is66:3-4](https://www.blueletterbible.org/niv/isa/66/3/s_745003) They chose their own ways, e.g. Judas
 
 #### Works of deceiving spirits
 - [Rm1:28-31](https://www.blueletterbible.org/niv/rom/1/28/s_1047028)

@@ -3663,7 +3663,7 @@ How to deceiving spirits develop
 
 #### 1.1. Sheol/Hades
 1. cast down from heaven
-[Is14:12-15](https://www.blueletterbible.org/niv/isa/14/12/s_693012) (sheol in NKJV), [Eze28:17](https://www.blueletterbible.org/nkjv/eze/28/17/s_830017), [Rev12:8-9](https://www.blueletterbible.org/niv/rev/12/8/s_1179008) sheol/hades != hell
+[Is14:12-15](https://www.blueletterbible.org/niv/isa/14/12/s_693012) (sheol in [NKJV](https://www.blueletterbible.org/nkjv/isa/14/15/s_693015)), [Eze28:17](https://www.blueletterbible.org/nkjv/eze/28/17/s_830017), [Rev12:8-9](https://www.blueletterbible.org/niv/rev/12/8/s_1179008) sheol/hades != hell
 1. where the devil exists
     - [2Pe2:4](https://www.blueletterbible.org/niv/2pe/2/4/s_1158004)
     "hell" = darkness / depts of the pit (right now)
@@ -3689,14 +3689,15 @@ How to deceiving spirits develop
 - [Is8:19](https://www.blueletterbible.org/niv/isa/8/19/s_687019) mediums + spiritists &rarr; living people speak on be half of the dead (be possessed by the spirits of the dead)
 - [Ac16:16](https://www.blueletterbible.org/niv/act/16/16/s_1034016)
 
-mediums = the spirit of the dead = the spirit of the medium(spiritist) = demons
+<!-- mediums = the spirit of the dead = the spirit of the medium(spiritist) = demons -->
+mediums = the dead = demon spiritist = demons
 
 - [1Sa28:5-7](https://www.blueletterbible.org/niv/1sa/28/5/s_264005), [13-14](https://www.blueletterbible.org/niv/1sa/28/13/s_264013), [19](https://www.blueletterbible.org/niv/1sa/28/19/s_264019)
 - [1Sa31:4](https://www.blueletterbible.org/niv/1sa/31/4/s_267004)
 - [Ps106:28-29](https://www.blueletterbible.org/niv/psa/106/28/s_584028)
 - [1Co10:20](https://www.blueletterbible.org/niv/1co/10/20/s_1072020)
 
-sacrifices to lifeless gods = sacrifices to pagans/demons = all to the dead
+sacrifices to lifeless gods = sacrifices of pagans to demons = all to the dead
 
 "the dead" = the demons = the spirit of dead unbelievers
 
@@ -3742,6 +3743,10 @@ Men - the person is developed from the flesh
 
 #### 3.1. They display the character and the knowledge they had in life
 - [Nu14:18](https://www.blueletterbible.org/niv/num/14/18/s_131018)
+
+angels(deceving spirits)(do not possess bodies) != demons(possess bodies)
+
+XXX: Satan has fallen with a 1/3 of angels, what is the form of these fallen angels?
 
 they are not transcendent
 
@@ -3869,7 +3874,7 @@ The name of Yeshua = the name of the Father, the Son, the Holy Spirit = the Name
 
 - [Lk10:17-20](https://www.blueletterbible.org/niv/luk/10/17/s_983017)
 - [Lk13:32](https://www.blueletterbible.org/niv/luk/13/32/s_986032) 3 days &rarr; 3 years
-- [Mk1:21-27](https://www.blueletterbible.org/niv/mar/1/21/s_958021)
+- [Mk1:21-27](https://www.blueletterbible.org/niv/mar/1/21/s_958021) no records in OT to drive out demons
 
 #### Spiritual authority
 - [Mk3:13-15](https://www.blueletterbible.org/niv/mar/3/13/s_960013)
@@ -3904,7 +3909,8 @@ The name of Yeshua = the name of the Father, the Son, the Holy Spirit = the Name
 
   | "the spirit of God" | "the spirit of Christ" "the sprit of the Word" |
   | --- | --- |
-  | the person of God (HS) | the blood of Christ |
+  | the person of God (HS) | the blood of Christ, the incarnate Word, The flesh + the blood of JX |
+
 
 - [Jn12:47-48](https://www.blueletterbible.org/niv/jhn/12/47/s_1009047) pay attention to His words
 - [Ac1:2](https://www.blueletterbible.org/niv/act/1/2/s_1019002)
@@ -4042,6 +4048,7 @@ baptism = uniting with Christ = the act of belonging to Christ = fulfilling righ
 "hitchhiking" with Yeshua
 
 #### 4.4 Baptism with the Holy Spirit
+staying in the wholeness of HS, testify the righteousness
 - [Ac1:5](https://www.blueletterbible.org/niv/act/1/5/s_1019005)
 
 ***John*** testified the righteousness of JX with ***water*** <br>
@@ -4098,11 +4105,10 @@ baptism = uniting with Christ = the act of belonging to Christ = fulfilling righ
 |worked (temporarily)|the counselor|
 |***a shadow of &rarr;***|the true form|
 |inspired|the person|
-|one-time|***forvever***, to not leave|
+|one-time|***forever***, to not leave|
 |outside the body|inside the body/soul|
 
 - [Jn7:38-39](https://www.blueletterbible.org/niv/jhn/7/38/s_1004038)
-
 
 The counselor HS after JX died and ascened to the heaven.
 
@@ -4138,7 +4144,7 @@ faith by revelation &rarr; faith living by signs, things that only God can do, t
 - [Ac2:1-11](https://www.blueletterbible.org/niv/act/2/1/s_1020001)
   - verse 6-11, other tongues(mother tongues) &rarr; languages ??? "the new kind of language that no one receives in the world unless you receive the HS"
   - they can mock the sound but they cannot continue
-  - "verse 6-11, to understand it, they need gift of interpretation. They received gifts of both speaking tongues and interpret tongues" (my comment: 不是基于字面意义理解的说方言)
+  - "verse 6-11, to understand it, they need gift of interpretation. They received gifts of both speaking tongues and interpret tongues" (my comment: 不是基于字面意义理解的说方言) (2024: This only sounds a way to justify "in our own tongues")
 
 - [1Co14:2](https://www.blueletterbible.org/niv/1co/14/2/s_1076002) "If I myself don't understand it, it's okay"?
 
@@ -4147,6 +4153,8 @@ faith by revelation &rarr; faith living by signs, things that only God can do, t
     - [Ac2:11](https://www.blueletterbible.org/niv/act/2/11/s_1020011), [10:46](https://www.blueletterbible.org/niv/act/10/46/s_1028046)
 1. uttering(说) mysteries with the spirit
     - [1Co14:2](https://www.blueletterbible.org/niv/1co/14/2/s_1076002), [14-15](https://www.blueletterbible.org/niv/1co/14/14/s_1076014), [27-28](https://www.blueletterbible.org/niv/1co/14/27/s_1076027), [39-40](https://www.blueletterbible.org/niv/1co/14/39/s_1076039) in gathering, speak in tongue is not allowed unless interpreted
+
+PJ: "Speaking in tongues is a universal gift", refer to the events in Acts, they always speak in tongues
 
 #### 2. Gifts of healing
 - [1Co12:8-11](https://www.blueletterbible.org/niv/1co/12/8/s_1074008), [28](https://www.blueletterbible.org/niv/1co/12/28/s_1074028)
@@ -4270,15 +4278,15 @@ NT: sin &rarr; "a missed arrow"
     1. to think that he could live on his own
     1. to think that he could be equal to God
     1. blinded by his own pride
-1. Satan deceived man [Ge3:4](https://www.blueletterbible.org/niv/gen/3/4/s_3004), [1Co1:3](https://www.blueletterbible.org/niv/1co/1/3/s_1063003), [Rm7:11](https://www.blueletterbible.org/niv/rom/7/11/s_1053011)
-1. the image of God was deceived [Ge3:13](https://www.blueletterbible.org/niv/gen/3/13/s_3013)
-1. Jesus was not deceived [Mt4:3-11](https://www.blueletterbible.org/niv/mat/4/3/s_933003) <br>the reason why God gave the Law: ***do not be deceived***
-1. the Church is the image of God that is not deceived
+2. Satan deceived man [Ge3:4](https://www.blueletterbible.org/niv/gen/3/4/s_3004), [2Co11:3](https://www.blueletterbible.org/niv/2co/11/3/s_1089003), [Rm7:11](https://www.blueletterbible.org/niv/rom/7/11/s_1053011)
+3. the image of God was deceived [Ge3:13](https://www.blueletterbible.org/niv/gen/3/13/s_3013)
+4. Jesus was not deceived [Mt4:3-11](https://www.blueletterbible.org/niv/mat/4/3/s_933003) <br>the reason why God gave the Law: ***do not be deceived***
+5. the Church is the image of God that is not deceived
 
 ## II. The fruit of the knowledge of good and evil and the perfect script of the gospel
 the fruit of knowledge of good and evil
 - [Ge1:26](https://www.blueletterbible.org/niv/gen/1/26/s_1026)
-- [Ge22:17](https://www.blueletterbible.org/niv/gen/22/17/s_22017)
+- [Ge2:17](https://www.blueletterbible.org/niv/gen/2/17/s_2017)
 - [Ge3:15](https://www.blueletterbible.org/niv/gen/3/15/s_3015), [22](https://www.blueletterbible.org/niv/gen/3/22/s_3022) "one of us" &rarr; the Son who will experience death
 
 #### the fall of the devil
@@ -4288,7 +4296,7 @@ the fruit of knowledge of good and evil
 ## III. Proclaiming the gospel
 ### 1. Proclaiming the gospel is proclaiming the purpose of God
 
-#### The Law vs the Gospel
+#### The Law vs. the Gospel
 - the law - through Moses - decrees and the law
 - ***the Gospel*** - through JX - the works of JX - ***grace and truth***
 
@@ -4299,6 +4307,8 @@ the fruit of knowledge of good and evil
 "Gospel-centered" (Antinomianism) (lawlessness)
 - [Rm5:13](https://www.blueletterbible.org/niv/rom/5/13/s_1051013), [20](https://www.blueletterbible.org/niv/rom/5/20/s_1051020)
 - [Mt5:17-20](https://www.blueletterbible.org/niv/mat/5/17/s_934017)
+
+The law is the mirror that tells me I am still a sinner.
 
 #### The law is good
 - [Lk18:18-23](https://www.blueletterbible.org/niv/luk/18/18/s_991018)

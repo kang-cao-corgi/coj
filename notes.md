@@ -244,6 +244,7 @@
   - [V. God mediating the gospel through ***characters***](#v-god-mediating-the-gospel-through-characters)
     - [the history of characters](#the-history-of-characters)
   - [VI. ***Healing*** mediates the gospel](#vi-healing-mediates-the-gospel)
+    - [1. Healing is God's character](#1-healing-is-gods-character)
     - [2. Healing is God's power](#2-healing-is-gods-power)
     - [3. Healing is encountering God](#3-healing-is-encountering-god)
     - [4. healing is a portion of salvation](#4-healing-is-a-portion-of-salvation)
@@ -4337,6 +4338,8 @@ the men and angels are created for different purposes
 - [Eph2:11-15](https://www.blueletterbible.org/niv/eph/2/11/s_1099011)
 
 ### 3. The attitude for receiving the gospel
+&rarr; repentence(turn back to God)
+
 the cross is ***not*** a symbol of the gospel
 - [Gal3:13](https://www.blueletterbible.org/niv/gal/3/13/s_1094013)
 
@@ -4379,6 +4382,7 @@ the cross is ***not*** a symbol of the gospel
 - [1Co16:19](https://www.blueletterbible.org/niv/1co/16/19/s_1078019)
 - [Php4:2-3](https://www.blueletterbible.org/niv/phl/4/2/s_1107002)
 - [Col4:15](https://www.blueletterbible.org/niv/col/4/15/s_1111015)
+- [Ac2:17-18](https://www.blueletterbible.org/niv/act/2/17/s_1020017)
 
 <br>
 
@@ -4416,7 +4420,7 @@ the cross is ***not*** a symbol of the gospel
 ### 1. Definition
 1. Encountering God, kissing the hand of God
     - [Ge32:29-30](https://www.blueletterbible.org/niv/gen/32/29/s_32029)
-    - to worship (greek: to fall at another's feet, to prostratem kneel, to meet with God closely)
+    - to worship (Greek (proskuneo): to fall at another's feet, to prostrate kneel, to meet with God closely)
     - to fall &rarr; to surrender
 
 1. Service is carrying our one's duty
@@ -4435,7 +4439,7 @@ Three elements of sacrifice:
 - [He10:4](https://www.blueletterbible.org/niv/heb/10/4/s_1143004)
 
 #### 2. the living sacrifice of NT
-- [Rm12:1](https://www.blueletterbible.org/niv/rom/12/1/s_1058001)
+- [Rm12:1](https://www.blueletterbible.org/niv/rom/12/1/s_1058001) living sacrifice: spiritual worship - fellowship
 
 #### Worship in spirit and in truth
 - [Jn4:20-26](https://www.blueletterbible.org/niv/jhn/4/20/s_1001020)
@@ -4446,7 +4450,7 @@ the northen kingdom (Israel - 10 tribes), worship at The high place of bethel - 
 the southen kingdom (Juda - 2 tribes), worship in the temple of Jeruselem - do accroding to the law(truth)
 
 #### Moses saw the back of God
-- [Ex33:20-23](https://www.blueletterbible.org/niv/exo/33/20/s_83020)
+- [Ex33:20-23](https://www.blueletterbible.org/niv/exo/33/20/s_83020) my glory passes by &rarr; angels
 - [He10:19-25](https://www.blueletterbible.org/niv/heb/10/19/s_1143019)
 
 ### 3. The history of worship
@@ -4482,6 +4486,7 @@ spiritual doesn't mean you do outside-of-body things
 
 1. the corporate worship
     - [1Co14:26-33](https://www.blueletterbible.org/niv/1co/14/26/s_1076026)
+    - communal, orderly
 
 ### 5. The content of worship
 1. holiness
@@ -4516,6 +4521,9 @@ Commandment <u>before</u> the death of JX| Commandment <u>after</u> the resurrec
 Greek &rarr; "to immerse"
 - [Mt28:19-20](https://www.blueletterbible.org/niv/mat/28/19/s_957019)
 - [Ac16:29-34](https://www.blueletterbible.org/niv/act/16/29/s_1034029)
+
+#### origin of sprinkling
+Constantine from Roman Catholic
 
 #### Importance of baptism
 1. Yeshua Himself was baptized [Mt3:11](https://www.blueletterbible.org/niv/mat/3/11/s_932011), [13-17](https://www.blueletterbible.org/niv/mat/3/13/s_932013)
@@ -4608,7 +4616,7 @@ Israel and its separation from gentiles
         - Two days of giving first fruits
         - the day the sheaf of he first barley grain harvest was given
         - the day te sheaf of the first wheat grain was given (50th day after giving the first barley grain) (at 50th days after Jesus' resurrection, the day is the Pentecost &rarr; 1st wheat grain &rarr; the Holy Spirit)
-    1. feast of Trumpets (Rosh Hashanah [Lev23:24](https://www.blueletterbible.org/niv/lev/23/24/s_113024) - the 1st day of the 7th month (9th + 10th)
+    1. feast of Trumpets (Rosh Hashanah) [Lev23:24](https://www.blueletterbible.org/niv/lev/23/24/s_113024) - the 1st day of the 7th month (9th + 10th)
     1. the day of Atonement (Yom Kippus [Lev25:9-12](https://www.blueletterbible.org/niv/lev/25/9/s_115009) - the 10th day of the 7th month
 
     |sin offering   |the day of atonemnet  |
@@ -4616,9 +4624,9 @@ Israel and its separation from gentiles
     |each year   | once a year  |
     |an ordinary sacrifice that everyone gave|the savrifice given as a nation|
 
-1. the feast of Tabernacles (Sukkot) [Lev23:33-44](https://www.blueletterbible.org/niv/lev/23/33/s_113033) - the 15th day of the 7th month
-1. the feast of Ingathering [Lev23:16](https://www.blueletterbible.org/niv/lev/23/16/s_113016)
-1. the Sabbath (Shabbat) [Ex20:8-11](https://www.blueletterbible.org/niv/exo/20/8/s_70008) keep it holy
+   6. the feast of Tabernacles (Sukkot) [Lev23:33-44](https://www.blueletterbible.org/niv/lev/23/33/s_113033) - the 15th day of the 7th month
+   7. the feast of Ingathering [Lev23:16](https://www.blueletterbible.org/niv/lev/23/16/s_113016)
+   8. the Sabbath (Shabbat) [Ex20:8-11](https://www.blueletterbible.org/niv/exo/20/8/s_70008) keep it holy
 
 ### The essence of the santuary is holiness
 - [He9:10](https://www.blueletterbible.org/niv/heb/9/10/s_1142010)
@@ -4654,7 +4662,7 @@ the book of *Hebrews* illustrates the completion of the heart of the Old Testmen
 
 1. the life of flesh is in its blood - shedding it is surrendering life [Lev17:11](https://www.blueletterbible.org/niv/lev/17/11/s_107011)
 1. Offering blood at the altar is returning life to God
-1. The blood of Jesus is the life that men must drink [Mt26:28](https://www.blueletterbible.org/niv/mat/26/28/s_955028); [Jn6:56](https://www.blueletterbible.org/niv/jhn/6/56/s_1003056)
+1. The blood of Jesus is the life that men(unblievers) must drink [Mt26:28](https://www.blueletterbible.org/niv/mat/26/28/s_955028); [Jn6:56](https://www.blueletterbible.org/niv/jhn/6/56/s_1003056)
 1. Man without the Spirit of Christ is not a man of God [Rm8:9](https://www.blueletterbible.org/niv/rom/8/9/s_1054009)
 
 ### 1. The covenant of blood
@@ -4692,9 +4700,9 @@ The blood of Christ &rarr; redeem &rarr; sanctifies/cleanses &rarr; life
 ---
 ## Lec 40
 ## V. God mediating the gospel through ***characters***
-1. God does <u>not</u> deliver the Gospel through angels
-1. Men are God's fellow workers, partners - [1Co3:5](https://www.blueletterbible.org/niv/1co/3/5/s_1065005)
-1. God used the prophets - [Jn3:30](https://www.blueletterbible.org/niv/jhn/3/30/s_1000030), [Mt17:5](https://www.blueletterbible.org/niv/mat/17/5/s_946005)
+1. God does <u>not</u> deliver the Gospel through angels [Jn15:15](https://www.blueletterbible.org/niv/jhn/15/15/s_1012015), [Rm8:15](https://www.blueletterbible.org/niv/rom/8/15/s_1054015)
+2. Men are God's fellow workers, partners - [1Co3:5](https://www.blueletterbible.org/niv/1co/3/5/s_1065005)
+3. God used the prophets - [Jn3:30](https://www.blueletterbible.org/niv/jhn/3/30/s_1000030), [Mt17:5](https://www.blueletterbible.org/niv/mat/17/5/s_946005)
 
 ### the history of characters
 1. The genealogy of Jesus is an anomaly - [Mt1](https://www.blueletterbible.org/niv/mat/1/1/s_930001)
@@ -4733,17 +4741,17 @@ The blood of Christ &rarr; redeem &rarr; sanctifies/cleanses &rarr; life
 - considers the suffering with Christ as joy [He11:24-25](https://www.blueletterbible.org/niv/heb/11/24/s_1144024)
 - ***not ashamed*** [Php1:20-22](https://www.blueletterbible.org/niv/phl/1/20/s_1104020)
 - works for the profit of the Master [Mt25:14-30](https://www.blueletterbible.org/niv/mat/25/14/s_954014)
-- has given up to be praised [Lk17:7-10](https://www.blueletterbible.org/niv/luk/17/7/s_990007)
+- has given up to be praised as man[Lk17:7-10](https://www.blueletterbible.org/niv/luk/17/7/s_990007)
 
 ## VI. ***Healing*** mediates the gospel
-1. healing is God's character
+### 1. Healing is God's character
 - [Ex15:26](https://www.blueletterbible.org/niv/exo/15/26/s_65026)
 - [Mal4:2](https://www.blueletterbible.org/niv/mal/4/2/s_929002)
 - [Mt8:3](https://www.blueletterbible.org/niv/mat/8/3/s_937003)
 - [Is53:5](https://www.blueletterbible.org/niv/isa/53/5/s_732005)
 - [1Pe2:24](https://www.blueletterbible.org/niv/1pe/2/24/s_1153024)
 
-The sick = sinner [Jn9:1-7](https://www.blueletterbible.org/niv/jhn/9/17/s_1006017) <br>
+The sick = sinner [Jn9:1-7](https://www.blueletterbible.org/niv/jhn/9/1/s_1006001) <br>
 The ground = dust = man's flesh (cursed [Ge3:17](https://www.blueletterbible.org/niv/gen/3/17/s_3017))
 - JX is ***the light of life*** [Jn8:12](https://www.blueletterbible.org/niv/jhn/8/12/s_1005012)
 - Healing is the public work, the visible ***redemption*** of Jesus [Ps147:2-3](https://www.blueletterbible.org/niv/psa/147/2/s_625002), [Mt9:2-7](https://www.blueletterbible.org/niv/mat/9/2/s_938002)
@@ -4818,8 +4826,8 @@ being inspired/filled/moved by the HS
 - [Jn3:8](https://www.blueletterbible.org/niv/jhn/3/8/s_1000008)
 
 the writing expression varies by spiritual inspiration:<br>
-"declares the lord" [is66:2](https://www.blueletterbible.org/niv/isa/66/2/s_745002) - direct <br>
-"the word of the load came to me" [Jer1:4](https://www.blueletterbible.org/niv/jer/1/4/s_746004) - speaker <br>
+"declares the LORD" [Is66:2](https://www.blueletterbible.org/niv/isa/66/2/s_745002) - direct <br>
+"the word of the LORD came to me" [Jer1:4](https://www.blueletterbible.org/niv/jer/1/4/s_746004) - speaker <br>
 "I looked" [Eze10:1](https://www.blueletterbible.org/niv/eze/10/1/s_812001) - prophetic
 
 - [Mt13:14-15](https://www.blueletterbible.org/niv/mat/13/14/s_942014)
@@ -5058,10 +5066,10 @@ The Hebrew Bible (Tanakt) and the Masoretic Text (MT)
 ---
 ## Lec 43
 ## IX. Man (flesh) mediates the gospel
+- [Php3:20](https://www.blueletterbible.org/niv/phl/3/20/s_1106020)
+
 ### 1. the plan of God
 - [Rm1:1](https://www.blueletterbible.org/niv/rom/1/1/s_1047001) set apart
-
-
 
 God uses man
 - [Ge1:27](https://www.blueletterbible.org/niv/gen/1/27/s_1027) - man to rule over all things
@@ -5074,9 +5082,8 @@ God uses man
 | by parent's faith | ***By one's own faith*** |
 
 #### 1. man was created to prepare the way for JX - [Mk1:2-3](https://www.blueletterbible.org/niv/mar/1/2/s_958002)
-<br>
 
-#### man provided the way for
+#### Man prepared the way for
 1. JX's birth [Ge3:15](https://www.blueletterbible.org/niv/gen/3/15/s_3015), [18:14](https://www.blueletterbible.org/niv/gen/18/14/s_18014), [Mt1:21](https://www.blueletterbible.org/niv/mat/1/21/s_930021)
 2. JX's death [Rm5:12-14](https://www.blueletterbible.org/niv/rom/5/12/s_1051012)
 3. the first of Adam's sin was prepared for the last Adam's death [He2:9](https://www.blueletterbible.org/niv/heb/2/9/s_1135009)
@@ -5087,39 +5094,39 @@ God uses man
 - [Jn1:14](https://www.blueletterbible.org/niv/jhn/1/14/s_998014)
 
 the immaculate conception dogma is satanic
-1. the condition of JX's flesh is the same as that of man
-2. men killed JX
+#### 3. the condition of JX's flesh is the same as that of man
+#### 4. men killed JX
 
 ### 2. the victory of God
-- Rm1:1
 1. the judgement on this world arrived
     - [Jn12:31](https://www.blueletterbible.org/niv/jhn/12/31/s_1009031)
-1. the prince of this world will be driven out
+2. the prince of this world will be driven out
     - [Jn16:11](https://www.blueletterbible.org/niv/jhn/16/11/s_1013011)
-1. through His resurrection JX overcame the world
+3. through His resurrection JX overcame the world
     - [1Co15:55-57](https://www.blueletterbible.org/niv/1co/15/55/s_1077055)
     the world
     - the kingdom of the devil: JX destroyed
     - men: JX saved [Jn3:16](https://www.blueletterbible.org/niv/jhn/3/16/s_1000016), [12:47](https://www.blueletterbible.org/niv/jhn/12/47/s_1009047)
-    - materuals: JX nullified [1Jn2:15](https://www.blueletterbible.org/niv/1jo/2/15/s_1161015)
-1. the devil was banished from heaven
-1. the devil attacks those who betrayed him
+    - materials: JX nullified [1Jn2:15](https://www.blueletterbible.org/niv/1jo/2/15/s_1161015)
+4. the devil was banished from heaven
+5. the devil attacks those who betrayed him
     - [Rev12:17](https://www.blueletterbible.org/niv/rev/12/17/s_1179017), [13:1](https://www.blueletterbible.org/niv/rev/13/1/s_1180001)
+
 ### 3. Gods sends saints out
 - [Jn17:18-19](https://www.blueletterbible.org/niv/jhn/17/18/s_1014018)
-1. God pours out the HS on the felsh
-    - [Ac2:17](https://www.blueletterbible.org/niv/act/2/17/s_1020017), [33](https://www.blueletterbible.org/niv/act/2/33/s_1020033)
+1. God pours out the HS on the flesh
+    - [Ac2:17](https://www.blueletterbible.org/niv/act/2/17/s_1020017), [33](https://www.blueletterbible.org/niv/act/2/33/s_1020033) spirit of Christ - blood of JX
     - [Rm8:9](https://www.blueletterbible.org/niv/rom/8/9/s_1054009), [14-16](https://www.blueletterbible.org/niv/rom/8/14/s_1054014)
 
-| HS | the spirit of Christ | the spirit of adoption |
-|---|---|---|
-|   the spirit of God [Rm8:9](https://www.blueletterbible.org/niv/rom/8/9/s_1054009)| the spirit of the word (Rm8:9)  |the gospel [Rm8:15](https://www.blueletterbible.org/niv/rom/8/15/s_1054015)|
-|the person of God|the blood of Christ|the spirit of the Son|
-|"the Spirit of adoption"|the Gospel [Rm8:15](https://www.blueletterbible.org/niv/rom/8/15/s_1054015)|the spirit of the Son|
+   | HS | the spirit of Christ | the spirit of adoption |
+   |---|---|---|
+   |   the spirit of God [Rm8:9](https://www.blueletterbible.org/niv/rom/8/9/s_1054009)| the spirit of the word (Rm8:9)  |the gospel [Rm8:15](https://www.blueletterbible.org/niv/rom/8/15/s_1054015)|
+   |the person of God|the blood of Christ|the spirit of the Son|
+   |"the Spirit of adoption"|the Gospel [Rm8:15](https://www.blueletterbible.org/niv/rom/8/15/s_1054015)|the spirit of the Son|
 
-positions of those who believe: apostles, saints, believers
-- [1Co1:2](https://www.blueletterbible.org/niv/1co/1/2/s_1063002)
-- [Jn16:8-11](https://www.blueletterbible.org/niv/jhn/16/8/s_1013008)
+   positions of those who believe: apostles, saints, believers
+   - [1Co1:2](https://www.blueletterbible.org/niv/1co/1/2/s_1063002)
+   - [Jn16:8-11](https://www.blueletterbible.org/niv/jhn/16/8/s_1013008)
 2. the HS uses the flesh
     - [1Jn5:16-17](https://www.blueletterbible.org/niv/1jo/5/16/s_1164016)
     - [Rm8:18-21](https://www.blueletterbible.org/niv/rom/8/18/s_1054018)<br>
@@ -5128,19 +5135,19 @@ positions of those who believe: apostles, saints, believers
     - [He6:4-6](https://www.blueletterbible.org/niv/heb/6/4/s_1139004)
     - [Jude1:9](https://www.blueletterbible.org/niv/jde/1/9/s_1167009)
     - [Rev2:6](https://www.blueletterbible.org/niv/rev/2/6/s_1169006)
-1. sickness attacks the flesh
+3. sickness attacks the flesh
     - "you will eat dust" [Ge3:14](https://www.blueletterbible.org/niv/gen/3/14/s_3014)
     - "the flesh and body are spent" [Pr5:11](https://www.blueletterbible.org/niv/pro/5/11/s_633011)
     - like the grace life withers [1Pe1:24](https://www.blueletterbible.org/niv/1pe/1/24/s_1152024)
-1. no flesh is righteous
+4. no flesh is righteous
     - [Jer25:31](https://www.blueletterbible.org/niv/jer/25/31/s_770031)
     - [Rm7:18](https://www.blueletterbible.org/niv/rom/7/18/s_1053018)
     - [Gal2:6](https://www.blueletterbible.org/niv/gal/2/6/s_1093006)
     - [1Ti4:8](https://www.blueletterbible.org/niv/1ti/4/8/s_1123008)
-1. return the righteousness of flesh to God
+5. return the righteousness of flesh to God
     - [Rm6:12-13](https://www.blueletterbible.org/niv/rom/6/12/s_1052012)
     - [1Pe4:2](https://www.blueletterbible.org/niv/1pe/4/2/s_1155002)
-1. the flesh is talent
+6. the flesh is talent
     - [Mt25:14-30](https://www.blueletterbible.org/niv/mat/25/14/s_954014)
 
     the flesh is an opportunity
@@ -5149,11 +5156,11 @@ positions of those who believe: apostles, saints, believers
     - to be born as children of God [Jn3:5](https://www.blueletterbible.org/niv/jhn/3/5/s_1000005)
     - to work for reward, the crown [2Ti4:6-8](https://www.blueletterbible.org/niv/2ti/4/6/s_1129006)
 
-1. the flesh transforms to an immortal body
+7. the flesh transforms to an immortal body
     - [1Co15:53](https://www.blueletterbible.org/niv/1co/15/53/s_1077053)
     life and the life-after-death in the parable of the rich man and Lazarus [Lk16:24-26](https://www.blueletterbible.org/niv/luk/16/24/s_989024), [31](https://www.blueletterbible.org/niv/luk/16/31/s_989031)
 
-1. the human flesh is the crown of all creation
+8. the human flesh is the crown of all creation
     the human flesh is the greatest creation
 
 - [He3:1](https://www.blueletterbible.org/niv/heb/3/1/s_1136001), [8-11](https://www.blueletterbible.org/niv/heb/3/8/s_1136008)

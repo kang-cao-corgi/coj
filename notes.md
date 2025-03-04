@@ -267,7 +267,7 @@
     - [2. the victory of God](#2-the-victory-of-god)
     - [3. Gods sends saints out](#3-gods-sends-saints-out)
   - [Lec 44. ***Materials*** mediate the gospel](#lec-44-materials-mediate-the-gospel)
-  - [God created all things](#god-created-all-things)
+    - [God created all things](#god-created-all-things)
     - [1.The fruit of the tree of  the knowledge of good and evil indicates the limits to materials](#1the-fruit-of-the-tree-of--the-knowledge-of-good-and-evil-indicates-the-limits-to-materials)
     - [2. God taught the principle of using materials](#2-god-taught-the-principle-of-using-materials)
     - [3. the material you give to God is surely rewarded with materials](#3-the-material-you-give-to-god-is-surely-rewarded-with-materials)
@@ -287,11 +287,11 @@
     - [3. the positive sides to language](#3-the-positive-sides-to-language)
     - [4. negative side to language](#4-negative-side-to-language)
   - [3. languages protect nations](#3-languages-protect-nations)
-    - [1. the confusion of language has a great meaning in protecting the Hebrew language (Ex34:15)](#1-the-confusion-of-language-has-a-great-meaning-in-protecting-the-hebrew-language-ex3415)
+    - [1. the confusion of language has a great meaning in preserving the Hebrew language (Ex34:15)](#1-the-confusion-of-language-has-a-great-meaning-in-preserving-the-hebrew-language-ex3415)
     - [2. the providence of the Hebrew people (Dt7:2)](#2-the-providence-of-the-hebrew-people-dt72)
     - [4. language unifies the world](#4-language-unifies-the-world)
     - [8. discipling language](#8-discipling-language)
-    - [9. the language of the modern people of faith](#9-the-language-of-the-modern-people-of-faith)
+    - [9. the language of the fatith of the modern people](#9-the-language-of-the-fatith-of-the-modern-people)
 - [Lec 47](#lec-47)
   - [Chapter 6 the theory of the church (ecclesiology)](#chapter-6-the-theory-of-the-church-ecclesiology)
   - [I. the tabernacle (the temple, the sanctuary)](#i-the-tabernacle-the-temple-the-sanctuary)
@@ -5147,7 +5147,7 @@ the immaculate conception dogma is satanic
 5. return the righteousness of flesh to God
     - [Rm6:12-13](https://www.blueletterbible.org/niv/rom/6/12/s_1052012)
     - [1Pe4:2](https://www.blueletterbible.org/niv/1pe/4/2/s_1155002)
-6. the flesh is talent
+6. the flesh is talent(bags of gold)
     - [Mt25:14-30](https://www.blueletterbible.org/niv/mat/25/14/s_954014)
 
     the flesh is an opportunity
@@ -5155,6 +5155,7 @@ the immaculate conception dogma is satanic
     - to repent [He12:27](https://www.blueletterbible.org/niv/heb/12/27/s_1145027)
     - to be born as children of God [Jn3:5](https://www.blueletterbible.org/niv/jhn/3/5/s_1000005)
     - to work for reward, the crown [2Ti4:6-8](https://www.blueletterbible.org/niv/2ti/4/6/s_1129006)
+    #### the greatest condemnation under the Gospel is: Laziness
 
 7. the flesh transforms to an immortal body
     - [1Co15:53](https://www.blueletterbible.org/niv/1co/15/53/s_1077053)
@@ -5166,11 +5167,13 @@ the immaculate conception dogma is satanic
 - [He3:1](https://www.blueletterbible.org/niv/heb/3/1/s_1136001), [8-11](https://www.blueletterbible.org/niv/heb/3/8/s_1136008)
 - [Mt11:28](https://www.blueletterbible.org/niv/mat/11/28/s_940028)
 - [He3:12-13](https://www.blueletterbible.org/niv/heb/3/12/s_1136012)
+- [2Co5:15](https://www.blueletterbible.org/niv/2co/5/15/s_1083015)
+- [Col1:24](https://www.blueletterbible.org/niv/col/1/24/s_1108024)
 - [2Ti4:6-8](https://www.blueletterbible.org/niv/2ti/4/6/s_1129006)
 
 ---
 ## Lec 44. ***Materials*** mediate the gospel
-## God created all things
+### God created all things
 - [Ps24:1](https://www.blueletterbible.org/niv/psa/24/1/s_502001)
 
 ### 1.The fruit of the tree of  the knowledge of good and evil indicates the limits to materials
@@ -5289,32 +5292,31 @@ the immaculate conception dogma is satanic
 ### Summary
 - How you handle money is related to your faith
 - faith and wealth must be completely separated [Lk19:22](https://www.blueletterbible.org/niv/luk/19/22/s_992022)
+- [Lk16:9](https://www.blueletterbible.org/niv/luk/16/9/s_989009), [11](https://www.blueletterbible.org/niv/luk/16/11/s_989011), [Mt9:9](https://www.blueletterbible.org/niv/mat/9/9/s_938009), [Dt8:1-11]
 
 ---
 ## Lec 45
 
 ## XI. language mediates the gospel
-|   |   ||
+|   |   |   |
 |---|---|---|
 |The Word (Spirit)  |God's self-manifestation   |with God [Jn1:1](https://www.blueletterbible.org/niv/jhn/1/1/s_998001)|
 |Word (sound)|carries the Word|The voice crying out in the desert|
 |Word (spiritual)|the power that moves the soul|the power of life in the soul [He4:11](https://www.blueletterbible.org/niv/heb/4/11/s_1137011)|
 - [Mt12:33-37](https://www.blueletterbible.org/niv/mat/12/33/s_941033)
 
-Christians have the position of words - 1Ti3:8
-- Ac10:44
-- Rm10:13-14
-- 1Co1:21
-- Gal3:2
-- Tit1:3
+Christians have the position of words - [1Ti3:8](https://www.blueletterbible.org/niv/1ti/3/8/s_1122008)
+- [Ac10:44](https://www.blueletterbible.org/niv/act/10/44/s_1028044)
+- [Rm10:13-14](https://www.blueletterbible.org/niv/rom/10/13/s_1056013)
+- [1Co1:21](https://www.blueletterbible.org/niv/1co/1/21/s_1063021)
+- [Gal3:2](https://www.blueletterbible.org/niv/gal/3/2/s_1094002)
+- [Tit1:3](https://www.blueletterbible.org/niv/tit/1/3/s_1130003)
 
-Holy language the Christian language
-<br>
+#### Holy language the Christian language
 - the language of faith
 - the language of obedience
 - the language of determination
-<br>
-church: a group of holy language
+#### church: a group of holy language
 
 ### 1. Biblical ethics on Words
 1. God is the Word
@@ -5324,25 +5326,25 @@ church: a group of holy language
     1. God
     1. His self-existence
     1. life
-    1. God created the world with (Jn1:3)
-    1. eternal life(Jn6:68)
-    1. spiritual (Jn6:63)
-    1. became flesh (Jn1:14)
-    1. those who heard confirm (He2:4)
-    1. heals (ps107:20)
-    1. rescues (Ps107:20)
-    1. commands blessing (Nu23:20)
+    1. God created the world with [Jn1:3](https://www.blueletterbible.org/niv/jhn/1/3/s_998003)
+    1. eternal life[Jn6:68](https://www.blueletterbible.org/niv/jhn/6/68/s_1003068)
+    1. spiritual [Jn6:63](https://www.blueletterbible.org/niv/jhn/6/63/s_1003063)
+    1. became flesh [Jn1:14](https://www.blueletterbible.org/niv/jhn/1/14/s_998014)
+    1. those who heard confirm [He2:4](https://www.blueletterbible.org/niv/heb/2/4/s_1135004)
+    1. heals [ps107:20](https://www.blueletterbible.org/niv/psa/107/20/s_585020)
+    1. rescues [Ps107:20](https://www.blueletterbible.org/niv/psa/107/20/s_585020)
+    1. commands blessing [Nu23:20](https://www.blueletterbible.org/niv/num/23/20/s_140020)
 1. the human society is a language society
-    - Ge11:1-9
+    - [Ge11:1-9](https://www.blueletterbible.org/niv/gen/11/1/s_11001)
 ### 2. language of faith fixes faith and seizes faithlessness
 ### 3. the language of faith is repeating the words of JX
-- Lk22:7-13
+- [Lk22:7-13](https://www.blueletterbible.org/niv/luk/22/7/s_995007)
 
 ---
 # Lec 46
 ### 3. the positive sides to language
 1. carries knowledge ideaology and will
-1. runs swiftly (Ps147:15)
+1. runs swiftly [Ps147:15](https://www.blueletterbible.org/niv/psa/147/15/s_625015)
 1. can have many listeners simultaneously
 1. communicates thoughts
 1. leads the listener to obey
@@ -5365,11 +5367,11 @@ church: a group of holy language
 1. can be helpful to society
 
 ## 3. languages protect nations
-### 1. the confusion of language has a great meaning in protecting the Hebrew language (Ex34:15)
+### 1. the confusion of language has a great meaning in preserving the Hebrew language (Ex34:15)
 
 ### 2. the providence of the Hebrew people (Dt7:2)
 
-|   |   |||
+|   |   |   |   |
 |---|---|---|---|
 |OT   |Hebrew   |the solidarity of IX|the manger with baby JX|
 |NT|Greek|scattered to all people|the donkey carrying JX|
@@ -5381,7 +5383,7 @@ church: a group of holy language
 1. the dream of Alexander the great to unify the world was a fulfillment of the dispensation of God
 1. the British colonialism
 1. contradictions of language
-    1. the conversation with the wild animal was the beginning of contradictions
+    1. the conversation with the wild animal was the beginning of contradictions [Ge3:1]()
     1. language governs action
     language has to be downward
         - Ps29:4
@@ -5393,7 +5395,7 @@ church: a group of holy language
         - Ge17:11
         - Ex12:13
         - Nu23:19
-            1. Gpd keeps His covenant (Jer1:12, 50:5)
+            1. God keeps His covenant (Jer1:12, 50:5)
             1. God remembers His covenant (Ex6:5)
             1. The covenant of God is a covenant of salt (2Ch13:5)
     1. where God put his covenant
@@ -5404,9 +5406,9 @@ church: a group of holy language
         - the new covenant is written in the heart (he8:10; 2Co3:3)
         - covenant is made with the chosen
         - God carries out the covenant (Lev26:9, 1Ki8:23, Mal3:6, Ps89:34)
-        JX is the mediator of the new covenant He8:6
+        - JX is the mediator of the new covenant He8:6
     1. the language of JX and the gospel
-        1. the authority of language (Mk1:22, 29)
+        1. the authority of His language (Mk1:22, 29)
         1. no limits to where He taught
             - the synagogue (Mt9:35)
             - mountainside (Mt5:1)
@@ -5417,9 +5419,9 @@ church: a group of holy language
         1. no limits to when He taught
             - Sabbath (Lk4:31)
             - Weekday (Lk5:17)
-            - Every day (lk19:47)
+            - Every day (Lk19:47)
             - Daytime (Jn11:4)
-            - Nighttime (Jn3:2)
+            - Nightime (Jn3:2)
         1. His teaching aimed at various people
             - the disciples (Mk7:28)
             - Multitudes (Mk5:1)
@@ -5428,6 +5430,7 @@ church: a group of holy language
         1. various teaching methods
             - Teaching (Mk1:22)
             - Parables (Mk4:2)
+            - Many things (Mk6:34)
 
     1. JX taught and preached (Mt4:17)
     1. disciples must continue the work of JX
@@ -5437,20 +5440,20 @@ church: a group of holy language
         1. driving out demons etc (Mt10:7-8)
     1. the gospel of JX is not in words but in power 1Co4:19-20
         1. the Lord confirmed His word by signs (Mk16:20)
-        1. tje JS workds in those who preach (Ac10:44-46)
+        1. the JS works in those who preach (Ac10:44-46)
         1. pray for power to follow
         - Ac4:29-31
-    1. woe to those who do not preach the gospel
+    1. woe to those who do not preach the gospel 1Co9:16
         1. the gospel is with all one's life (Ac20:24)
-        1. wit ha deonstration of the spirit's power (1Co2:4)
-        1. no hindrance in preaching (1Co9:12)
+        1. with a demonstration of the spirit's power (1Co2:4)
+        1. no hinderance in preaching (1Co9:12)
         1. paying back the debt (Rm1:14)
         1. the power of salvation (Rm1:16)
-        1. know the mystery of the gospel to preach (Eph1:7, 6:19)
+        1. know the mystery of the gospel to preach (Eph1:17, 6:19)
         1. freely giving (Mt10:8, 1Co9:18)
         1. entrusted with the gospel (1Th2:4)
     1. the lips of those who preach the gospel must be set apart
-        1. no false on lops (mal2:6)
+        1. no false on lips (mal2:6)
         1. lips must preserve knowldge (Mal2:7)
         1. no unwholesome talk (Eph4:29)
         1. peacemakers full of grace, seasoned with salt (Col4:6)
@@ -5460,7 +5463,7 @@ church: a group of holy language
     1. lies will be judged
         1. hipocritical liars (1Ti4:2)
         1. the tongue corrupts the whole person (Jas3:6)
-        1. all liars to hell Rrev21:8)
+        1. all liars to hell (rev21:8)
 
 ### 8. discipling language
 1. words are the expression of the heart
@@ -5468,35 +5471,40 @@ church: a group of holy language
 1. when preaching do not use words that you do not normally use 1Co2:1-2
 1. pray for the power of words Eph1:9
 
-### 9. the language of the modern people of faith
+### 9. the language of the fatith of the modern people
 1. the language of JX is the model
-1. the HS is the resource
-    - Jn14:26
-    - Ac4:29
-1. the words of God and the spirit of
-    JX spoke - what He headrdd - from the Father (Jn15:15)
-    Hs spoke - what He heard - from the Father (Jn16:13-14)
+   - [Mk9:23](https://www.blueletterbible.org/niv/mar/9/23/s_966023)
+2. the HS is the source
+    - [Jn14:26](https://www.blueletterbible.org/niv/jhn/14/26/s_1011026)
+    - [Ac4:29](https://www.blueletterbible.org/niv/act/4/29/s_1022029)
+3. the words of God and the spirit of
+    JX spoke - what He headrdd - from the Father [Jn15:15](https://www.blueletterbible.org/niv/jhn/15/15/s_1012015)
+    Hs spoke - what He heard - from the Father [Jn16:13-14](https://www.blueletterbible.org/niv/jhn/16/13/s_1013013)
     Disciples speak 0 what
 
 
 1. the language of faith drives away the force of Satan
-    - Rev1:16, 2:12
+   - [Rev1:16](https://www.blueletterbible.org/niv/rev/1/16/s_1168016)
+   - [Rev2:12](https://www.blueletterbible.org/niv/rev/2/12/s_1169012)
 
 1. the language of faith heals the wounded
-    - Ps107:20, 147:3
-1. the word enteres the soul
-    - preach to those who need help
+    - [Ps107:20](https://www.blueletterbible.org/niv/psa/107/20/s_585020), [147:3](https://www.blueletterbible.org/niv/psa/147/3/s_625003)
 
-1. the words of faith must be used at home, work, anywhere
-1. the language of faith is guarantted by the HS
-1. the languages of faith is the active attitude towards God and the true confession
+1. the word enters the soul
+    - preach to those who need help
+    - use the words of faith at home, work, anywhere
+      - [Mt10:11-13](https://www.blueletterbible.org/niv/mat/10/11/s_939011)
+      - [2Co3:3](https://www.blueletterbible.org/niv/2co/3/3/s_1081003)
+2. the words of faith must be used at home, work, anywhere
+3. the language of faith is guarantted by the HS
+4. the languages of faith is the active attitude towards God and the true confession
     1. faith is made in language
-    1. even if they do not reveice we must keep speaking the owrds of faith
-    1. must believe in the words of faith
-1. the language of faith threatens the devil
+    2. even if they do not reveice we must keep speaking the owrds of faith
+    3. must believe in the words of faith
+5. the language of faith threatens the devil
     1. the language of faith must be clear
-    1. the preacher is a teacher of the excellent language of faith
-    1. the language of faith is excellent faith
+    2. the preacher is a teacher of the excellent language of faith
+    3. the language of faith is excellent faith
 
 ---
 # Lec 47
@@ -5512,9 +5520,9 @@ church: a group of holy language
 |  the exodus | the first covenant  |thw new covenant|
 |the blood of the Passover <br> &darr; |the blood of lamb (the altar) <br> &darr;| the blood of JX <br> &darr;|
 |the Red sea (water) <br> &darr;| the basin <br> &darr; | baptism <br> &darr;|
-|the desert life <br> &darr;| the HP (service) <br> &darr;| the church life <br> &darr;|
-|the land of Canaan| the MHP| the Father's house|
-<br>
+|the desert life <br> &darr;| the Holy Place (service) <br> &darr;| the church life <br> &darr;|
+|the land of Canaan| the Most Holy Place| the Father's house|
+
 - [Ex12:21](https://www.blueletterbible.org/niv/exo/12/21/s_62021)
 - [Ex14:22](https://www.blueletterbible.org/niv/exo/14/22/s_64022)
 - [Dt8:2](https://www.blueletterbible.org/niv/deu/8/2/s_161002)
@@ -5576,7 +5584,7 @@ the new covenant
 |the man high priest   |the eternal high priest   |
 |---|---|
 |   death|prevented him from continuous service (He7:23) |
-|eternal (He7:24-25)|external mhp, holy with no sin |
+|eternal the MHP (He7:24-25)|external mhp, holy with no sin |
 |(He9:25) | entered the true heaven (He7:26, 9:24)|
 |weakness| perfect|
 
@@ -5591,7 +5599,7 @@ the new covenant
 - [He9:12-14](https://www.blueletterbible.org/niv/heb/9/12/s_1142012)
 
 ## III. The meaning of the temple
-1. the tabernacle in the desert represents the presenece of Christ
+1. the tabernacle in the desert represents the presence of Christ
 1. the principle of descerning good and evil
 1. the mediator between God and man
     - [Eze8:7-8](https://www.blueletterbible.org/niv/eze/8/7/s_810007)
@@ -5610,6 +5618,7 @@ the new covenant
 
 ## IV. The essence of the church
 ### 1. The church of Jesus
+the church that God bought with His blood
 - [Mt16:17](https://www.blueletterbible.org/niv/mat/16/17/s_945017)
 - [Ac20:28](https://www.blueletterbible.org/niv/act/20/28/s_1038028)
 (Greek church: to be called out, gathered in God's name and chosen as His body) <br>
@@ -5632,11 +5641,11 @@ the church:
 
     ***the church*** = the body of Christ [Eph1:23](https://www.blueletterbible.org/niv/eph/1/23/s_1098023) <br>
     ***saints*** = members of the body of Christ, "members of His body" [Eph5:30](https://www.blueletterbible.org/niv/eph/5/30/s_1102030) <br>
-    the church = the body of Christ = members = gathering = assembly
+    the church = the body of Christ = members = gathering = assembly = the ***only*** mediator between God and saints
 
-    Gathering = assembly
+    ##### Gathering = assembly
     - [Mt18:20](https://www.blueletterbible.org/niv/mat/18/20/s_947020)
-    - [He2:12](https://www.blueletterbible.org/niv/heb/2/12/s_1135012) the stength of Christians comes from it
+    - [He2:12](https://www.blueletterbible.org/niv/heb/2/12/s_1135012) the strength of Christians comes from it
     - [Ac4:28-31](https://www.blueletterbible.org/niv/act/4/28/s_1022028), [9:31](https://www.blueletterbible.org/niv/act/9/31/s_1027031) receiving the HS takes place in it
     - [Ac1:15](https://www.blueletterbible.org/niv/act/1/15/s_1019015), [12:12](https://www.blueletterbible.org/niv/act/12/12/s_1030012)
     - [He10:25](https://www.blueletterbible.org/niv/heb/10/25/s_1143025)
@@ -5651,34 +5660,37 @@ the church:
 1. evangelism [2Ti4:2-5](https://www.blueletterbible.org/niv/2ti/4/2/s_1129002)
 1. education [1Co4:17](https://www.blueletterbible.org/niv/1co/4/17/s_1066017)
 
+---
+---
+
 #### 1. the words of the HS can only be heard in the church
-- Rev2:1-3:22
+- [Rev2:1-3:22](https://www.blueletterbible.org/niv/rev/2/1/s_1169001)
 #### 2. only in the church is the sealing of the HS
-- Ac2:1-4
+- [Ac2:1-4](https://www.blueletterbible.org/niv/act/2/1/s_1020001)
 #### 3. only in the church one can wash his hands and feet (sanctification)
-- washing at the water basin in the temple courtyard (Ex38:3, 40:12)
-- the washing of rebirth (Tit3:5)
-- JX washed the feet of His disciples (Jn13:8)
-- washed by the Word (Eph5:26-27)
-    - Nu19:9
-    - He9:13
+- washing at the water basin in the temple courtyard [Ex38:3](https://www.blueletterbible.org/niv/exo/38/3/s_88003), [40:12](https://www.blueletterbible.org/niv/exo/40/12/s_90012)
+- the washing of rebirth [Tit3:5](https://www.blueletterbible.org/niv/tit/3/5/s_1132005)
+- JX washed the feet of His disciples [Jn13:8](https://www.blueletterbible.org/niv/jhn/13/8/s_1010008)
+- washed by the Word [Eph5:26-27](https://www.blueletterbible.org/niv/eph/5/26/s_1102026)
+    - [Nu19:9](https://www.blueletterbible.org/niv/num/19/9/s_136009)
+    - [He9:13](https://www.blueletterbible.org/niv/heb/9/13/s_1142013)
 #### 4. only the offering given in the name of Yeshua is acknowledged
-- Lev1:13
-- Mt8:4
-- Lk7:38
+- [Lev1:13](https://www.blueletterbible.org/niv/lev/1/13/s_91013)
+- [Mt8:4](https://www.blueletterbible.org/niv/mat/8/4/s_937004)
+- [Lk7:38](https://www.blueletterbible.org/niv/luk/7/38/s_980038)
 #### 5. only the paryer done in the Church is answered
-- Mt18:18-19
-- Mk11:17
-- Ac3:1
-- Ac2:42
-- Ac12:12
-- Ac16:16
+- [Mt18:18-19](https://www.blueletterbible.org/niv/mat/18/18/s_947018)
+- [Mk11:17](https://www.blueletterbible.org/niv/mar/11/17/s_968017)
+- [Ac3:1](https://www.blueletterbible.org/niv/act/3/1/s_1021001)
+- [Ac2:42](https://www.blueletterbible.org/niv/act/2/42/s_1020042)
+- [Ac12:12](https://www.blueletterbible.org/niv/act/12/12/s_1030012)
+- [Ac16:16](https://www.blueletterbible.org/niv/act/16/16/s_1034016)
 #### 6. only the service done in the Church is received
-- Php3:3
+- [Php3:3](https://www.blueletterbible.org/niv/phl/3/3/s_1106003)
 #### 7. one can grow only in the church
-- Eph4:16
+- [Eph4:16](https://www.blueletterbible.org/niv/eph/4/16/s_1101016)
 #### 8. the name of the Father, of the Son, and of the HS is in the Church
-- Mt28:19-20
+- [Mt28:19-20](https://www.blueletterbible.org/niv/mat/28/19/s_957019)
 
 the function of the Temple = the function of Christ = the function of the Church = the function of saints
 
@@ -5689,15 +5701,15 @@ missions: sending the gospel to distant nations
 1. go and make disciples
 1. baptize them
 1. teach them to obey
-1. lead them to receive the HS (Ac2:1-4, 8:14-17, 10:44-48; 1Co12:8-10)
+1. lead them to receive the HS [Ac2:1-4](https://www.blueletterbible.org/niv/act/2/1/s_1020001), [8:14-17](https://www.blueletterbible.org/niv/act/8/14/s_1026014), [10:44-48](https://www.blueletterbible.org/niv/act/10/44/s_1028044); [1Co12:8-10](https://www.blueletterbible.org/niv/1co/12/8/s_1074008)
 
 ### SENT
-- Mt28:19-20
-- Ac13:1-3
+- [Mt28:19-20](https://www.blueletterbible.org/niv/mat/28/19/s_957019)
+- [Ac13:1-3](https://www.blueletterbible.org/niv/act/13/1/s_1031001)
 
 #### the pringciple of sending
-- Ac14:27
-- Ac15:3-4, 22
+- [Ac14:27](https://www.blueletterbible.org/niv/act/14/27/s_1032027)
+- [Ac15:3-4](https://www.blueletterbible.org/niv/act/15/3/s_1033003), [22](https://www.blueletterbible.org/niv/act/15/22/s_1033022)
 
 ### 4. the authority of the church
 the church = the bride of Christ

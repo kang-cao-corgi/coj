@@ -5,7 +5,7 @@
     - [Do not re-interpret](#do-not-re-interpret)
 - [Chapter 1: How to look at the Bible - the "lens"](#chapter-1-how-to-look-at-the-bible---the-lens)
     - [The purpose of reading the Bible](#the-purpose-of-reading-the-bible)
-  - [I.The Bible begins with a story of **3 types of spiritual beings** that are entirely different in their essence.](#ithe-bible-begins-with-a-story-of-3-types-of-spiritual-beings-that-are-entirely-different-in-their-essence)
+  - [I. The Bible begins with a story of **3 types of spiritual beings** that are entirely different in their essence.](#i-the-bible-begins-with-a-story-of-3-types-of-spiritual-beings-that-are-entirely-different-in-their-essence)
     - [1. The purpose of the Bible is for man to know God](#1-the-purpose-of-the-bible-is-for-man-to-know-god)
     - [2. approaches to read the Bible](#2-approaches-to-read-the-bible)
     - [2. men are destroyed for not knowing God](#2-men-are-destroyed-for-not-knowing-god)
@@ -26,10 +26,9 @@
     - [The causal relationship between culture and faith](#the-causal-relationship-between-culture-and-faith)
     - [Heaven](#heaven)
     - [III. The Bible differentiates ***three heavens*** that are distinct in level and describes the events that develop in them](#iii-the-bible-differentiates-three-heavens-that-are-distinct-in-level-and-describes-the-events-that-develop-in-them)
-    - [Three different heavens](#three-different-heavens)
     - [Hell](#hell)
   - [Lec 4](#lec-4)
-  - [III. Religion, albeit unclearly, demonstrates the common organization and deeds of faith](#iii-religion-albeit-unclearly-demonstrates-the-common-organization-and-deeds-of-faith)
+  - [III. Religion, albeit(尽管) unclearly, demonstrates the common organization and deeds of faith](#iii-religion-albeit尽管-unclearly-demonstrates-the-common-organization-and-deeds-of-faith)
     - [Christianity is ***not*** a religion](#christianity-is-not-a-religion)
     - [Religiosity vs. Faith](#religiosity-vs-faith)
     - [1. God gave men not religion but His Son](#1-god-gave-men-not-religion-but-his-son)
@@ -41,10 +40,10 @@
   - [V. The Bible and faith](#v-the-bible-and-faith)
   - [Lec 6](#lec-6)
     - [2. the Bible emphasizes obedience by faith](#2-the-bible-emphasizes-obedience-by-faith)
-    - [what is faith?](#what-is-faith)
+    - [What is faith?](#what-is-faith)
   - [example of Moses not entering Canaan](#example-of-moses-not-entering-canaan)
     - [What is faith](#what-is-faith-1)
-    - [3. Those who absolutely trust the Bible as the Word of god have Godly authority Jn5:24](#3-those-who-absolutely-trust-the-bible-as-the-word-of-god-have-godly-authority-jn524)
+    - [3. Those who absolutely trust the Bible as the Word of God have Godly authority Jn5:24](#3-those-who-absolutely-trust-the-bible-as-the-word-of-god-have-godly-authority-jn524)
     - [4. not even a part of the Bible can be abolished/dismissed because it is all about Jesus](#4-not-even-a-part-of-the-bible-can-be-abolisheddismissed-because-it-is-all-about-jesus)
     - [5. the Bible can be verified through faith](#5-the-bible-can-be-verified-through-faith)
   - [The incarnation of Jesus](#the-incarnation-of-jesus)
@@ -304,7 +303,7 @@
   - [III. The meaning of the temple](#iii-the-meaning-of-the-temple)
   - [IV. The essence of the church](#iv-the-essence-of-the-church)
     - [1. The church of Jesus](#1-the-church-of-jesus)
-    - [2. The 5 fuctions of the church](#2-the-5-fuctions-of-the-church)
+    - [2. The 5 functions of the church](#2-the-5-functions-of-the-church)
     - [3. the mission of the church](#3-the-mission-of-the-church)
     - [SENT](#sent)
     - [4. the authority of the church](#4-the-authority-of-the-church)
@@ -320,11 +319,11 @@
     > If he called them ‘gods,’ to whom the word of God came—and Scripture cannot be set aside
 
     referring to old testment, Bible cannot be destroyed
-    The Word Jn1:1
+#### The Word Jn1:1
 
 #### the phrase "in the beginning" appears twice in the Bible
 
-1. [Jn1:1](https://www.blueletterbible.org/niv/jhn/1/1/s_998001) before creation, an eternal "time"
+1. [Jn1:1](https://www.blueletterbible.org/niv/jhn/1/1/s_998001) before creation, an eternal "time" - eternity (no time)
     - the Word (ho Logos) = the self manifestation of God
 2. [Ge1:1](https://www.blueletterbible.org/niv/gen/1/1/s_1001) the beginning of creation
     > In the beginning God created the heavens and the earth.
@@ -342,7 +341,8 @@ Those who have the Word of God are called ***gods*** [Jn10:35](https://www.bluel
 It teaches ***how to vie***w the Bible. It teaches the word.
 
 ### Do not re-interpret
-not like theological school, which considers various sources of interpretation
+not like theological school, which considers various sources of interpretation <br>
+"take the word as is"
 
 ---
 # Chapter 1: How to look at the Bible - the "lens"
@@ -358,7 +358,7 @@ we must meet ***Jesus*** in the Bible
 
 The Bible is <u>not</u> an object of research
 
-## I.The Bible begins with a story of **3 types of spiritual beings** that are entirely different in their essence.
+## I. The Bible begins with a story of **3 types of spiritual beings** that are entirely different in their essence.
 
 |God|Angels|Men|
 |---|---|---|
@@ -371,6 +371,8 @@ the creator, the beginning and the end [Rev22:13](https://www.blueletterbible.or
 
 ### 1. The purpose of the Bible is for man to know God
 - [1Jn2:12-13](https://www.blueletterbible.org/niv/1jo/2/12/s_1161012)
+
+purpose-driven reading: know God
 
 ### 2. approaches to read the Bible
 |Greek approach| Hebrew approach|
@@ -466,8 +468,8 @@ Everything formed w/o direction.
 - Adam and Eve
 - The global flood etc
 
-- [Ge1:1](https://www.blueletterbible.org/niv/gen/1/1/s_1001) " In the beginning God created the heavens and the earth."
-- "Day" = YOM (Hebrew)  = A Solar day
+- [Ge1:1](https://www.blueletterbible.org/niv/gen/1/1/s_1001) "In the beginning God created the heavens and the earth."
+- "<u>day</u>" = YOM (Hebrew)  = A Solar day(24 hr day) -> God created the world in 6 <u>days</u>
 
   [Ex20:11](https://www.blueletterbible.org/niv/exo/20/11/s_70011)
   > For in six days the Lord made the heavens and the earth, the sea, and all that is in them, but he rested on the seventh day. Therefore the Lord blessed the Sabbath day and made it holy.
@@ -577,16 +579,15 @@ When men is tempted by culture, faith is cursed(corrupted), vice versa.
 [Eze47:12](https://www.blueletterbible.org/niv/eze/47/12/s_849012)
   > Fruit trees of all kinds will grow on both banks of the river. Their leaves will not wither, nor will their fruit fail. Every month they will bear fruit, because the water from the sanctuary flows to them. Their fruit will serve for food and their leaves for healing.
 
-1. challenging god because of food
+1. challenging God because of food
     - [Ge3:1-4](https://www.blueletterbible.org/niv/gen/3/1/s_3001)
 
-1. hardship in life because of the coruption of faith
+1. hardship in life because of the corruption of faith. "The life after sin is not guaranteed, not like more input &rarr; more output."
     - [Ge3:15-21](https://www.blueletterbible.org/niv/gen/3/15/s_3015)
 
 1. the invisible flaming sword <br>
     - representing an angel
     - [Ge3:22-24](https://www.blueletterbible.org/niv/gen/3/22/s_3022)
-
     - [Dt28:30-34](https://www.blueletterbible.org/niv/deu/28/30/s_181030)
 
     there is no earthly paradise, human can create society that is promised to be like paradise. In fact, there is no paradise on Earth any more.
@@ -603,14 +604,16 @@ When men is tempted by culture, faith is cursed(corrupted), vice versa.
 1. seeing the daughters of men, the sons of God became corrupted
     - [Ge6:1-2](https://www.blueletterbible.org/niv/gen/6/1/s_6001)
 
+"The words spoken in group meetings should be edifying to the spirits."
+
 ---
 
 ### Heaven
 
 ### III. The Bible differentiates ***three heavens*** that are distinct in level and describes the events that develop in them
 
+#### Three different heavens
 - [2Ch2:5-6](https://www.blueletterbible.org/niv/2ch/2/5/s_369005), [6:18](https://www.blueletterbible.org/niv/2ch/6/18/s_373018)
-
 
 > The temple I am going to build will be great, because our God is greater than all other gods. But who is able to build a temple for him, since the heavens, even the highest heavens, cannot contain him? Who then am I to build a temple for him, except as a place to burn sacrifices before him?
 
@@ -619,7 +622,6 @@ When men is tempted by culture, faith is cursed(corrupted), vice versa.
 - [Ps148:4](https://www.blueletterbible.org/niv/psa/148/4/s_626004)
 
 > Praise him, you highest ***heavens*** and you waters above the skies.
-### Three different heavens
 
 | First heaven | second | third |
 | --- | --- | --- |
@@ -644,6 +646,8 @@ God is omnipresent. the Son is in heaven. 3rd heaven was made/created
 
 #### The universe
 - [Ge1:1-2](https://www.blueletterbible.org/niv/gen/1/1/s_1001), [6-7](https://www.blueletterbible.org/niv/gen/1/6/s_1006)
+
+The water above, the water below
 
 #### Who governs where
 
@@ -681,6 +685,7 @@ prepared mechanism of punishment for devils
 - [Lk23:43](https://www.blueletterbible.org/niv/luk/23/43/s_996043)
 
 #### "Thy will be done on earth as it is in heaven"
+&rarr; JX died on cross on the earth
 - [Mt6:10](https://www.blueletterbible.org/niv/mat/6/10/s_935010)
 - [Rev12:7-9](https://www.blueletterbible.org/niv/rev/12/7/s_1179007)
 
@@ -688,13 +693,13 @@ prepared mechanism of punishment for devils
 
 ## Lec 4
 
-## III. Religion, albeit unclearly, demonstrates the common organization and deeds of faith
+## III. Religion, albeit(尽管) unclearly, demonstrates the common organization and deeds of faith
 
-### <u>Christianity is ***not*** a religion</u>
+### Christianity is <u>***not***</u> a religion
 
-religion = giving reverence to the super natural or transcendent
+religion = giving reverence（敬畏 to the super natural or the transcendent
 
-Christian faith exists without the text
+Christian faith exists without the text, doctrine, rituals, organization. It began with the word of God.
 
 | religion | Christianity |
 | --- | --- |
@@ -704,12 +709,14 @@ Christian faith exists without the text
 
 to have relationship with God: do according to the word
 
+"Separate us from the religion"
+
 ### Religiosity vs. Faith
 
 - [1Co15:13-19](https://www.blueletterbible.org/niv/1co/15/13/s_1077013)
 - [Ac2:32](https://www.blueletterbible.org/niv/act/2/32/s_1020032)
 
-#### you cannot know God through philosophy
+#### you cannot know God through ***philosophy***
 
 Philosophy is the basis of knowledge?
 Could you know god through philosophy? <br>
@@ -717,7 +724,7 @@ Could you know god through philosophy? <br>
 
 #### Two approaches in Greek philosophy to understand *deity though reason*
 
-1. The ontological approach
+1. The ontological approach (本体论)
 
     (ontological: the state of being/existence)
    - "God is that, the greater than which cannot the conceived(感知)" - Anselm of Canterbury
@@ -748,6 +755,8 @@ Could you know god through philosophy? <br>
    - the divine = nothingness, emptiness, meaninglessness<br>
     nihilism(尼采) <-> buddhism: reality being empty, full of suffering because of cravings, nothing is permanent, nothing is cause-less
 
+God has math in mind: Mandelbrot Set
+
 #### Neither philosophy nor religion can know the divine.
 - [Mt11:25-27](https://www.blueletterbible.org/niv/mat/11/25/s_940025)
 
@@ -767,7 +776,7 @@ Could you know god through philosophy? <br>
 | action | confession | acknowledgement |
 | --- | --- | --- |
 | worship | revealing my faith | God's omnipresence |
-| repentance | confessing my sins | God's righeousness, omniscience |
+| repentance | confessing my sins | God's righteousness, omniscience |
 | prayer | confessing my inabilites | God's omnipotence |
 | praise | confessing my lowliness  | God's worthiness |
 | tithing | revealing my income | God's ownership of all things |
@@ -804,7 +813,7 @@ repentance means turning
 | King | The name |
 | The Son of Man | the Son of God |
 | the mission of coming in the flesh | to whoever believes through the Holy Spirit |
-| Death, resurrection, ascension, the throne, return | Immanuel (God with us) |
+| Death, resurrection, ascension, the throne, return | ***Immanuel*** (God with us) |
 
 ### Regarding love
 the redemption of God
@@ -834,7 +843,7 @@ only in Christianity there is the redemption of God.
 God exalted him to his own right hand as Prince and Savior that he might bring Israel to repentance and forgive their sins.
 We are witnesses of these things, and so is the Holy Spirit, whom God has given to those who obey him.”
 
-#### The lord's prayer is <u>not</u> a catechism(教理问答)
+#### The Lord's prayer is <u>not</u> a catechism(教理问答 summary of principles of religion)
 
 #### The content of prayer / How do we pray?
 
@@ -896,7 +905,7 @@ worship(Greek: προσκυνώ, Proskuneo) = seeing the face of the Lord in spi
 worship - to fall at another's feet - to meet with Him face to face - kiss the hand of God
 
 dead sacrifice(old testment)
-/ living sacrifice(new testment)???
+/ living sacrifice(new testment), living eternal blood of JX
 
 - [Jn4:20-26](https://www.blueletterbible.org/niv/jhn/4/20/s_1001020)
 - [1Ki12:18-24](https://www.blueletterbible.org/niv/1ki/12/18/s_303018), [27-33](https://www.blueletterbible.org/niv/1ki/12/27/s_303027)
@@ -937,7 +946,9 @@ dead sacrifice(old testment)
 
 faith is ... <br>
 - acknowledging what God has done and possessing it
-- trusting the Word of God to be fullfilled
+- trusting the Word of God to be fulfilled
+
+"The Bible is the object of experience"
 
 #### the treasure of God is in the Bible
 
@@ -958,7 +969,7 @@ need to have experience of Word
 
 ### 2. the Bible emphasizes obedience by faith
 
-### what is faith?
+### What is faith?
 
 #### Self-confidence (believe in the self)
 - the "faith" of the natural people
@@ -992,22 +1003,22 @@ example of Moses not entering Canaan
 
 faith is <u>***surrendering***</u> your experience even if risky and holding on to <u>***the Word***</u>
 
-#### Now faith is ***the substance*** of things hoped for and ***the evidence*** of things not seen - [He11:1](https://www.blueletterbible.org/nkjv/heb/11/1/s_1144001), NKJV
+#### Now faith is <u>***the substance***</u> of things hoped for and <u>***the evidence***</u> of things not seen - [He11:1](https://www.blueletterbible.org/nkjv/heb/11/1/s_1144001), NKJV
 
-### 3. Those who absolutely trust the Bible as the Word of god have Godly authority [Jn5:24](https://www.blueletterbible.org/niv/jhn/5/24/s_1002024)
+### 3. Those who absolutely trust the Bible as the Word of God have Godly authority [Jn5:24](https://www.blueletterbible.org/niv/jhn/5/24/s_1002024)
 
 #### the authority of the Son of Man
 
 - the authority to ***judge sins*** [Jn5:27](https://www.blueletterbible.org/niv/jhn/5/27/s_1002027) and ***forgive sins*** [Mt9:6](https://www.blueletterbible.org/niv/mat/9/6/s_938006)
 - the authority ***to die*** and the authority ***to live*** [Jn10:18](https://www.blueletterbible.org/niv/jhn/10/18/s_1007018)
 
-the target of His judgement = the origin os sin = the devil
+the target of His judgement = the origin of sin = the devil
 
-the subject of his forgiveness = souls of men, because they were deceived
+the subject of his forgiveness = souls of men(Adam), because they were deceived
 
 #### the authority of preachers
 
-- [Jn20:23](https://www.blueletterbible.org/niv/jhn/20/23/s_1017023) // TODO
+- [Jn20:23](https://www.blueletterbible.org/niv/jhn/20/23/s_1017023)
 - [Jn1:12](https://www.blueletterbible.org/niv/jhn/1/12/s_998012)
 - [Eze33:1-9](https://www.blueletterbible.org/niv/eze/33/1/s_835001)
 
@@ -1029,7 +1040,7 @@ Jesus is testified by
 2. the prophets [Jn1:34](https://www.blueletterbible.org/niv/jhn/1/34/s_998034)
 3. the Father [Jn8:18](https://www.blueletterbible.org/niv/jhn/8/18/s_1005018)
 4. Jesus himself [Jn8:18](https://www.blueletterbible.org/niv/jhn/8/18/s_1005018)
-5. the holy spirit [Jn15:26](https://www.blueletterbible.org/niv/jhn/15/26/s_1012026)
+5. the Holy Spirit [Jn15:26](https://www.blueletterbible.org/niv/jhn/15/26/s_1012026)
 6. the disciples [Jn15:27](https://www.blueletterbible.org/niv/jhn/15/27/s_1012027)
 - Unbelievers - testify the death of Jesus
 - disciples - testify ***the resurrection*** of Jesus [1Co15:3-8](https://www.blueletterbible.org/niv/1co/15/3/s_1077003)
@@ -1099,6 +1110,7 @@ Jesus is testified by
 
 The four gospel books were written decades after Jesus' death.
 
+"be filled with HS to see the miracles as factual incidents"
 
 ### 8. the Bible is a mirror
 
@@ -1172,7 +1184,7 @@ Moses 1500 B.C. the Pentatuch, the first five books.
 
 last book of old testment Nakachi 400 B.C.
 
-400 B.C. -> 0 A.D.the dark age of Isareal, the intertestamental period.
+400 B.C. -> 0 A.D.the dark age of Isareal, the inter-testamental period.
 "the dark history of Israel", no prophet
 
 70 A.D. -> 100 A.D., the New Testment is finished
@@ -1219,6 +1231,7 @@ Vietnam and Iraq for glory of America??? bad example
 - (2022.5.7) is it bad example?
 - (2023.5.13) USA went to vietnam not for the love of vietnam people (but for the glory of America?), saving man is just a side effect
 - (2024.5.11) hmm still feel the same, not a good example but understood the point
+- (2025.5.3) too tired to think about it...
 
 ---
 
@@ -1227,7 +1240,7 @@ Vietnam and Iraq for glory of America??? bad example
 ### 12. Read the Bible knowing the purpose of God
 
 #### knowing God is faith
-- unbelievers: deny the existance of God
+- unbelievers: deny the existence of God
 - the antichrist: denies the fact that Jesus came in flesh (they do not believe Jesus is Son of God, incarnation of God)
 - cults: insist on salvation other than Jesus
 
@@ -1252,7 +1265,7 @@ Is communism/socialism a perfect world??? Soviet Union is not a perfect instance
 - [1Co3:21-23](https://www.blueletterbible.org/niv/1co/3/21/s_1065021)
 - [Mk2:27-28](https://www.blueletterbible.org/niv/mar/2/27/s_959027)
 
-God &rarr; Christ &rarr; men &rarr; all things <br>
+God &rarr; Christ &rarr; men &rarr; all things(the creation) <br>
 ??? Isn't Christ also God? <br>
 Jesus Christ has to surrender to the will of God
 
@@ -1266,11 +1279,11 @@ Jesus Christ has to surrender to the will of God
 
 anthropocentricism vs. theocentricism
 
-"we are vessels(器皿) that made for God the potter(制陶工人)"
+"we are vessels(器皿) that made for God the potter(制陶工人), created for the use of God's purpose"
 
 - [2Ti2:20](https://www.blueletterbible.org/niv/2ti/2/20/s_1127020)
 - [Rm9:20-21](https://www.blueletterbible.org/niv/rom/9/20/s_1055020)
-- [Col1:16](https://www.blueletterbible.org/niv/col/1/16/s_1108016)
+- [Col1:16](https://www.blueletterbible.org/niv/col/1/16/s_1108016) All things were created by Christ and for Christ
 
 "If you see the greater things, you will let go the petty things"
 
@@ -1347,7 +1360,7 @@ General conscience is variant and relative
 
 - the law: by obeying one is righteous (the righteous)
 - JX: fulfilled the law (the righteousness of God)
-- faith: justified (called righteous)
+- faith: justified (called "righteous")
 
 ---
 
@@ -1364,7 +1377,7 @@ first day He created light
 
 ***the natural light***: the beginning of the natural revelation
 
-- [Ge1:5](https://www.blueletterbible.org/niv/gen/1/5/s_1005)
+- [Ge1:1-5](https://www.blueletterbible.org/niv/gen/1/1/s_1001)
 
 ***the origin of light*** : the higher revelation
 
@@ -1391,7 +1404,7 @@ the role of a prophet is to introduce
 - [Jn8:12](https://www.blueletterbible.org/niv/jhn/8/12/s_1005012)
 - [Jn9:1-7](https://www.blueletterbible.org/niv/jhn/9/1/s_1006001)
 
-spit to ground as ground is sinned/cursed where flesh came from
+spit to ground as ground is sinned/cursed where flesh came from, as a result the flesh gets sickness
 (but why put mud on the blind's eye)
 
 
@@ -1413,10 +1426,10 @@ Jacob(Israel as a name of blessing) wrestled with angel
 
 [Bible Project](https://www.youtube.com/watch?v=eLrGM26pmM0)<br>
 "I AM": <br>
-"YHMH" &rarr; "Yahweh" &rarr; "Jehovah"
+"YHWH" &rarr; "Yahweh" &rarr; "Yahowah" (Israelites they don't read it out loud, it cues them to say "Adonay") &rarr;  "Jehovah" (English transcribe)
 
 
-"Yahweh"("YWHW") + "Adonai"("aoa") = "Yahowah" &rarr; "Jehovah"
+"Yahweh"("YHWH") + "Adonai"("aoa") = "Yahowah"  &rarr; "Jehovah"
 <br>
 -> "Elohim": God <br>
 -> "Adonai" Lord <br>
@@ -1424,7 +1437,7 @@ Jacob(Israel as a name of blessing) wrestled with angel
 #### ***Jehovah***: the name delivered and made known by ***angel***
 - [Ex3:2-5](https://www.blueletterbible.org/niv/exo/3/2/s_53002)
 - [Ex6:3](https://www.blueletterbible.org/niv/exo/6/3/s_56003)
-- [Hos12:3-5](https://www.blueletterbible.org/niv/hos/12/3/s_874003)
+- [Hos12:3-5](https://www.blueletterbible.org/niv/hos/12/3/s_874003) in OT, the name of the LORD is delivered thru angels
 - [Ex20:7](https://www.blueletterbible.org/niv/exo/20/7/s_70007)
 - [2Ch20:5-8](https://www.blueletterbible.org/niv/2ch/20/5/s_387005)
 
@@ -1453,7 +1466,7 @@ which is Yeshua
 - [Rm10:13](https://www.blueletterbible.org/niv/rom/10/13/s_1056013)
 - [He5:9](https://www.blueletterbible.org/niv/heb/5/9/s_1138009)
 
-| Jesus | Yeshua |
+| Jesus | Yeshua(Aramaic) |
 | --- | --- |
 | no meaning | "The Lord saves" "salvation" |
 
@@ -1479,12 +1492,12 @@ which is Yeshua
 ---
 
 ### 19. The Bible is the road that follows not men but Yeshua
-- [M1:1-16](https://www.blueletterbible.org/niv/mat/1/1/s_930001)
+- [Mt1:1-16](https://www.blueletterbible.org/niv/mat/1/1/s_930001)
 
 ### 20. There are three *climaxes* in the Bible
 - [Lk1:1-4](https://www.blueletterbible.org/niv/luk/1/1/s_974001)
 
-Ps105-106, Jn, He
+The abbreviated version of Bible: Ps105-106, He, Jn
 
 #### Climax 1. the event of the Exodus of Israel
 
@@ -5653,15 +5666,13 @@ the church:
 <!-- ---
 # Lec 48 -->
 
-### 2. The 5 fuctions of the church
+### 2. The 5 functions of the church
 1. worship [Jn4:24](https://www.blueletterbible.org/niv/jhn/4/24/s_1001024), [Rm12:1](https://www.blueletterbible.org/niv/rom/12/1/s_1058001), [1Pe2:5](https://www.blueletterbible.org/niv/1pe/2/5/s_1153005)
 1. fellowship [Rm12:10-13](https://www.blueletterbible.org/niv/rom/12/10/s_1058010)
 1. service [Eph4:12](https://www.blueletterbible.org/niv/eph/4/12/s_1101012), [1Pe4:10](https://www.blueletterbible.org/niv/1pe/4/10/s_1155010)
 1. evangelism [2Ti4:2-5](https://www.blueletterbible.org/niv/2ti/4/2/s_1129002)
 1. education [1Co4:17](https://www.blueletterbible.org/niv/1co/4/17/s_1066017)
 
----
----
 
 #### 1. the words of the HS can only be heard in the church
 - [Rev2:1-3:22](https://www.blueletterbible.org/niv/rev/2/1/s_1169001)
@@ -5678,7 +5689,8 @@ the church:
 - [Lev1:13](https://www.blueletterbible.org/niv/lev/1/13/s_91013)
 - [Mt8:4](https://www.blueletterbible.org/niv/mat/8/4/s_937004)
 - [Lk7:38](https://www.blueletterbible.org/niv/luk/7/38/s_980038)
-#### 5. only the paryer done in the Church is answered
+#### 5. only the prayer done in the Church is answered
+emphasis on the power of gathering
 - [Mt18:18-19](https://www.blueletterbible.org/niv/mat/18/18/s_947018)
 - [Mk11:17](https://www.blueletterbible.org/niv/mar/11/17/s_968017)
 - [Ac3:1](https://www.blueletterbible.org/niv/act/3/1/s_1021001)
@@ -5715,27 +5727,26 @@ missions: sending the gospel to distant nations
 the church = the bride of Christ
 the authority of Church = the authority of Christ
 
-- Mt16:19
-- Rev3:7-8
-- Mt18:15-17
+- [Mt16:19](https://www.blueletterbible.org/niv/mat/16/19/s_945019)
+- [Rev3:7-8](https://www.blueletterbible.org/niv/rev/3/7/s_1170007)
+- [Mt18:15-17](https://www.blueletterbible.org/niv/mat/18/15/s_947015) authority of church, [18-20](https://www.blueletterbible.org/niv/mat/18/18/s_947018)
 
 the church put sinners to death
-- Ac6:1-11
-- 1Co5:1-5
-- Rev21:2
-- Rev22:17
+- [Ac6:1-11](https://www.blueletterbible.org/niv/act/6/1/s_1024001)
+- [1Co5:1-5](https://www.blueletterbible.org/niv/1co/5/1/s_1067001)
+- [Rev21:2](https://www.blueletterbible.org/niv/rev/21/2/s_1188002)
+- [Rev22:17](https://www.blueletterbible.org/niv/rev/22/17/s_1189017)
 
 faith life = spiritual life = church life
-the first resurrection = the resurrection of the body of Christ, the bride (Rev3:12)
+the first resurrection = the resurrection of the body of Christ, the bride [Rev3:12](https://www.blueletterbible.org/niv/rev/3/12/s_1170012)
 
-Christ is the mystery of God (Col2:2)
-The Church is the mystery of godliness (1Ti3:15-16)
+- Christ is the mystery of God [Col2:2](https://www.blueletterbible.org/niv/col/2/2/s_1109002)
+- The Church is the mystery of Christ [Eph5:32](https://www.blueletterbible.org/niv/eph/5/32/s_1102032)
+- The Church is the mystery of godliness [1Ti3:15-16](https://www.blueletterbible.org/niv/1ti/3/15/s_1122015)
 
-The Church is the mystery of Christ Eph5:32
+ grace : gift of God for free
 
- grace : gift of Gof for free
-
- Eph 1:7
+[Eph1:7](https://www.blueletterbible.org/niv/eph/1/7/s_1098007)
 
 by His grace, we are forgiven for our sin
 
